@@ -37,23 +37,33 @@ jobs:
         id: sync
         run: |
           python3 quick_sync.py
-          echo "exit_code=$?" >> $GITHUB_OUTPUT
+          exitcode=$?
+          echo "exit_code=$exitcode" >> $GITHUB_OUTPUT
+          echo "Quick sync completed with exit code: $exitcode"
         continue-on-error: true
 
       - name: Check sync result
         id: result
         run: |
-          exit_code=$(cat $GITHUB_OUTPUT | grep "exit_code=" | cut -d= -f2)
-          echo "Exit code: $exit_code"
+          # Read exit code from the previous step output
+          exit_code=$(grep "exit_code=" "$GITHUB_OUTPUT" | cut -d= -f2 | tr -d '\n\r')
+          echo "DEBUG: Read exit_code='$exit_code'"
+          
+          if [ -z "$exit_code" ]; then
+            echo "new_stories=error" >> $GITHUB_OUTPUT
+            echo "✗ Could not read exit code from quick_sync.py"
+            exit 1
+          fi
+          
           if [ "$exit_code" = "1" ]; then
             echo "new_stories=true" >> $GITHUB_OUTPUT
-            echo "✓ New stories found"
+            echo "✓ New stories found (exit code: $exit_code)"
           elif [ "$exit_code" = "0" ]; then
             echo "new_stories=false" >> $GITHUB_OUTPUT
-            echo "✓ No new stories"
+            echo "✓ No new stories (exit code: $exit_code)"
           else
             echo "new_stories=error" >> $GITHUB_OUTPUT
-            echo "✗ Sync error: $exit_code"
+            echo "✗ Sync error: unexpected exit code $exit_code"
             exit 1
           fi
 
