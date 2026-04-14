@@ -1,4 +1,4 @@
-.PHONY: download convert build clean all detect fix-broken serve
+.PHONY: download convert build clean all detect fix-broken serve docker-build docker-run docker-run-build
 
 PYTHON = python3
 PIP = pip3
@@ -6,6 +6,10 @@ HUGO = hugo
 VENV = .venv
 VENV_PYTHON = $(VENV)/bin/python
 VENV_PIP = $(VENV)/bin/pip
+
+DOCKER_IMAGE = ghcr.io/niobedev/grometsparser:latest
+DOCKER_TAG ?= latest
+PWD = $(shell pwd)
 
 all: venv download convert build
 
@@ -50,3 +54,24 @@ fix-broken: venv
 serve:
 	@echo "Starting Hugo development server..."
 	cd website && $(HUGO) server --bind 0.0.0.0 --buildDrafts
+
+docker-build:
+	@echo "Building Docker image..."
+	docker build -t $(DOCKER_IMAGE) .
+	docker tag $(DOCKER_IMAGE) ghcr.io/niobedev/grometsparser:$(DOCKER_TAG)
+
+docker-run:
+	@echo "Running sync in Docker..."
+	docker run --rm \
+		-e GITHUB_TOKEN=$(GITHUB_TOKEN) \
+		-v $(PWD):/app \
+		$(DOCKER_IMAGE) \
+		python3 sync.py
+
+docker-run-build:
+	@echo "Running sync and build in Docker..."
+	docker run --rm \
+		-e GITHUB_TOKEN=$(GITHUB_TOKEN) \
+		-v $(PWD):/app \
+		$(DOCKER_IMAGE) \
+		/bin/bash sync_and_build.sh

@@ -11,14 +11,11 @@ echo "[1/2] Running sync..."
 python3 sync.py
 
 echo ""
-echo "[2/2] Building website to /var/www..."
-cd website && hugo --destination ../public --quiet || hugo --destination ../public
-cd ..
-
-echo "Copying built site to /var/www..."
-cp -r website/public/* /var/www/
+echo "[2/2] Building website..."
+cd website && hugo
 
 echo ""
 echo "=========================================="
 echo "Build completed successfully"
+echo "Built site available in website/public"
 echo "=========================================="

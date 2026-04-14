@@ -14,23 +14,15 @@ RUN curl -sL https://github.com/gohugoio/hugo/releases/download/v0.137.1/hugo_ex
     && mv /tmp/hugo /usr/local/bin/hugo \
     && rm -rf /tmp/*
 
-RUN useradd -m -s /bin/bash appuser
-
-WORKDIR /app
+# Configure SSH to skip host key verification for GitHub
+RUN mkdir -p /root/.ssh && \
+    echo "Host github.com" >> /root/.ssh/config && \
+    echo "  StrictHostKeyChecking no" >> /root/.ssh/config && \
+    echo "  UserKnownHostsFile /dev/null" >> /root/.ssh/config
 
 COPY requirements.txt .
 RUN pip install --no-cache-dir -r requirements.txt
 
-COPY . .
+WORKDIR /app
 
-RUN git submodule update --init --recursive
-
-RUN mkdir -p /var/www
-
-USER appuser
-
-ENV PATH="/app/.venv/bin:${PATH}"
-
-CMD ["python3", "sync.py"]
-
-ENTRYPOINT []
+CMD ["/bin/bash", "daily_sync.sh"]
