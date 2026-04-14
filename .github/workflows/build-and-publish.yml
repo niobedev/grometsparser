@@ -1,0 +1,64 @@
+name: Build and Publish Website
+
+on:
+  push:
+    branches:
+      - main
+
+permissions:
+  contents: write
+
+jobs:
+  build-and-publish:
+    runs-on: ubuntu-latest
+
+    steps:
+      - name: Checkout code
+        uses: actions/checkout@v4
+
+      - name: Setup Hugo
+        uses: peaceiris/actions-hugo@v3
+        with:
+          hugo-version: '0.146.6'
+          extended: true
+
+      - name: Build website
+        run: |
+          cd website
+          hugo --minify
+
+      - name: Create archive
+        run: |
+          cd website
+          tar -czf website-archive.tar.gz public/
+
+      - name: Get current date
+        id: date
+        run: echo "date=$(date +'%Y%m%d-%H%M%S')" >> $GITHUB_OUTPUT
+
+      - name: Create Release
+        uses: softprops/action-gh-release@v1
+        with:
+          tag_name: build-${{ steps.date.outputs.date }}
+          name: Website Build ${{ steps.date.outputs.date }}
+          body: |
+            Automated website build from commit ${{ github.sha }}
+
+            **Changes:**
+            - Commit: ${{ github.sha }}
+            - Author: ${{ github.actor }}
+            - Message: ${{ github.event.head_commit.message }}
+
+            ## How to Deploy
+
+            Download `website-archive.tar.gz` and extract to your web server:
+            ```bash
+            wget https://github.com/${{ github.repository }}/releases/download/build-${{ steps.date.outputs.date }}/website-archive.tar.gz
+            tar -xzf website-archive.tar.gz
+            cp -r public/* /var/www/gromets/
+            ```
+          files: website/website-archive.tar.gz
+          draft: false
+          prerelease: false
+        env:
+          GITHUB_TOKEN: ${{ secrets.GITHUB_TOKEN }}

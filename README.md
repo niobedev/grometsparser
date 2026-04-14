@@ -16,6 +16,7 @@ This repository contains the tools to scrape, clean, and re-host stories from [G
 - 🎨 **Smart Markdown Correction:** Automatic detection and fixing of common formatting issues (broken italics, malformed author's notes).
 - 🏷️ **Rich Metadata:** Stories include author tags, story codes, and links to the original source.
 - 🚀 **Automated Hourly Sync:** Docker-based hourly quick sync with automatic git commits and conditional website rebuilding. Full sync available on-demand.
+- 🔄 **CI/CD Pipeline:** Automatic website building and publishing to GitHub Releases on every push to main branch.
 
 ## 📂 Project Structure
 
@@ -313,15 +314,53 @@ docker push ghcr.io/niobedev/grometsparser:v1.0.0
 
 ## 🚀 Deployment Options
 
+### Automated Deployment (Recommended)
+
+**Option 1: Use Deployment Script**
+
+Copy `deploy.sh` to your VPS and run:
+
+```bash
+# Copy script to VPS
+scp deploy.sh user@your-vps:/var/www/
+
+# SSH to VPS and run
+ssh user@your-vps
+sudo ./deploy.sh
+```
+
+The script will:
+- Download the latest release from GitHub
+- Create a backup of the current deployment
+- Extract and deploy the new version
+- Clean up temporary files
+
+**Option 2: Manual Download**
+
+Download the latest website build from GitHub Releases after every push to `main`:
+
+```bash
+# Get the latest release archive URL
+ARCHIVE_URL=$(curl -s https://api.github.com/repos/niobedev/grometsparser/releases/latest | grep -o '"browser_download_url": "[^"]*' | cut -d'"' -f4)
+
+# Download archive
+wget $ARCHIVE_URL -O website-archive.tar.gz
+
+# Extract and deploy (creates public/ directory)
+tar -xzf website-archive.tar.gz
+cp -r public/* /var/www/gromets/
+```
+
 ### Manual Build
-Run `make build` and upload the contents of the generated `website-archive.tar.gz` to your web server's root.
+
+Run `make build` and upload the contents of the generated `website/public/` directory to your web server's root.
 
 ### Docker with Cron
-Set up a cron job to run the Docker container hourly for quick sync. This is the recommended approach for automated updates.
+Set up a cron job to run the Docker container hourly for quick sync. This is the recommended approach for automated content updates.
 
 ### Serving the Website
 
-After the Docker container runs, the built website is available in `website/public/`. You can serve this with any web server:
+The website files are available in `website/public/` (after manual build) or extracted from the release archive. You can serve them with any web server:
 
 ```bash
 # Using nginx
@@ -361,6 +400,56 @@ make docker-build DOCKER_ARCH=amd64
 
 # For ARM64 servers (Apple Silicon, some cloud instances)
 make docker-build DOCKER_ARCH=arm64
+```
+
+## 🔄 GitHub Actions CI/CD
+
+The repository includes an automated workflow that builds and publishes the website on every push to the `main` branch.
+
+### Setup
+
+The workflow is located at `.github/workflows/build-and-publish.yml` and requires:
+
+1. **Enable GitHub Actions** - Go to repository Settings > Actions > General and verify "Allow all actions and reusable workflows" is enabled
+2. **Permissions** - The workflow requires `contents: write` permission to create releases (already configured in the workflow file)
+3. **GitHub Token** - Uses the built-in `secrets.GITHUB_TOKEN`, no additional setup required
+
+### Workflow Details
+
+- **Trigger**: Runs automatically on every push to `main` branch
+- **Build Process**:
+  1. Checks out the latest code
+  2. Sets up Hugo Extended v0.146.6
+  3. Builds the website with minification
+  4. Creates a tar.gz archive of the `public/` directory
+- **Release**: Creates a GitHub Release with:
+  - Tag name: `build-YYYYMMDD-HHMMSS`
+  - Release asset: `website-archive.tar.gz`
+  - Release notes: Commit SHA, author, and message
+
+### Using Automated Builds
+
+Download the latest website build from GitHub Releases:
+
+```bash
+# Get the latest release URL
+LATEST_URL=$(curl -s https://api.github.com/repos/niobedev/grometsparser/releases/latest | grep "browser_download_url" | cut -d '"' -f 4)
+
+# Download and deploy
+wget $LATEST_URL -O website-archive.tar.gz
+tar -xzf website-archive.tar.gz
+cp -r public/* /var/www/gromets/
+```
+
+Or manually download from:
+https://github.com/niobedev/grometsparser/releases
+
+### Manual Override
+
+If you prefer to build locally instead of using automated releases, you can still use:
+
+```bash
+make build
 ```
 
 ## ⚖️ License & Copyright

@@ -20,10 +20,10 @@ EXIT_CODE=$?
 
 # Check if new stories were added and rebuild website if needed
 if [ $EXIT_CODE -eq 1 ]; then
-    echo 'New stories added, rebuilding website...'
-    cd /app/website
-    hugo
-    echo 'Website rebuilt successfully'
+    echo 'New stories added.'
+    # cd /app/website
+    # hugo
+    # echo 'Website rebuilt successfully'
 elif [ $EXIT_CODE -eq 0 ]; then
     echo 'No new stories, skipping website rebuild'
 else
