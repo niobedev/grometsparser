@@ -1,6 +1,7 @@
 FROM python:3.12-slim
 
 ARG DEBIAN_FRONTEND=noninteractive
+ARG HUGO_ARCH=amd64
 
 RUN apt-get update && apt-get install -y --no-install-recommends \
     git \
@@ -10,7 +11,7 @@ RUN apt-get update && apt-get install -y --no-install-recommends \
     make \
     && rm -rf /var/lib/apt/lists/*
 
-RUN curl -sL https://github.com/gohugoio/hugo/releases/download/v0.146.6/hugo_extended_0.146.6_linux-arm64.tar.gz | tar -xz -C /tmp \
+RUN curl -sL https://github.com/gohugoio/hugo/releases/download/v0.146.6/hugo_extended_0.146.6_linux-${HUGO_ARCH}.tar.gz | tar -xz -C /tmp \
     && mv /tmp/hugo /usr/local/bin/hugo \
     && rm -rf /tmp/*
 

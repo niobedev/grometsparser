@@ -9,6 +9,7 @@ VENV_PIP = $(VENV)/bin/pip
 
 DOCKER_IMAGE = grometsparser:local
 DOCKER_TAG ?= latest
+DOCKER_ARCH ?= amd64
 PWD = $(shell pwd)
 
 all: venv download convert build
@@ -50,8 +51,8 @@ serve:
 		/bin/bash -c "cd /app/website && hugo server --bind 0.0.0.0 --buildDrafts"
 
 docker-build:
-	@echo "Building Docker image..."
-	docker build -t $(DOCKER_IMAGE) .
+	@echo "Building Docker image for $(DOCKER_ARCH)..."
+	docker build --build-arg HUGO_ARCH=$(DOCKER_ARCH) -t $(DOCKER_IMAGE) .
 	docker tag $(DOCKER_IMAGE) ghcr.io/niobedev/grometsparser:$(DOCKER_TAG)
 
 docker-run:

@@ -56,14 +56,15 @@ Create a `.env` file in the project root (you can copy `.env.example` as a templ
 # Copy the example file
 cp .env.example .env
 
-# Edit .env with your GitHub token
+# Edit .env with your GitHub token and Docker architecture
 # Get your token from: https://github.com/settings/tokens
 # The token needs push access to this repository
+# DOCKER_ARCH: amd64 (most servers) or arm64 (Apple Silicon)
 ```
 
 The `.env` file is automatically loaded by the Makefile. For Docker commands, you can either:
-- Use the `.env` file (recommended for local development)
-- Pass `GITHUB_TOKEN` as an environment variable (recommended for CI/CD)
+- Use the `.env` file (recommended - supports both `GITHUB_TOKEN` and `DOCKER_ARCH`)
+- Pass environment variables directly (recommended for CI/CD)
 
 ## ⚙️ Usage Workflow
 
@@ -136,6 +137,26 @@ The project includes a Docker container for automated hourly sync (quick sync) a
 - The Docker container comes pre-configured with git user settings for automated commits
 
 ### Building the Image
+
+**Option 1: Set architecture in .env (Recommended)**
+```bash
+# Add to your .env file:
+DOCKER_ARCH=amd64  # or arm64
+
+# Then simply run:
+make docker-build
+```
+
+**Option 2: Pass architecture as make argument**
+```bash
+# For x86_64 (most VPS servers)
+make docker-build DOCKER_ARCH=amd64
+
+# For ARM64 (Apple Silicon Macs)
+make docker-build DOCKER_ARCH=arm64
+```
+
+The Docker image supports both architectures via the `HUGO_ARCH` build argument. The default is `amd64` for most servers.
 
 The Docker image is automatically built and pushed to GitHub Container Registry when you push a tag:
 
@@ -310,6 +331,36 @@ sudo systemctl restart nginx
 # Or using python's simple server
 cd website/public
 python3 -m http.server 8000
+```
+
+## 🔧 Troubleshooting
+
+### "Exec format error" when running Docker container
+
+If you encounter this error:
+```
+/usr/local/bin/hugo: cannot execute binary file: Exec format error
+```
+
+This indicates an architecture mismatch between your build environment and VPS. Rebuild the Docker image with the correct architecture:
+
+**Option 1: Set in .env (Recommended)**
+```bash
+# Edit .env and set:
+DOCKER_ARCH=amd64  # For x86_64 servers
+# DOCKER_ARCH=arm64  # For ARM64 servers
+
+# Rebuild
+make docker-build
+```
+
+**Option 2: Pass as make argument**
+```bash
+# For x86_64 servers (most VPS including Hetzner, DigitalOcean, etc.)
+make docker-build DOCKER_ARCH=amd64
+
+# For ARM64 servers (Apple Silicon, some cloud instances)
+make docker-build DOCKER_ARCH=arm64
 ```
 
 ## ⚖️ License & Copyright
