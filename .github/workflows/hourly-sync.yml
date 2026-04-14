@@ -167,11 +167,12 @@ jobs:
         run: |
           TXN="m$(date +%s%N)"
           NEW_STORIES="${{ steps.stories_info.outputs.story_titles }}"
+          SITE_URL="https://plaza.housetoral.uk"
           
           curl -X PUT "https://${MATRIX_URL}/_matrix/client/v3/rooms/${ROOM_ID}/send/m.room.message/${TXN}" \
             -H "Authorization: Bearer $MATRIX_TOKEN" \
             -H "Content-Type: application/json" \
-            -d "{\"msgtype\": \"m.text\", \"body\": \"🆕 New stories added:\n\n$NEW_STORIES\"}"
+            -d "{\"msgtype\": \"m.text\", \"body\": \"🆕 New stories added!\n\n$NEW_STORIES\n\nView at: $SITE_URL\"}"
 
       - name: No new stories - success
         if: steps.check_stories.outputs.skip_build == 'true'
