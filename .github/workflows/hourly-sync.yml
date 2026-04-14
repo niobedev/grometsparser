@@ -1,0 +1,127 @@
+name: Hourly Sync and Release
+
+on:
+  schedule:
+    - cron: '0 * * * *'  # Run every hour
+  workflow_dispatch:  # Allow manual trigger
+
+permissions:
+  contents: write
+
+jobs:
+  hourly-sync:
+    runs-on: ubuntu-latest
+
+    steps:
+      - name: Checkout code
+        uses: actions/checkout@v4
+        with:
+          submodules: recursive
+          token: ${{ secrets.GITHUB_TOKEN }}
+
+      - name: Setup Python
+        uses: actions/setup-python@v5
+        with:
+          python-version: '3.12'
+
+      - name: Install dependencies
+        run: |
+          pip install -r requirements.txt
+
+      - name: Configure git
+        run: |
+          git config user.name "Gromets Parser"
+          git config user.email "parser@grometsplaza.net"
+
+      - name: Run quick sync
+        id: sync
+        run: |
+          python3 quick_sync.py
+          echo "exit_code=$?" >> $GITHUB_OUTPUT
+        continue-on-error: true
+
+      - name: Check sync result
+        id: result
+        run: |
+          exit_code=$(cat $GITHUB_OUTPUT | grep "exit_code=" | cut -d= -f2)
+          echo "Exit code: $exit_code"
+          if [ "$exit_code" = "1" ]; then
+            echo "new_stories=true" >> $GITHUB_OUTPUT
+            echo "✓ New stories found"
+          elif [ "$exit_code" = "0" ]; then
+            echo "new_stories=false" >> $GITHUB_OUTPUT
+            echo "✓ No new stories"
+          else
+            echo "new_stories=error" >> $GITHUB_OUTPUT
+            echo "✗ Sync error: $exit_code"
+            exit 1
+          fi
+
+      - name: Check if new stories were found
+        id: check_stories
+        run: |
+          new_stories=$(cat $GITHUB_OUTPUT | grep "new_stories=" | cut -d= -f2)
+          if [ "$new_stories" != "true" ]; then
+            echo "No new stories to process"
+            exit 0
+          fi
+          echo "Processing new stories..."
+
+      - name: Get new story titles for release
+        id: stories_info
+        run: |
+          # Get the list of new stories from the last commit
+          STORY_TITLES=$(git log -1 --pretty=format:"%B" | head -20)
+          echo "story_titles=$STORY_TITLES" >> $GITHUB_OUTPUT
+
+      - name: Build website
+        run: |
+          cd website
+          hugo --minify
+
+      - name: Verify build output
+        run: |
+          HTML_COUNT=$(find website/public -name "*.html" | wc -l)
+          echo "Built $HTML_COUNT HTML files"
+          if [ "$HTML_COUNT" = "0" ]; then
+            echo "Error: No HTML files generated"
+            exit 1
+          fi
+
+      - name: Create archive
+        run: |
+          cd website
+          tar -czf website-archive.tar.gz public/
+
+      - name: Commit and push changes
+        run: |
+          git status --short
+          git add -A
+          git diff --cached --quiet || git commit -m "Sync: Add new stories from updates"
+          git push origin main
+
+      - name: Create release
+        uses: softprops/action-gh-release@v1
+        if: success()
+        with:
+          tag_name: sync-$(date +'%Y%m%d-%H%M%S')
+          name: Website Update $(date +'%Y-%m-%d %H:%M')
+          body: |
+            Automated hourly sync - New stories added
+
+            **New Stories:**
+            ${{ steps.stories_info.outputs.story_titles }}
+
+            ### How to Deploy
+
+            ```bash
+            # Download and deploy
+            wget https://github.com/${{ github.repository }}/releases/download/sync-$(date +'%Y%m%d-%H%M%S')/website-archive.tar.gz
+            tar -xzf website-archive.tar.gz
+            cp -r public/* /var/www/gromets/
+            ```
+          files: website/website-archive.tar.gz
+          draft: false
+          prerelease: false
+        env:
+          GITHUB_TOKEN: ${{ secrets.GITHUB_TOKEN }}
