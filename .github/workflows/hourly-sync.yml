@@ -139,14 +139,15 @@ jobs:
         env:
           GITHUB_TOKEN: ${{ secrets.GITHUB_TOKEN }}
 
+      - name: Upload artifact
+        if: steps.check_stories.outputs.skip_build != 'true'
+        uses: actions/upload-pages-artifact@v3
+        with:
+          path: ./website/public
+
       - name: Deploy to GitHub Pages
         if: steps.check_stories.outputs.skip_build != 'true'
-        uses: peaceiris/actions-gh-pages@v4
-        with:
-          github_token: ${{ secrets.GITHUB_TOKEN }}
-          publish_dir: ./website/public
-          allow_empty_commit: false
-          force_orphan: true
+        uses: actions/deploy-pages@v4
 
       - name: No new stories - success
         if: steps.check_stories.outputs.skip_build == 'true'
