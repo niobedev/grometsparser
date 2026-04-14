@@ -33,44 +33,37 @@ jobs:
           git config user.name "Gromets Parser"
           git config user.email "parser@grometsplaza.net"
 
-      - name: Run quick sync
+      - name: Run quick sync and check result
         id: sync
         run: |
+          # Run quick sync and capture exit code
+          set +e
           python3 quick_sync.py
-          exitcode=$?
-          echo "exit_code=$exitcode" >> $GITHUB_OUTPUT
-          echo "Quick sync completed with exit code: $exitcode"
-        continue-on-error: true
-
-      - name: Check sync result
-        id: result
-        run: |
-          # Read exit code from the previous step output
-          exit_code=$(grep "exit_code=" "$GITHUB_OUTPUT" | cut -d= -f2 | tr -d '\n\r')
-          echo "DEBUG: Read exit_code='$exit_code'"
+          exit_code=$?
+          set -e
           
-          if [ -z "$exit_code" ]; then
-            echo "new_stories=error" >> $GITHUB_OUTPUT
-            echo "✗ Could not read exit code from quick_sync.py"
-            exit 1
-          fi
+          echo "Quick sync completed with exit code: $exit_code"
           
+          # Set outputs for this step
+          echo "exit_code=$exit_code" >> $GITHUB_OUTPUT
+          
+          # Determine status based on exit code
           if [ "$exit_code" = "1" ]; then
             echo "new_stories=true" >> $GITHUB_OUTPUT
-            echo "✓ New stories found (exit code: $exit_code)"
+            echo "✓ New stories found"
           elif [ "$exit_code" = "0" ]; then
             echo "new_stories=false" >> $GITHUB_OUTPUT
-            echo "✓ No new stories (exit code: $exit_code)"
+            echo "✓ No new stories"
           else
             echo "new_stories=error" >> $GITHUB_OUTPUT
-            echo "✗ Sync error: unexpected exit code $exit_code"
+            echo "✗ Sync error: unexpected exit code: $exit_code"
             exit 1
           fi
 
       - name: Check if new stories were found
         id: check_stories
         run: |
-          new_stories=$(cat $GITHUB_OUTPUT | grep "new_stories=" | cut -d= -f2)
+          new_stories=$(grep "new_stories=" $GITHUB_OUTPUT | cut -d= -f2)
           echo "New stories status: $new_stories"
           if [ "$new_stories" = "false" ]; then
             echo "No new stories to process - skipping build"
