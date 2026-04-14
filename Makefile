@@ -1,4 +1,5 @@
-.PHONY: download convert convert-force build clean all detect fix-broken serve docker-build docker-run docker-run-build sync quick-sync delete-story
+-include .env
+.PHONY: download convert convert-force build clean all detect fix-broken serve docker-build docker-run sync quick-sync delete-story
 
 PYTHON = python3
 PIP = pip3
@@ -70,7 +71,7 @@ docker-run:
 		-e GITHUB_TOKEN=$(GITHUB_TOKEN) \
 		-v $(PWD):/app \
 		$(DOCKER_IMAGE) \
-		/bin/bash -c "git fetch && git pull && python3 sync.py"
+		/bin/bash -c "git config user.name 'Gromets Parser' && git config user.email 'parser@grometsplaza.net' && git remote set-url origin https://$(GITHUB_TOKEN)@github.com/niobedev/grometsparser.git && git fetch && git pull && python3 sync.py && git remote set-url origin https://github.com/niobedev/grometsparser.git"
 
 docker-run-quick:
 	@echo "Running quick sync in Docker..."
@@ -78,15 +79,9 @@ docker-run-quick:
 		-e GITHUB_TOKEN=$(GITHUB_TOKEN) \
 		-v $(PWD):/app \
 		$(DOCKER_IMAGE) \
-		/bin/bash -c "git fetch && git pull && python3 quick_sync.py"
+		/bin/bash -c "git config user.name 'Gromets Parser' && git config user.email 'parser@grometsplaza.net' && git remote set-url origin https://$(GITHUB_TOKEN)@github.com/niobedev/grometsparser.git && git fetch && git pull && python3 quick_sync.py && git remote set-url origin https://github.com/niobedev/grometsparser.git"
 
-docker-run-build:
-	@echo "Running sync and build in Docker..."
-	docker run --rm \
-		-e GITHUB_TOKEN=$(GITHUB_TOKEN) \
-		-v $(PWD):/app \
-		$(DOCKER_IMAGE) \
-		/bin/bash sync_and_build.sh
+
 
 
 

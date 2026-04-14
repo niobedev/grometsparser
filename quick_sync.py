@@ -184,7 +184,7 @@ def main():
 
         rc, stdout, stderr = run_command(f'git commit -m "{commit_msg}"')
 
-        if rc == 0 and "nothing to commit" not in stderr:
+        if rc == 0:
             print("Changes committed.")
 
             print("Pushing to origin...")

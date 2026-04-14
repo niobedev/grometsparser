@@ -48,6 +48,23 @@ git submodule update --init --recursive
 make venv
 ```
 
+### 3. Environment Variables
+
+Create a `.env` file in the project root (you can copy `.env.example` as a template):
+
+```bash
+# Copy the example file
+cp .env.example .env
+
+# Edit .env with your GitHub token
+# Get your token from: https://github.com/settings/tokens
+# The token needs push access to this repository
+```
+
+The `.env` file is automatically loaded by the Makefile. For Docker commands, you can either:
+- Use the `.env` file (recommended for local development)
+- Pass `GITHUB_TOKEN` as an environment variable (recommended for CI/CD)
+
 ## ⚙️ Usage Workflow
 
 The project is designed to be managed via `make` commands and supports a two-tier sync approach:
@@ -117,6 +134,7 @@ The project includes a Docker container for automated daily sync and deployment.
 - **Docker**
 - **GitHub CLI** (`gh`) or GitHub personal access token (for private images)
 - **GitHub personal access token** with push access to the repository (for automated commits)
+- The Docker container comes pre-configured with git user settings for automated commits
 
 ### Building the Image
 
@@ -134,27 +152,30 @@ The image will be available at:
 
 ### Running the Container
 
-The project directory is mounted into the container at `/app`. Your GitHub token should be provided as an environment variable to allow git commits:
+The project directory is mounted into the container at `/app`. Your GitHub token should be provided as an environment variable to allow git commits.
 
-#### Quick Sync (Hourly - Recommended)
-
-This will check only the "Updates" section for recent stories, download any new ones, convert to markdown, and commit changes to git:
+**Option 1: Using .env file (Recommended for local development)**
 
 ```bash
-# Run quick sync with git commits
+# Create .env file with your GitHub token
+echo "GITHUB_TOKEN=your_github_token_here" > .env
+
+# Use make commands (they automatically load .env)
+make docker-run-quick    # Quick sync (hourly)
+make docker-run          # Full sync (weekly)
+```
+
+**Option 2: Passing GITHUB_TOKEN directly**
+
+```bash
+# Quick sync (hourly recommended)
 docker run --rm \
   -e GITHUB_TOKEN=your_github_token \
   -v $(pwd):/app \
   ghcr.io/niobedev/grometsparser:latest \
   python3 quick_sync.py
-```
 
-#### Full Sync (Weekly)
-
-This will perform a complete scan of all story sites, download all new stories, convert to markdown, and commit changes to git:
-
-```bash
-# Run full sync with git commits
+# Full sync (weekly recommended)
 docker run --rm \
   -e GITHUB_TOKEN=your_github_token \
   -v $(pwd):/app \
@@ -194,38 +215,60 @@ crontab -e
 
 # Quick sync - runs every hour at minute 5
 5 * * * * cd /path/to/your/repository && docker run --rm \
-  -e GITHUB_TOKEN=your_github_token \
-  -v $(pwd):/app \
+  --env-file /path/to/your/repository/.env \
+  -v /path/to/your/repository:/app \
   ghcr.io/niobedev/grometsparser:latest \
   python3 quick_sync.py >> /var/log/gromets-quick-sync.log 2>&1
 
 # Full sync - runs every Sunday at 2 AM
 0 2 * * 0 cd /path/to/your/repository && docker run --rm \
-  -e GITHUB_TOKEN=your_github_token \
-  -v $(pwd):/app \
+  --env-file /path/to/your/repository/.env \
+  -v /path/to/your/repository:/app \
   ghcr.io/niobedev/grometsparser:latest \
   python3 sync.py >> /var/log/gromets-full-sync.log 2>&1
 ```
 
 ### Manual Docker Run Examples
 
+For local development, you can use the `.env` file or pass `GITHUB_TOKEN` directly:
+
 ```bash
-# Quick sync with git commits (hourly recommended)
+# Using .env file (recommended)
+docker run --rm \
+  --env-file .env \
+  -v $(pwd):/app \
+  ghcr.io/niobedev/grometsparser:latest \
+  python3 quick_sync.py
+
+# Passing GITHUB_TOKEN directly
 docker run --rm \
   -e GITHUB_TOKEN=your_github_token \
   -v $(pwd):/app \
   ghcr.io/niobedev/grometsparser:latest \
   python3 quick_sync.py
+```
 
-# Full sync with git commits (weekly recommended)
+For full sync:
+
+```bash
+# Using .env file (recommended)
+docker run --rm \
+  --env-file .env \
+  -v $(pwd):/app \
+  ghcr.io/niobedev/grometsparser:latest \
+  python3 sync.py
+
+# Passing GITHUB_TOKEN directly
 docker run --rm \
   -e GITHUB_TOKEN=your_github_token \
   -v $(pwd):/app \
   ghcr.io/niobedev/grometsparser:latest \
   python3 sync.py
+```
 
+Other operations:
 
-
+```bash
 # Simple sync and build without git
 docker run --rm \
   -v $(pwd):/app \
@@ -234,7 +277,7 @@ docker run --rm \
 
 # Run with retry of previously failed URLs
 docker run --rm \
-  -e GITHUB_TOKEN=your_github_token \
+  --env-file .env \
   -v $(pwd):/app \
   ghcr.io/niobedev/grometsparser:latest \
   python3 download_stories.py --retry-failed
@@ -249,9 +292,9 @@ The `quick_sync.py` script provides an efficient hourly workflow:
 2. **Parse Updates Section**: Extracts recent stories from the "Updates" section
 3. **Check Existing Stories**: Uses MD5 hashing to identify new stories
 4. **Download New Stories**: Only downloads stories not already in database
-5. **Convert to Markdown**: Converts new stories to website format
-6. **Git Commit**: Commits new stories with descriptive message
-7. **Cleanup**: Restores original story_urls.json
+5. **Update URL List**: Adds new story URLs to `story_urls.json` (preserving existing URLs)
+6. **Convert to Markdown**: Converts new stories to website format
+7. **Git Commit**: Commits new stories and updated `story_urls.json` with descriptive message
 
 #### Full Sync Script (`sync.py`)
 The `sync.py` script provides a complete weekly workflow:

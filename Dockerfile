@@ -20,6 +20,10 @@ RUN mkdir -p /root/.ssh && \
     echo "  StrictHostKeyChecking no" >> /root/.ssh/config && \
     echo "  UserKnownHostsFile /dev/null" >> /root/.ssh/config
 
+# Configure git for automated commits
+RUN git config --global user.name "Gromets Parser" && \
+    git config --global user.email "parser@grometsplaza.net"
+
 COPY requirements.txt .
 RUN pip install --no-cache-dir -r requirements.txt
 
