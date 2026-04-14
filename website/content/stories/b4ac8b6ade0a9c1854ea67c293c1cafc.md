@@ -1,0 +1,72 @@
+---
+original_url: https://grometsplaza.net/spandex/storieslz/spandexmaidsbirthdaysurprise.html
+subcategory: Maid-bot Stories
+title: Spandex Maids' Birthday Surprise
+authors:
+- The Spandex Maid
+tags:
+- FF/m
+- chast
+- darlex
+- sleepsack
+- cocoon
+- bond
+- gag
+- tease
+- torment
+- clothespins
+- denial
+- oral
+- climax
+- cons
+- X
+date: 2011-12-05 00:00:00
+---
+
+This story was an entry into the 2011 Winter Fetish Story Contest
+
+The room is dark. Here I am trapped in a black Darlex sleepsack unable to move. A metal chastity cage restricts my penis as a vibrating butt plug pulsates away in my ass. My moans are muffled by the ball gag strapped in my mouth. The only sounds are the timer ticking away and giggling from my wife and her girlfriend in the other room. What a way to spend a birthday!
+
+It all started two weeks ago, I had locked myself in a metal chastity cage and left the key for my wife Vicki to find. I left her a small note saying I wanted a special birthday present. As before, during the week she would text me little teases. Most of them were her thoughts on where she should hide the key, what spandex outfit I would be wearing, or what I would have to do to get the key. The first week went fine. The occasional teases kept me straining in the chastity cage often.
+
+On the weekend she invited her girlfriend Liz over for some drinking and talking. After a few drinks the conversation turned towards my fetishes. My wife explained how my birthday was next week and how I was locked in a chastity cage. Liz asked if she could see it. I lowered my pants and they examined my predicament. Vicki explained how I like to be dressed in spandex and then tied up and teased. Liz found it interesting that I would allow myself to be tied and teased like that. She mentioned that if she tied me up that she would leave me tied up for a long time. I told her that Vicki has tried to tie me up and leave me but I also find a way to get free. Liz said I would not be able to get free if she tied me up. So being the smart ass I am, I told her I would bet she cannot tie me up to where I could not get free in an hour and she could only use rope.
+
+She laughed and said “I accept and if I could not get free, she would get the key to the chastity cage and decide what I would need to do to get it back.”
+
+I told her if I was able to get free, then I would get to tie her up. My wife laughed and said to be careful or I may be locked up for a while. I said I would have no problems winning. Vicki said I shouldn’t be so confident. I told her I would let the two of them tie me up and when I win I could tie both of them. She agreed.
+
+As the week went on I received the teasing texts from my wife as usual. On Wednesday I started receiving texts from Liz. She said that when she wins the key, I would have to come over to her place dressed up in one of my spandex outfits and clean. If I did not do a good job, then I would have to come back the next week and do it again. Once I get her place all cleaned properly I would get the key back.
+
+It was finally Friday! My birthday had arrived. The excitement of what was to happen tonight was causing quite a strain in the chastity cage all day long. When I arrived home Vicki wished me a happy birthday and she then grabbed my crotch and asked if I was ready to be locked for a long time. I told her I wasn’t worried. We sat down and had a nice dinner. After dinner Liz arrived and asked if I was ready to be her maid. I laughed and said we’ll see.
+
+I was led into the bedroom and told to strip. My wife handed me a pair of shiny tights with a crotch cut out and told me to put them on. Then she told me to turn around and bend over. She said in order to make it challenging I had to wear a vibrating butt plug. The butt plug was slowly inserted into me and the tights were pulled back up. I was told to stand up and turn around. As soon as I did Liz turned on the wireless remote and the butt plug pulsated to life. This caused me to strain in my cage. Liz turned it off and then said I need to be blindfolded. This was to make sure I could not see how the knots were being tied. I agreed. I was then told to sit down.
+
+My feetwere lifted and I felt something slid over my feet. I felt the cool silky spandex starting to slide up my legs. I asked what it was and was told it is a special spandex dress and to be quiet. As they slid it up to my knees I was told to stand up. They then continued to work the spandex up. I could feel the tightness squeezing my legs together. Once they got to my waist I was told to put my arms into the sleeves. By the time they got to my elbows I realized I could not move my arms. Vicki said I was talking too much. She pinched my nipple hard and as I yelled out a ball gag was pushed into my mouth and buckled behind my head.
+
+They continued pulling the spandex up. They then pulled it over my shoulders and then I heard a zipper. As the zipper moved up I could feel the thick spandex tighten around my body. My blindfold was removed was told to have a look at my spandex outfit. My body was encased in a spandex cocoon. Vicki said it was actually something called Darlex made by a company called Winter Fetish. It is spandex and rubber blend. I tried to speak but the ball gag muffled anything I wanted to say. Liz then said it was time to tie me up.
+
+I was pushed onto the bed and a rope was tied around my ankles. The other end was then attached to the foot of the bed. Next a long piece of rope was wrapped around the bed and my chest. I was now tied down and unable to move or even wiggle. Liz then leaned over and said I will look so good dressed in spandex maid outfit and heels cleaning the outside of her windows tomorrow. The reality of it was starting to settle in. I tried to move but could not. Vicki then set a cooking timer for 60 minutes and placed it next to the bed. She said time is ticking, we will see you in an hour. They both laughed and started heading out the door. Liz stopped and turned towards me. She said to have fun. She then turned on the remote for the butt plug and tossed it onto the bed. The lights were turned off and the door was closed.
+
+So here I am waiting for the timer to end and unable to move. Being cocooned tightly, 60 minutes seemed like a lot longer time. My muscles ached slightly from trying to wiggle free. My penis was aching under the strain of the cage and my ass was still buzzing strong. I could feel my pre-cum dripping down thighs. Suddenly the time gave out a loud “DING”. I heard them coming to the room. The door was opened and the lights were turned on. They both looked and me and laughed.
+
+"What’s wrong? Why are you not free yet?" Vicki turned to remote to the butt plug off. They both sat on the bed and kept teasing me about my situation.
+
+Liz said “See I told you I would win. Now where is my prize?”
+
+Vicki then pulled a key out of her pocket and handed it to Liz. She held it in front of my face and said “Take a look at it, It may be a while before you see it again.” They laughed. She put the key in her pocket.
+
+Vicki started to untie the rope across my chest and Liz removed the one around my ankles. Liz then started to unzip the spandex cocoon but Vicki stopped her. She said “Wait a minute, you got the key but I want to have my fun as well” Vicki then explained to Liz that the zippers can be adjusted. She then adjusted the zippers so that she could pull out my chastity cage. She began to rub and tease my caged penis. Liz commented on how large and tight my testicles had become. Vicki said that happens as they fill up. Then Vicki said that they were having too much fun playing cards and drinking while I was struggling. Liz then said to hold on and she would be right back.
+
+Liz returned with the cards and some fresh beers. She said there is no reason to stop now. Vicki said she had an idea. She reached under the bed and pulled out a gym bag. Liz asked what it was. Vicki told her it is my bag of toys. As they went through the bag, Liz pulled out a bag of clothespins. Ooh I have an idea for these. She divided the clothes pins in half. Next she took a piece of rope and tied it to the tip of my cage and the other end to my gag. She said that they were going to play poker and that my balls were the pot. As they bet, they would attach clothes pins to them. Then the winner of the hand gets to take them off. Vicki said that sounds like fun!
+
+The game started and each one put a clothes pin on me for an opening bet. Vicki decided that at the end of the hand the butt plug would be turned on while they clothespins were removed. After a few hands Liz noticed I had a lot of pre-cum dripping out. She then took a small shot glass and placed in under the head of the cage. She said we will play until it is filled. They were having a lot of fun. Sometimes they would bluff each other just to get the pot bigger. My balls were getting very tender. Liz then said it looks like this will be the last hand as the shot glass seems to be almost full. She dealt out the last hand. Both started betting like crazy. Before they knew it they were running out of places to put the clothes pins. Vicki then said, “I am all in! She managed to get one more clothes pin on but had one left. She then said the “all in” sign was to put the last clothes pin on my nipple. Liz followed and put one on my other.
+
+Vicki won! She began to pull the pins off slowly. Once all the clothes pins were off she could see how red and sensitive my balls were. She grabbed an ice cube and started rubbing it all over my balls. Liz untied the rope from the gag to the cage. Vicki then grabbed the shot glass and said “you look thirsty” She loosened the ball gag and told me to drink it all. I was then told to stick my tongue out and clean the glass. Liz grabbed the vibrating wand and told Vicki that since she won, she gets the prize. Liz told Vicki to sit on my face. Liz then grabbed my caged penis and started to tease it with the wand. I was then told to lick my wife to orgasm. The butt plug was then turned back on. The sensations from the vibrators, the tightness of my spandex cocoon, and my wife grinding herself onto my tongue was maddening. As her climax built I could feel her pushing down harder and harder onto my face. I tried to get my tongue as deep as I could into her. She suddenly exploded in a strong orgasm.
+
+My wife got up and cleaned herself off. The vibrators were turned off and they both left the room. A few moments later they came back into the room and cleaned up. I was then moved off the bed onto the floor. My caged penis was tucked back into the cocoon and it was zippered shut again. Liz came over and said that it was late and she had to get going. She said she would see me tomorrow morning at 10am dressed and ready to clean. Vicki laughed and said I will probably enjoy it. I asked if I was going to be released. Vicki reminded me how much I like to sleep in spandex and since this was called a sleep sack. She said that is how I will sleep tonight. She said if I make any noise that I would be gagged. They left the room and I heard Liz say good night. A few moments later Vicki came into the room. She put on her night shirt and turned the lights off. She then said “Happy Birthday Honey, Good Night I love you”. She reached over and turned on her noise machine. She then said to get some sleep, tomorrow may be a long day. She giggled, switched on the remote for the butt plug, and closed her eyes to go to sleep. This was definitely a birthday to remember and it probably isn’t over yet.
+
+END
+
+(to be continued)
+
+The Spandex Maid.

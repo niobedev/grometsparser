@@ -1,0 +1,229 @@
+---
+original_url: https://www.selfbound.net/storiesek/engineer.html
+subcategory: Selfbound Stories
+title: An Engineer’s Approach to Selfbondage
+authors:
+- Techster
+tags:
+- Sbm
+- stocks
+- gag
+- stuck
+- caught
+- F/m
+- bdsm
+- spank
+- cons/reluct
+- X
+---
+
+Since a child I have always been fascinated by
+bondage. Due to the fact that my wife of the past 30 plus years doesn't
+have similar fantasies I decided to give self bondage a try. After exploring
+Gromet's website and the gallery I knew I could be more creative.
+I had to approach everything as if it were one of my engineering projects
+at work.
+
+**Self Bondage: A Mechanical Engineer's Approach**
+
+I don't know why, but ever since being tied to
+a tree in a game of cowboys and indians the subject of bondage interested
+me. Just because I am older and married does not mean those thoughts go
+away, as matter of fact they only get stronger over the years.
+
+The biggest problem I faced was my wife while
+being great sexually was not about to "experiment" with bondage or BDSM
+in any form. After exploring Gromet's website and the SoHo gallery run
+by "helpless" I decided that self bondage was the way to go.
+
+I decided to design around the "melting Ice Timer"
+since it was virtually failsafe.
+
+I wrote out the goals of my device just as I would
+any engineering project:
+
+ease of self bondage
+total restraint ( no movement possible)
+no leg movement
+genital mid-body/torso heavy restraint
+head and neck restraint
+functional gag that permitted breathing yet had
+drool drain tube
+automated closing
+ice timer failsafe locking mechanism
+standing position with buttocks sticking out
+reasonable comfort
+urine drain
+
+Armed with these design specs I broke out the
+Computer Aided Design program and began measuring myself starting from
+my feet:
+
+the length of my feet
+the diameter of my ankles
+maximum comfortable spreader bar length (I found 28 inches to
+be the perfect workable length)
+the diameter of my penile shaft between the balls
+and my body
+the diameter of my penis when flaccid or soft
+the distance when standing flat footed in bare
+feet between the soles of my feet and my shoulders (I wanted the headstock
+to rest firmly against my shoulders preventing upward movement)
+the diameter of my neck
+the diameter of my wrists
+the maximum opening between my front teeth for
+the gag
+alternative gag- maximum diameter ball that could
+fit in my mouth
+
+Having developed the design specs I began drawing
+I started with 5 pieces of 1 by 3 inch varnished Oak that were 24 inches
+long and were screwed to the studs of my workshop. The location could be neatly hidden by my big
+rolling tool chest when not in use. Located 6 inches off the centerline to the right
+and left were the 2 upright columns of 2 by 8 inch varnished Oak. This
+would be attachment point for the footstock, the genital restraint and
+the headstock.
+
+The end result was a set of wall mounted stocks
+located behind where a rolling toolbox is normally located in my workshop. The foot stocks, genital stock and head stock
+are attached to a pair of 2 by 6 inch uprights. The uprights in turn are notched out and bolted
+to four 2 by 8inch crossbraces that are attached with heavy wood screws
+to the main studs of the house.
+
+When I use the stocks I placed a small chair
+behind them. That way when I sit down I can put my feet in the lower
+stocks. The lower set of stocks-spreader are triggered by weight and my
+ankles are trapped by the "V" shaped cut-outs in the moveable section,
+the inner section is also "v" shaped. In order to release them I must sit
+on the chair since it is my weight on the bottom of these stocks keeps
+them locked as long as I am in the upper stocks which held both wrists
+and my neck. The "V" for the foot stock are 28 inches apart so they also
+serve as a spreader bar and insure that I am completely helpless and full
+exposed.
+
+The genital stock is mounted on the uprights at
+the correct level and extended outward so I am mad to stand with buttocks
+outward when it is closed.. When I experiment with this rig I decided to
+keep it simple so the lower "V" shaped cutout is attached to the uprights,
+while the upper part, and inverted "V" is in routed grooves so that I can
+place my balls and penis in the lower element and let the upper unit slide
+down. To in sure the escape- proof inegrity of this restraint I weighted
+the sliding element with a pound of lead solder. Unless I reach down and
+pull it upward I cannot move. Attached to the inside of the genital stock
+is a piece of 1 1/2 inch piece of ribbed bilge pump tubing in case I must
+urinate It drains into the floor drain in my workshop. My penis must be
+lubricated and forced into the tubing with is attached to the stock by
+small chains.
+
+There is a tee fitting in the urine drain that
+receives the input from the drool drain, an epoxy covered depression with
+a small tube that drains the drool coming from my gagged mouth.
+
+The upper stock is a wooden structure. The inner
+section is two pieces of 3/4 by 4 inch epoxy sealed Oak. It has a pair
+of blinders that prevent me from looking in any direction except straight
+ahead at the wall there is also a piece of 1\2 inch oak dowel stock
+which has a foam rubber ball that serves as a gag. The gag ball has
+a hole drilled through the center with a 1/2 inch plastic tube so I can
+breathe .
+
+After several uncomfortable experiments I got
+the wrist and neck cutouts just right. They now have a foam liner. The
+right end is hinged and a spring closes the left end. A tooth picks keep the locking pin up until the
+outer section snaps into place against a oak stop. A small piece of wood
+keeps the stock open until my neck and both wrists are in place. When I
+am ready to place myself in bondage I simply knock the wood block out with
+my left wrist, the stock slams shut against the stop, knocks out the toothpick
+that holds the locking pin up and I am trapped in standing bondage, my
+wrists in the headstock, my genitals clamped securely and my ankles spread
+apart. Believe me there is no room for movement here!
+
+I machined the heavy steel locking pin with deep
+thick grooves. To use it I simply place it in a bowl standing with grooves
+down in the freezer and fill the bowl with water. When the water melts
+the pin drops and I will be free.
+
+My first experiment was much more of a success
+than I could have dreamed. I violated one of the cardinal rules of self-bondage
+and did not dry-run or test everything before actually using it. My error was that I did not test to see how long
+the ice would last. I used an 8 ounce tapered cocktail glass as my
+mold and set the pin up about and inch from the bottom on an ice cube.
+
+Final test:
+
+I had chosen the day after Thanksgiving since
+my wife had to work all day. Right after she left for work I started. I
+had looked at my watch it was 8:04 am
+
+I ran out to the workshop, stripped, set my feet
+into the footstocks, my balls and penis into the genital stock. I started
+to get a little anxious, but I committed, placed my neck and both
+wrists in the head stock and knocked out the wood block that kept
+the stock from closing. I tried to struggle but being restrained by both
+ankles, my genitals, the wrists and the neck and was in very, very heavy
+self-bondage.
+
+No movement at all, none permitted up or down
+as the head stock rested frimly against my shoulders. From side to side
+was likewise impossible.
+
+The first hour or two were boring as I tried to
+move but could not. I heard a neighbor mowing lawn and tried to shout for
+help, but the gag worked too well. I simply drooled down the drain as I
+tried to call out.
+
+I was almost a permanent fixture on the wall standing
+there nude, securely restrained with my buttocks sticking out.
+
+Then things got interesting as I had an erotic
+day dream and the genital stocks and the urine drain tube reminded me just
+how secure they were.
+
+I must have fallen asleep and when I awoke it
+was dark out. I panicked and struggled. Suddenly I heard the door open.
+It was my wife who switched on the light saw me and remarked, "What a clever
+gadget! I wish I'd known about it. Here's what you get for not sharing."
+
+I heard her fiddling with my clothing that was
+on the chair. Then I felt my belt across my buttocks.
+
+She chuckled. "Hey this is great! I can't see
+your face or hear your voice, I can do anything and not feel guilty." More
+belt blows landed.
+
+I attempted to struggle but the increasing pressure
+on my penis and balls let me know that that was not the way to go.
+
+Then she laughed, "Do you know what, in our 30
+years of marriage I have never spanked you. Let me know when to stop!"
+
+She laughed again knowing I could not respond. I tried to speak out but
+due to the gag could not. I just stood there helplessly restrained as her
+small hand landed blow after blow. My buttocks felt like they were on fire.
+Then the endorphines kicked in and I started eagerly awaiting each blow.
+As soon as she realized that I was no longer struggling she stopped.
+
+Then it happened , the ice had finally melted.
+The pin dropped and I swung the headstock clear. I quickly dropped my hands
+and released the genital stock. I sat down on the chair and pulled my feet out
+of the foot stock.. I stood up as the soreness of my buttocks started to
+sting.
+
+I looked over at my wife and laughed," I guess
+I'll eat dinner standing up tonight!"
+
+She inspected the stocks. "Why didn't I notice
+these before?"
+
+I explained that I had just finished them the
+previous week and they were hidden by my rolling toolbox.
+
+She had only one thing to say, "That is a neat
+rig, but it has one problem."
+
+"What's that?" I inquired.
+
+"The upper section is not adjustable, How am
+I supposed to use it?"
+
+2001

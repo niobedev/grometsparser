@@ -1,0 +1,224 @@
+---
+original_url: https://www.boundstories.net/storiesek/kens_birthday_gift.html
+subcategory: Bound Stories
+title: Ken's Birthday Gift
+authors:
+- Jackrabbit
+tags:
+- M/f
+- MF/m
+- M+/f
+- packaged
+- box
+- doll
+- bond
+- rope
+- cuffs
+- susp
+- cuckold
+- pet
+- kennel
+- oral
+- sex
+- group
+- cons
+- X
+date: 2001-05-06 00:00:00
+---
+
+story continues from "[Cuckold](../storiesad/cuckold.html)"
+
+Ken, Deb and I were good friends and we sometimes found some crazy
+things to do together as a result. Ken’s birthday was coming up and he
+was dumped by a short-term girlfriend he had about a week before and his
+mood was one of "nobody loves me". Deb, my girlfriend, and I did
+not think he would kill himself or anything like that, but we hurt because
+he was hurt. I’m not sure how the idea formed but we decided Ken needed
+a special birthday gift to cheer him up.
+
+We threw a few ideas out and Deb
+suggested that she be his special birthday gift, if I did not mind. She
+told me that she thinks Ken believes I am upset because of my getting abused
+and her getting screwed by him on that camping trip (see [cuckold](https://boundstories.net/storiesad/cuckold.html)).
+I told her every time I think of it I get hard, although not as big as
+Ken.
+
+Deb said, "I know".
+
+I then reminded Deb of the time we were in KMART and Ken saw a
+dark haired Barbie doll and said that it looked like her. Deb was very
+flattered and we bought it for Ken, as a joke gift. I told Deb what I was
+thinking and she liked it and got the things we needed that night.
+
+Mostly Deb, and I, worked on the surprise all week. I had the job of
+getting Ken to his cabin on Friday night and planned to leave him there
+to play with his present all weekend. I took Ken out to eat and told him
+I had a surprise for him waiting at his cabin. He wanted to know about
+Deb and I told him she had something she could not get out of, but that
+she approved of his gift. I also told Ken I was not upset about the camping
+trip, in fact every time the subject came up, I got very hot.
+
+When we got to the cabin the lights were on and Deb’s car was there
+waiting. Ken could not get inside fast enough!
+
+Once inside he found Deb in a life size homemade Barbie Doll box, leaning
+upright against one of the beams. We made the box out of a box for pool
+toys and covered the front with plastic wrap with air holes in the side.
+Ken said, "You guys made my day", but wanted to know why we did this etc...
+
+I told Ken it was my intention to leave him here to play with his new toy
+for the weekend. He said he had a better idea, and told me to go out to
+his truck and strip and put my stuff into the back. And while I was there
+to get a leather bag that is in the back. I did. Ken made me kneel with
+my back to the other beam and cuffed my wrists and ankles around the beam
+with chain.
+
+Ken went over to the box and opened it up to find Deb dressed mostly
+like Ken’s Barbie doll, make up and hair perfect, short white dress, and
+matching very high heels. Ken also noticed Deb was tied with rope around
+her ankles, middle, and under her arms just like the real doll is held
+into the real box. When Deb tied herself into the box just before we walked
+in she had the rope wrapped around the beam so she would not accidentally
+knock over the box. If she wanted to she could get out, but she did not
+want to, she was looking forward to being Ken’s playtoy.
+
+Ken asked Deb
+what the deal was and she told him that for the weekend she was his talking
+Barbie doll. Ken asked what she could say and do. Deb told him she could
+say only positive things, you know "that sounds like fun" etc... And she
+could do anything he could think of. Then Ken asked what Barbie thought
+of keeping that guy over there chained up all weekend.
+
+Barbie said, "That sounds like fun!"
+
+Ken untied Barbie from the box and wanted to know how to get her out
+of her dress. The back of the dress was held together with Velcro, Deb
+did this herself and thought it was a realistic touch, so she told Ken
+just to pull and it would tear off. Ken did and it did, to reveal a perfectly
+cleanly shaved Barbie, just like the real one! I did not know Deb was going
+to do that and I completely forgot that dolls generally don’t wear bras
+and panties.
+
+Ken put a leather cuff on each of Barbie’s wrists and threw two ropes
+over the cross beam right in front of me. Barbie was pulled up by her wrists
+until she could just touch the floor in the high heels she was still wearing
+and he tied off the rope. Ken attacked her perfect 36d chest that looked
+even better with her arms stretched over her head. Next he stripped and
+then went down on her and she screamed with her first orgasm. All this
+happened about six feet in front of me, and I should have been feeling
+anything but horny watching my best friend use my girlfriend, but I loved
+the show!
+
+Next Ken got up and picked Barbie’s legs up and spread them wide and
+asked Barbie if she wanted to get it good now. Barbie said she would love
+too. Ken worked his huge cock between her legs, easier this time because
+she had been stretched out by him before. Barbie wrapped her legs around
+Ken and they humped and pumped for a long time before both of them came
+at what appeared to be the same time. If the cabin was not deep in the
+woods the neighbors would have heard her scream and called the cops. Barbie
+was still wrapped around Ken’s waist as he untied the cuffs from the rope
+and took her to bed where I got to hear them making love all night long.
+
+In the morning Barbie and Ken got up and showered and I was still awake
+from last night because it was impossible for me to sleep kneeling and
+bound as I was. Ken untied me and told me if I promised to behave he would
+fix it so I could get some sleep. I told him I would but that I was hungry.
+He said he would bring me back something to eat and a surprise, as he and
+Barbie were going out for breakfast. I was left handcuffed behind my back
+and my legs were cuffed together and I fell asleep on the floor on the
+blanket that they left for me.
+
+When they went out Barbie was only wearing
+her breakaway dress and high heels as she did not bring anything else to
+wear. She was not dressed indecent but she would get attention.
+
+I woke up some time later to find myself in a strange bondage set up
+that I will try to explain: I had a leather belt on with loops on each
+side, leather cuffs on all four arms and legs, the wrist cuffs were attached
+to each other with about one foot of slack, the ankle cuffs were attached
+in the same way, the wrists were also attached to the belt so I could not
+raise my arms above my shoulders, and my legs were attached to the belt
+on each side so I could not bend my knee past a 90 degree angle and not
+stand up.
+
+Ken and Deb, who was Barbie for the weekend just looked down
+at me and laughed. Ken said, "First lets agree on a safe word between us
+if our play ever gets too rough we use this word and everybody stops. We
+all agreed. ""Next if someone uses that word and a majority of those present
+decide later that whoever used the word should not have, that person will
+be subject to whatever the group decides is a fair punishment. We all agreed.
+
+Barbie told me, "I have some good news and some bad news. The good news
+is Ken and I have decided to get a dog, the bad news is that I was the
+dog".
+
+Ken told me that is why I was bound like I was and Barbie put my new
+collar on me. I started to protest and tried to get up and Ken said, "This
+is my only warning that I was to act like a dog the rest of the weekend,
+or else!. "
+
+I started to say or else what but before I could finish Barbie
+caught my bare ass about five times with a thick leather belt, and it hurt.
+She told me dogs only bark and whimper and scratch at the door to go out.
+I thought I would play along and avoid any more whippings and walked on
+all four "legs" to the kitchen and whimpered as I was very hungry. Barbie
+got the idea and pointed to two bowls on the floor. One had water and one
+had dog food, I barked and shook my head and received five more smacks
+on my fully exposed ass. Then I decided I would make the best of being
+a dog and ate the food. It was not half bad!
+
+It was then that I realized how bad this could get, what if I had to
+poop before the weekend was over? I scratched at the door and went out
+to pee and managed to do that without making a mess on myself. I never
+realized what the world looked like from all fours before, I could look
+up Barbie’s dress and see her box, I found myself looking at everybody’s
+feet, and I never noticed the old doghouse in the back yard of Ken’s cabin.
+I forgot to mention the dog run my collar was hooked to, to prevent me
+from crawling away no doubt.
+
+Just then I heard the phone ring and Ken got it and told whoever that
+he would see them in ten minutes, and that he had a surprise to show them.
+Ken had Barbie get back into her box and this time he tied her up so she
+could not possibly escape. He also reminded her that she could not say
+no to anything he wanted. It was getting dark and I heard a truck pull
+up and I hid in the dog house and watched what was going on like a good
+watchdog. Three men got out of the truck and from the way Ken greeted them
+I gathered they worked together. I crawled to the window and watched what
+would happen. Ken had a sheet over the Barbie box and he told his friends
+to check out what his friend got him for his birthday, and pulled the sheet
+off.
+
+At first his friends did not know what to make of Barbie because her
+eyes were closed and she did not move a muscle inside the box. One of them
+asked if it was a blow up sex doll. Ken told him he was half right and
+he should check her out. His friend opened the box and saw the rope around
+Barbie’s wrists and ankles and he touched her and she was warm and Barbie’s
+eyes popped open. I did not know what Barbie was thinking until I heard
+what she said to the guy, "Hi I’m Barbie, Do you want to play?"
+
+After all the who is she’s, and she sure is pretty’s, and all of that
+Ken asked then if they would like to share his birthday gift, or talk all
+night long. They decided they wanted to play with Barbie.
+
+They untied her
+from the box and carried her to the table and when they put her down to
+strip Barbie ran as fast as she could for the front door. Nobody expected
+that and Ken tried to grab her and only managed to tear her breakaway dress
+off, but not before he saw the playful smile on her face. She wanted this
+to be challenging for the men. I crawled and hid as fast as I could in
+the dog house just as I saw the men chasing my nude girlfriend toward the
+dog house. The men caught her and carried her struggling nude body back
+into the house and threw her on the large oak table. Barbie was quickly
+tied to the table spread eagle and very tight.
+
+Her chest was still heaving when Ken finally got back inside and he
+asked who caught her first? One man said, "I did" and Ken said, "Good you
+get her first."
+
+I was back at the window in time to watch him push his fat
+cock into her as she was still winded from her nude run around the yard.
+She heaved and her chest swung back and forth with each thrust and she
+was pulling hard at her bonds. Another cock was offered to her open panting
+mouth and she attacked it. She was definitely having the time of her life.
+All four men used her like that for hours and for the first time I saw
+Deb/Barbie worn out.

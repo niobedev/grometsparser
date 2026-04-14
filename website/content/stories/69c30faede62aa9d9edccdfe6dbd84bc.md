@@ -1,0 +1,661 @@
+---
+original_url: https://www.boundstories.net/storiessz/three_steps.html
+subcategory: Bound Stories
+title: Three Steps
+authors:
+- Dark Marcy
+tags:
+- MF+/f
+- naked
+- bond
+- boots
+- chain
+- corset
+- armbinder
+- bit gag
+- ponygirl
+- toys
+- insert
+- climax
+- denial
+- cons
+- X
+---
+
+**Part One**
+
+Adam’s Range Rover crunched
+around in a wide arc on the gravel driveway and came to a halt with its
+passenger door facing the wide gatehouse of a large brick building.
+The gatehouse itself had a wide arch in the centre which led into the courtyard
+of what was clearly a large stable-block, though one which might seem,
+on closer inspection, to be rather excessively clean, free from hay, and
+conspicuously short on horses.
+
+Jennifer was largely unaware
+of these minor details. All she could think about was that she had
+been asked to strip herself free of all clothing before Adam would drive
+another foot down the driveway some ten minutes earlier. Her dress,
+her stockings, her bra and panties all lay haphazardly upon the back seat
+of the Range Rover. Now that she was naked, she was suddenly very
+aware of her skin, the brief draft from the air conditioning directed toward
+her, the warmth on her right arm from the sun, the slight clamminess of
+the leather seat against her bare ass.
+
+She looked across at Adam,
+only to catch him staring back at her, they both grinned nervously and
+she looked away, but he broke the tension by leaning across the centre
+console and placing a light, brief kiss on her turned cheek.
+
+“Sure?” he said.
+
+“No.” she replied,
+and enjoyed the brief worried look on his face, “I sit in cars naked for
+the kicks.”
+
+He grinned and looked her
+up and down, “You’ll be getting your kicks this weekend, I promise you
+that.”
+
+He popped his door open and
+trotted around the front of the car to open hers. His strong, square face
+was illuminated by an almost boyish look of anticipation as he handed her
+down to the driveway. Jennifer gave a brief gasp as her toes sank into
+the gravel, the small stones were cold, but dry; and they were round. Hmm,
+expensive. Jennifer thought.
+
+“This way, Jen.” Called
+Adam, opening a heavy door in the inner wall of the gatehouse.
+
+“You have to go in here
+without me,” he explained, “its part of their safety measures.”
+
+“You’ll be out here waiting
+for me.” She said.
+
+“I’ll be waiting for you.”
+He grinned darkly, and swung his free arm to gesture her inside.
+
+She was still standing next
+to the Range Rover, having not moved since he first helped her down onto
+the gravel. The few short steps into the room took her from the gravel;
+pliant, cool and dry; onto the warm flat cobbles of the courtyard, and
+over cold tiles that made her arch her feet upwards and walk on tiptoe
+into the room itself. Her eyes slowly adjusted to the lesser light in the
+room, and she was aware of the door swinging closed behind her. The
+last noise she heard of the outside world was a soft tweet as Adam set
+the Range Rover’s alarm. The iron latch squeaked into place, and
+the room came more clearly to view.
+
+“Good afternoon, Jennifer”
+said a woman seated behind a desk in the far corner of the room, maybe
+ten feet from where Jennifer stood. The woman was dressed in a simple black
+trouser suit, she was blond and maybe fifty, but carried her age exceptionally
+well; she looked steadily across the desk at Jennifer. In the presence
+of this calm, controlled, and above all, dressed woman, Jennifer was sharply
+aware of her own nakedness, and moved her hands together over her mons.
+In her disadvantaged state, eye contact became very difficult, and Jennifer
+found herself staring at the floor, her dark brown hair flopped forward
+over her breasts, and the slight tickling sensation as the ends brushed
+her nipples sent a brief tremor of pleasure through her in spite of herself.
+
+The woman noticed her awkward
+position. “I shouldn’t stand on ceremony whilst you’re here, Jennifer.
+We shall all be seeing a great deal more of that before you leave, I should
+imagine.” Jennifer relaxed a little, and stood up straighter.
+
+“That’s a good girl.” Said
+the woman, brightening suddenly. Her accent was definitely upper
+class, with the suggestion of being used to giving orders, and having them
+obeyed. “First things first, then.” She said somewhat loudly. At
+the back of the room a door opened and a man stepped in carrying a pair
+of heeled shoes and a length of chain. “Ian here will just introduce
+you to our little establishment.” Ian pulled a chair into the room with
+him and placed it squarely in the centre of the floor. “If you’d
+just sit down, please, miss.” He said quietly.
+
+Jennifer paused and looked
+towards the woman, who raised her eyebrows and flicked her eyes helpfully
+at the chair. Jennifer stepped over to the chair and sat down.
+
+“Left foot first, please.”
+Said Ian, and Jennifer complied, placing her left foot in his outstretched
+right hand.
+
+The shoe, such as it was,
+was made of black leather, and fashioned into an ankle boot. It slipped
+onto her size six foot beautifully, Adam had clearly given them her measurements
+beforehand. At the ankle of the boot was a thick strap, and a piece
+of metal projected from the outside edge of the shoe. On the back of the
+boot, above what was roughly a five inch heel, was a small metal loop,
+hanging down from a smaller metal fixing on the back of the boot. Ian laced
+the boot up rather tightly, then set about closing the strap. The
+metal piece protruded through the strap once it was wrapped snugly around
+her ankle, completely enclosing the top three crosses of the lace and the
+knot itself, and a small padlock was placed through the metal piece, securing
+the strap in place. The boot was a snug fit, and wherever Jennifer twisted
+her ankle, she could feel the strap firmly holding her foot in the boot.
+The padlock clicked from side to side in its hasp as she turned her foot.
+
+“Right foot, please.” Said
+Ian, cutting into her train of thoughts. She snapped to attention,
+and immediately placed her right foot in his waiting hand. He tied
+the laces and strapped her foot into the boot once more, taking another
+padlock from his pocket and snapping it into place. Finally, he took
+a twelve inch length of chain and two more padlocks and snapped the chain
+onto each of the metal rings on the back of her shoes. Without another
+word, Ian stood, turned, and left the room, closing the door behind him.
+Jennifer sat on the chair, her ankles chained together, the chain resting
+gently upon the floor at its centre.
+
+“Stand please, and step in
+front of my desk.” Said the woman.
+
+The chain rattled and pulled
+taught as Jennifer stood. She would have preferred a little more
+slack, particularly if she had to walk far, but the twelve or so feet to
+the woman’s desk, increased though they were from six quick strides to
+a half minute or so of clinking her chains, scraping her heels and the
+occasional wobble as the both conspired to trip her up, proved to be no
+great obstacle. Adam had often had her shuffling around the house
+in much more restrictive conditions, she thought, and at least now she
+had her arms to balance. A brief smile flicked across her face as
+she considered the occasions when she had not. The heels were a little
+high for her, and she could feel the tendons in the back of her legs protesting
+under the task of balancing, even in that short hobble from the chair to
+the desk.
+
+She stood before the desk,
+naked, chained, and horny as hell. Jennifer could feel her heart
+racing and the giddy, excited feeling of that first drop in a roller coaster
+or the fast mountain bend. With an effort of will, she focused on
+the woman behind the desk, who, coincidentally, had stood and was walking
+around to stand in front of her.
+
+“Jennifer.” She said, “Here
+at the Manor house, we have a safety policy. We only want women and
+men here who willingly take part in our activities for their own enjoyment,
+and that of their partners. During your initiation here, you will
+be given three attempts to refuse, we give this first interview without
+your partner that you might be free from any pressure he might exert upon
+you. This is, therefore, your first opportunity to refuse and leave.
+On my desk are the keys to the padlocks on your ankles, so I must ask you
+now, Jennifer, are you aware that you are here to become what is commonly
+referred to as a ponygirl?”
+
+At this first, verbal confirmation,
+Jennifer felt a thrill of anticipation.
+
+“Yes.” She replied.
+
+“You are aware,” continued
+the woman, “that during your time here you will be chained, bitted and
+likely whipped and required to perform training rituals associated with
+your complete subservience to your partner and his elected trainers, who
+include all the staff at this establishment. You will be a ponygirl,
+prevented from speaking, kept in a stall, and your only means of release
+will be in your partner’s hands. This is the end of your first refusal,
+do you accept our terms, and do you consent to continue?”
+
+Jennifer shifted her weight
+and moved her right foot out to the end of its chain. The clink as
+the chain taughtened, the grasp of the leather around her ankle, it all
+excited and aroused her, she wanted this.
+
+“Yes.” She almost gasped.
+The woman nodded, and her gaze moved from Jennifer to something over the
+girl’s shoulder. Jennifer turned to see Adam standing behind her
+in a circle of daylight coming from the doorway.
+
+“This way.” He said, there
+was a stern edge to his voice, it was the voice he used during their games.
+Commanding, authoritative, it was almost coincidence that she wanted to
+obey as well. Adam stepped away into the daylight, and Jennifer clinked
+after him, twelve inches at time, unsteady on the cobbles in her high heels.
+He walked quickly away across the courtyard and disappeared into a stable
+door diagonally opposite her. She made slow progress in her chains, and
+when once she fell it took her the longest time to lever herself up onto
+the heels again and continue her journey. In the ten or so minutes
+it took her to cross the twenty yards across the stable yard, she had time
+to observe the old red brick from which the stables were constructed, and
+above her a small clock tower stood upon the back wall of the stables,
+over which she could see the second floor of the Manor House in which she
+assumed Adam would be staying over the weekend. She looked over to
+her left, to the slowly approaching stable door. My home. She thought.
+For the next couple of nights, at least.
+
+In a few more steps she was
+through the door, and into what would ordinarily be called a tack room.
+The floor was concrete, neat and smooth; there were thick wooden pillars
+dotted here and there to support the ceiling, and each one had a set of
+tether points set about five feet above the ground, just what you might
+expect in any stable. The equipment on the walls, however, was unlike
+that you might normally find in a working stable. It was all clean
+and new, most of it was black or red, and if you looked carefully, all
+of it had been designed to lock on.
+
+Adam sat on a wooden chair
+about eight feet away on her right. He had turned his chair backwards,
+and straddled the chair with his elbows resting on the back and his arms
+folded. In his slightly protruding right hand, a bunch of densely
+nested keys was turning over and over, making light chinking noises as
+it did so. Further back in the stable were two men and a woman, they were
+standing in a loose triangle around a pile of equipment similar to that
+on the walls, she could make out lots of metal fixings, lengths of chain,
+buckles and hasps, but no specific details. Next to the pile of equipment
+was a smaller cluster of brass padlocks, identical to those currently holding
+the boots on her feet, and all opened.
+
+“Step forward, please.”
+Said the taller of the two men. He held a slightly larger padlock
+in his hand. “Stand over the D-ring, if you please.”
+
+Jennifer trotted forward
+until she was over the metal fixing he had indicated, it was concreted
+into the floor, and once she was close enough, the man took the padlock
+and slipped it though the D-ring and around the chain between her ankles.
+It was more or less pulled taught, and her movement was limited to a few
+inches in either direction, dependent upon what slack she could provide
+by moving one foot closer to the D-ring that the other might move away.
+The woman came forward and turned her around by the shoulders. Taking
+a comb from her pocket, she calmly combed Jennifer’s hair into a ponytail,
+quite high near the top of her head, and secured it with a black rubber
+band. Adam was now behind her, and she twisted her head around to look
+at him, taking a couple of tiny steps to turn. He stared at her with
+unusual intensity, a look of both gratification and perhaps also gratitude
+upon his otherwise calm face.
+
+“Look forward.” This order
+came from the woman, who had lifted a large, torso shaped piece of leather
+and buckles from the pile on the floor. Jennifer turned to face this second
+woman, who was dressed like a groom if you ignored the high heels and the
+blouse showing off most of her breasts. “Lift your arms.” She ordered,
+and Jennifer did so.
+
+With a little more roughness
+than might have been necessary, the woman pulled the large leather garment
+over Jennifer’s head. Once it was arranged upon her, Jennifer was
+able to see that it was made of one piece, split at the back with buckles
+either side. There was nothing between the legs, and it fit closely
+over her shoulders and chest. In the front panel were two holes which
+allowed her ample breasts to protrude. She was allowed to arrange the suit
+around her so it sat more neatly on her shoulders and did not chafe against
+the sides of her breasts.
+
+On each shoulder of the garment
+was a D-ring, and circling the neck was a thick strap which the woman now
+fastened snugly around her throat. The first of the little brass
+padlocks from the pile on the floor went through a pair of holes in the
+buckle and snapped shut. The taller man stepped behind her and began fastening
+the long line of straps down her back. The garment gradually became
+a great deal tighter around her chest and waist, cinching the latter quite
+tightly. To Jennifer’s surprise, the man did not apply the padlocks
+to these buckles, but left them half fastened down the length of her back.
+
+He stayed behind her, and
+said, “Breathe out.”
+
+Puzzled, Jennifer did so,
+gently letting the breath out through her nose.
+
+“Further.” Said the man.
+
+Jennifer turned her head
+slightly to try and see the man, but caught a sharp look from the woman
+standing in front of her and thought better of it. Confused, she
+exhaled to her limit.
+
+“Hold it.” Said the man.
+
+With unusual dexterity, he
+rapidly re-fastened each of the buckles around her chest and waist, pulling
+the straps to their absolute limit before slipping the buckle closed.
+With her breath held out, the man ran down the buckles once, and then went
+back up them, re-tightening as he went.
+
+The leather of the garment…
+
+Garment? This is a
+corset. Thought Jennifer.
+
+The leather of the corset
+was pulled tight around her chest and waist, Jennifer’s breath came in
+short gasps at first, her chest unable to expand in the strict leather,
+but steadied as she realised that slow but shallow breaths were the only
+way to control her breathing, to get adequate air into her lungs and avoid
+hyperventilating. Her waist was cinched into an elegant hourglass
+shape by the corset. Jennifer wished she had a mirror.
+
+The woman passed the taller
+man a handful of padlocks, and he carefully snapped them onto the buckles
+down her back. Trapped. She thought. Her breath quickened as she
+considered her predicament, chained to the floor, and with an unforgiving
+corset buckled and locked onto her. She gasped for breath and her
+vision started to narrow, she swayed slightly.
+
+“Frightened? Or excited?”
+said the woman. She didn’t wait for her answer, but crouched down
+in front of Jennifer and looked between her legs, where the shaven expanse
+of her vagina glistened in its own juices. The woman looked up at Jennifer
+and smirked. “Excited, I’d say.”
+
+Jennifer heard a chuckle
+from behind her, it was Adam’s laugh. He knew she’d be enjoying this,
+and he was probably enjoying it just as much. She imagined how she
+must look, her figure given a new curve in the leather corset, her breasts
+heaving at every shortened breath. She imagined his massive erection,
+and the self-control he must be exerting just to keep himself in that seat;
+she pictured his fingers whitened around their grip on the back of the
+chair, desperate to grab her.
+
+“Put your arms behind you.”
+the woman’s voice cut through her haze of fantasy.
+
+Expecting some form of arm-binder,
+Jennifer put her arms as close together as they would go, palms together,
+but found her arms rearranged by confident hands so that the right hand
+was clasped around the left elbow and the left hand around the right, her
+arms forming a U-shape behind her back. In this position, she felt
+her forearms encircled in leather, and straps tightened around them.
+Two more thicker straps ran around her arms above each of her elbows, and
+these two in particular were tightly fastened close around her biceps.
+Once again she heard the clicking noises as padlocks were placed along
+the straps on her forearms and one on each of the bands around her biceps.
+She sensed the man step away from his handiwork, and felt that she ought
+to get the measure of this slightly irregular bondage. Her arms moved a
+little up and down at the shoulders, and would traverse very slightly from
+side to side, but the leather of her armbinder was stiff and unyielding,
+keeping her elbows crooked more or less at right-angles.
+
+The man stepped up to her
+back and ran a single leather strap through two eyelets positioned centrally,
+one above the other, on the back of her corset. This strap then ran
+around the device her arms were held in and was pulled tight, pressing
+her arms against the small of her back, it too was locked in place.
+There was barely any movement available to her arms now. The second man,
+who had stood quietly by up until this point, now stepped in front of her.
+
+“Jennifer, this is your
+second chance for refusal, and the last chance you have to refuse verbally
+and most certainly. You are halfway through our dressing process,
+you may not use your arms from here on in, and in the next stage you will
+lose your speech. The keys to all the locks on your garments are
+in the hands of your partner, and at this moment, but at no point after,
+he must surrender them to me to release you. So I ask you to confirm
+most certainly to me; first, that you wish to continue; and second, that
+you are in no degree of discomfort which you do not willingly accept.
+Jennifer, do you wish to go on?”
+
+He stared at her very carefully,
+and Jennifer was not sure whether this was merely his concern to obtain
+her consent or the fact that he had a helplessly bound woman standing in
+front of him, gasping provocatively short breaths. She tested her
+bonds, twisting gently this way and that to generate any slack, but none
+came, and the corset did not allow for much movement in any case.
+She flexed her arms against their bonds, and the leather creaked as it
+rubbed against itself, the padlocks clicked and rattled as they slid back
+and forth in their hasps. She moved her feet in tiny steps to the
+limit of their tether on the floor, listening to the chains rattle and
+clink, and feeling the unyielding resistance. A tremor verging on
+orgasm rippled through her as she felt and thought about all she was undertaking
+and experiencing. She turned to Adam, his face was pensive, waiting
+for her decision.
+
+“Yes, I want to go on.”
+She turned to Adam, and added, “Master.”
+
+He tried to look superior
+and dignified, but there is only so much one can do to restrain a smile.
+The second man nodded at her, smiled somewhat unusually, and walked away.
+The next thing she saw was the woman retrieving from the pile of oddments
+what looked like a large vibrator attached to a trio of leather straps.
+The woman inserted the vibrator deep inside her, and attached the buckles
+fore and aft to her corset, two at the front with a neat leather panel
+between them, and one behind, such that the whole contrivance was much
+like a thong. The locks were placed and closed. Jennifer squirmed
+a little at the feeling of invasion, first at the size of the object nestling
+in her vagina and, she thought she could feel, projecting somehow to touch
+her clitoris; and second at the person who had mechanically inserted it
+into her, apparently ignorant of her brief gasp of pleasure as the vibrator
+was thrust up inside her, rippling against the nerves of her sex.
+Jennifer bit her bottom lip and closed her eyes, she knew that at this
+moment, aroused and enervated as she was, the briefest hum from that vibrator
+would collapse her to the floor, and she had no way of stopping herself,
+let alone standing up again.
+
+When she opened her eyes,
+the woman was holding a small black device that looked for all the world
+like the button for a car alarm. Jennifer was anything other than green
+as far as bondage was concerned, and immediately recognised the remote
+to the radio-controlled vibrator currently locked inside her.
+
+“I don’t think I could…”
+was as far as she got before a powerful thrumming sensation burst from
+between her legs. Her muscles tensed against every one of her bonds,
+and she gasped to intake breath against the stricture of the corset.
+Each fettered muscle served to remind her of where she was, what she was
+doing, and how much she loved all of it. Waves of orgasm battered their
+way through her body, and she gasped ragged breaths against the quivering
+tide of sensation. Her legs trembled and gave way, despite her battle
+to make them support her weight, and she tumbled…
+
+Adam’s arm was around her
+in a moment, her nostrils filled with the scent of his aftershave, and
+with the scent of him. He help her upright, smiling gently as she
+looked up into his eyes. She could hear the chains between her ankles
+clinking against their tether on the floor as he lifted her slightly and
+placed her back upon her feet.
+
+“Better now?” he asked.
+
+She looked down at his right
+hand, where the button to the remote was clasped, apparently in the off
+position.
+
+“Yes…” another gasp, “Wow,
+I thought…”
+
+Another powerful vibration
+turned her legs to water, and she heaved for breath against the corset,
+but only briefly this time, the vibrations stopped as soon as they had
+begun. When she looked up at Adam this time, he had a grin on his face.
+
+“But more of that later.”
+He said, “if you’re good.”
+
+He stepped away from her
+once he was sure she could stand on her own two feet again, and looked
+over her shoulder.
+
+“Bit her.” He said
+peremptorily.
+
+From over her head came a
+thick leather bar that was pressed into her shocked and gaping mouth.
+Straps ran under her chin and around and over the back of her head.
+The ponytail that the woman had combed earlier fitted through a ring in
+the topmost strap. Jennifer felt the straps being tightened behind her
+head, but could see little thanks to two large blinkers which extended
+beside either eye, and kept her field of vision to a narrow band directly
+in front of her. The bit itself was perhaps an inch in diameter,
+maybe a little more, and was pivoted against a strap so that when one of
+the reigns to which it was attached was pulled, the bit would be drawn
+further into her mouth. Sitting in her mouth as it was, with no tension
+on the reigns, though slack, it wasn’t going to move anywhere, and the
+bit pressed gently against the corners of her mouth, drawing her lips back
+slightly to show the very edges of her neat white teeth. She found
+herself attempting to chew it and adjust its position with her tongue,
+all to little avail.
+
+I’ve seen horses doing this,
+she thought, it’s called ‘champing’. I don’t expect they enjoy it
+quite as much. There was a short series of clicks behind her as the final
+few padlocks were applied to the buckles securing her bit in place. Finally,
+the woman stepped into her field of view.
+
+“Jennifer, you have been
+bitted and restrained just as every ponygirl to step through our doors,
+all your bonds are locked onto you, and only your partner, Adam, has the
+keys.” A jingle on her right made her move her head around to look
+at him, he was twirling the diminutive bunch of keys around his finger.
+The woman continued, “Adam will now place the keys into a locker, to which
+only he has access.”
+
+Jennifer watched
+as Adam did just that.
+
+“If you wish to continue,
+and finalise your agreement with us, you must do two things. First,
+I want you to whinny. You should be unable to speak with the bit
+in your mouth, but you can communicate by whinnying. Should you need
+attention for any reason, simply whinny and a stable hand will fetch your
+Master here to attend to you. Can you whinny?”
+
+“Ehh.” Said Jennifer, the
+bit was just as much of a bar to legible speech as she had feared it might
+be.
+
+“Ehh, I aa ii-eee.” She
+tried again, and then harrumphed in frustration, her locks clinking as
+she shook herself.
+
+Jennifer took a deep breath,
+as much as the corset would allow.
+
+“EeeEee.” She whinnied.
+
+“Good.” Said the woman.
+“Finally, we are about to release you from you tether on the floor.
+When we do so, and to finalise your agreement to spend the weekend within
+the rules of our establishment, you must walk over to the locker and press
+it closed, do you understand?”
+
+“EeeEeeEee.” Jennifer smiled,
+pleased with herself at the better second effort she had made.
+
+You’re getting into this
+already.
+
+The taller man from earlier
+stepped forward and knelt down to unclasp the padlock chaining her to the
+floor. Timidly, Jennifer took a step forward. The twelve inch chain
+still held her ankles tight, and now her arms were secured behind her,
+balance became much more of an issue. At each short step she felt
+a thin leather strap tapping against the back of her thighs.
+
+They must be the reigns,
+she thought. My reigns.
+
+It was about ten steps to
+the locker, and she felt every one of them as the vibrator shifted inside
+her and brief involuntary muscle movements designed to balance her normal
+walking merely highlighted the fact that her arms were no longer of any
+use to her, sheathed in leather and strapped and locked behind her back
+as they were. The locker was directly in front of her. Carefully,
+ensuring her balance in the heels was maintained, she nudged the door closed
+with her nose, pressing her cheek gently against it to get a little more
+pressure to push it home. With a hollow metal clunk, it snapped closed.
+
+I’m in for the long haul
+now.
+
+Her reigns were lifted over
+her head until they ran out in front of her. She looked at Adam as
+he held her reigns, a stern but affectionate look on his face.
+
+“Come on.” He said, and
+led her over to a ring on one of the posts, where he looped her reigns
+round in a loose knot and stepped away out of her vision. Jennifer stared
+at the loose knot holding her to the tether point on the wall. It
+was such a feeble knot, if she had the use of just one hand, if her teeth
+could bite around it, she could undo it and walk away. The bit sat
+in her mouth, the last bar to her freedom. She could feel the saliva
+pooling in the bottom of her mouth, and the shallow breaths the corset
+forced her to take were of no help in preventing its build-up. She
+realised that she was panting, and that a thin line of drool was working
+its way down her chin.
+
+Jennifer took a step backwards,
+drawing her reigns taught, and the pivot on her bit lifted upwards, pressing
+the bit against the top of her mouth and forcing her head back. Her
+arms flexed involuntarily, and once again she could hear that delicious
+creak of immobile leather. She could hear quiet talking behind her, but
+Adam had tied her very close to the post, and moving her head around to
+look behind her was impossible. Her body quivered at every sensation,
+and she realised that she needed to come again.
+
+“EeeEeeEee” she called out
+to Adam, and he stepped back into her field of vision.
+
+“What is it?”
+
+“I – A- Ah.” She said around
+the bit.
+
+“Pardon.”
+
+Her lips narrowed
+over the bit to try and enunciate more clearly.
+
+“Wi – ray – ah.”
+
+Adam looked at her with
+a puckish grin. “You want me to turn your vibrator on?”
+
+“Eh.” She nodded vigorously.
+
+He lifted the remote button
+into her field of view. “Just a little press on this, hmm?”
+
+“Eh…leee.!”
+
+He took the remote, which
+had a small metal clip on the side, and fastened it to the left hand side
+of her bit.
+
+“I think I’ll just leave
+it there. That button is only for treats, and I don’t think you deserve
+a treat yet.”
+
+He reached down to her nipple,
+protruding from the corset and squeezed it tightly. Jennifer shook
+in her bonds and pulled back to the limit of her tether, trying to get
+away, but quickly reached her limit.
+
+“You do not ask for treats,
+I give them to you. Are we clear on that?” there was a harsh
+tone in his voice, but a glimmer in his eye that was anything but malice.
+
+“Mmm.”
+
+“Are we clear on that?”
+he twisted her nipple slightly.
+
+“EeeEeeEee.”
+
+“Hmm.” He gave a short smile,
+and then reached between her legs to press his hand against the bottom
+of her vibrator, thrusting it just a few millimetres further into her.
+The sensation was just enough to make her quiver with anticipation, but
+no more.
+
+She caught a scent of Adam’s
+aftershave, he had moved behind her, and his mouth was close to her ear,
+so close that she could feel the condensation from his breath. Tethered
+to the wall, she couldn’t turn around to see him. Her head twitched
+from side to side in spite of herself. His breath was hot against
+her neck.
+
+“Right, shall we begin the
+training?” he said.
+
+End of Part One.
+
+If you'd like to see more
+write to: darkmarcy@gmail.com
+
+05.08.02
+
+story continues in [**Three Steps 2**](three_steps2.html)
+
+o0o

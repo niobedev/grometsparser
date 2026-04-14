@@ -1,0 +1,232 @@
+---
+original_url: https://www.boundstories.net/storiessz/stable.html
+subcategory: Bound Stories
+title: The Stable
+authors:
+- kitn
+tags:
+- M/f
+- bondage
+- slave
+- cons
+- X
+date: 2003-02-05 00:00:00
+---
+
+8
+8
+**The Stable**
+**by kitn**
+Yet
+another of Kats Creations
+The
+Stable
+The day dawned bright, sunshine
+streaming through the window bathing her face in warmth.  Opening
+her eyes she rolls over and looks at the clock a smile lighting her face
+as she jumps up and stretches. "Today is the day,” she thought as she headed
+off to the shower.
+
+Entering her bedroom after
+her shower she begins rummaging for her Riding apparel when her phone begins
+to ring.  Rushing to answer the phone her greeting a clipped "Yes?"
+the voice on the other end easily identifiable she listens. "No Sir My
+riding lesson is this Morning" pausing "Yes Sir i will be home on time"
+another pause as she listens "Yes Sir .. Goodbye" skipping back to her
+room dons her riding gear and leaves her home a smile on her face.
+
+Arriving at the Stable her
+only thoughts those of her task at hand enters the barn unaware of being
+observed.
+
+Moving down the aisle stalls
+lining both sides she pauses occasionally to pat this horse or scratch
+that one finally arriving at the stall she had started out for.  The
+name plate on the stall reads Chippewa and inside is gorgeous pinto. 
+Opening the stall and crooning to Chip she brings him into the aisle and
+crossties him there while retrieving the grooming items she would need.
+
+Her observer grins as he
+watches the young woman cross tie the horse sits back on the bale of hay
+to watch her groom Chip for their ride.
+
+After currying Chip and brushing
+out his mane and tail she retrieved his tack.  Upon returning places
+the saddle upon his back crooning to him all the while little nonsense
+things more to soothe her than him.  Hearing a rustling sound she
+turns around hanging the bridle on a peg leaves chip with a small pat on
+his nose and goes to explore.
+
+Standing in the shadows not
+yet wishing to be found out he watches her movements become cautious but
+no less graceful.
+
+Not having found anything
+unusual she returns to the horse and releases the cross ties, bending his
+head to her level bridles him, lastly placing her riding hat upon her head
+exits the barn for her lesson.
+
+Emerging from the shadows
+he chuckles to himself and goes to inspect the cross ties.  Simple
+really he thinks each length of chain ending in a swivel clasp smiling
+he removes the leather cuffs from his bag and attaches one to each cross
+tie knowing she would be the only one entering the barn later.  Sidling
+back into the shadows resumes a position on the bales of hay so that he
+would remain unobserved until he chose to make his presence known. 
+Setting his bag beside him, he watches the entrance to the barn where he
+can see her in the field beyond practicing a seated trot.
+
+At the end of her allotted
+hour she dismounts and heads for the barn removing her hat along the way
+and wiping at the sweat on her brow.  Patting Chip on his nose walks
+to the cross ties she previously used stopping dead in her tracks as she
+notices the additions to the ties.  Swallowing she looks around cross
+tying Chip in the next undisturbed set after removing his bridle and placing
+his halter on, moves down the aisle stealthily looking for Him.  "Sir"
+she calls out rather nervously.
+
+Sitting on the bale of hay
+smiles into the shadows at her display of unease but remains where he is.
+
+Becoming more nervous she
+returns to the horse knowing her responsibilities to him, removing his
+saddle becoming more nervous as the time crept by.  Replacing the
+tack in the supply room, returns with a rag to dry his flank before releasing
+the ties and returning Chip to his stall.
+
+Watching her enter the stall
+he rises his time at hand and creeps down the aisle to stand behind the
+stall door her collar in hand.
+
+Feeding Chip the last of
+his carrots and crooning a few more words she exits the stall her back
+to the door as she reaches out to swing it shut.
+
+Stepping from behind the
+door to her back he reaches out with ease collaring her as she is startled
+into stillness. "Good afternoon Slave" he whispers in her ear having secured
+the collar with the small lock. "Good afternoon Sir" her unsteady reply.
+"Shut the door slave" she responded by obeying the command the small click
+audible in the stillness as her leash is attached "Walk this way Slave"
+he moves of in the direction of the modified cross ties. Head lowered she
+follows. Silence prevails though the occasional snort or stomping of an
+equine foot could be heard as he worked, cuffing first one wrist then the
+other before moving to the barn door shutting it against intrusion and
+bolting it.  The sound of the bolt sliding home startling her into
+looking up the aisle, watching him approach with a smile on his face.
+
+Retrieving his bag from the
+shadows kneels in front of her as he cuffs her ankles each in its turn
+then surprising her further by attaching the spreader bar spreading her
+legs to their limits.  Satisfied for the moment rises to walk around
+her.
+
+"Kelly, You do look wonderful
+in these pants" he reaches down for his bag "But I want to see you naked."
+and so saying proceeds to cut them from her body, pleased that she had
+not worn any underwear.  Standing there, her arms and legs spread
+taught he admires the view.  "Time to remove your blouse Kel" proceeding
+to cut that from her body as well leaving her chest covered only by her
+sports bra.  "Very nice indeed" he reaches out pinching her nipples
+wrenching a gasp of pain from her lips.
+
+"Be right back” He strides
+down the aisle to the tack room rummaging through the leather accessories
+to be had there.
+
+Secured to the cross ties
+as she was she inhaled deeply to still her trembling body listens to him
+in the tack room growing more apprehensive as time passes without his return. 
+"Master" she called out her grey eyes wide with fear of being caught here. 
+"Master where are you?" Chafing at her wrist cuffs trying in vain to release
+herself, working up a light sweat as she watches him emerge finally.
+
+In his hand a bridle with
+a small bit obvious to you a pony's bridle along with several old leather
+reins.  A broad smile splitting his face as he sees her gaze wander
+to the bridle.
+"You like it?" he chuckles
+stopping in front of her "I figure with one or two minor adjustments in
+the length of the leather we could have a nice bit gag" He runs the bit
+under the nearby faucet to clean off the dust.  She watches fearfully.
+
+Walking back to her commands
+"Open up Darlin" holding the bit in front of her mouth in much the same
+way she had earlier to Chip. Parting her lips reluctantly her teeth following
+he gently places the bit in her mouth, stepping around behind her makes
+the necessary adjustments in length once he is satisfied he steps around
+to view his creation.
+
+Running a length of the reins
+through his fingers watching her struggle against the bit, pleased that
+she is unable to remove it he takes a length of leather and approaches.
+
+Smiling at her bound and
+nearly naked body, he takes the discarded drying rag and blindfolds her.
+Stroking his hands over her body, he ties a length of the leather around
+her hips snugly before taking a length of cotton rope from his bag. Securing
+it to the rear of the leather around her hips, before tying a knot in it
+that would rest against her clit when pulled snugly up to tie off at the
+front of the "belt"
+
+Blinded by the rag and gagged
+by the bit she begins to squirm against the crotch rope as he stealthily
+moves around her silent as a cat, the stable covering up any noise he may
+have made.  Inhaling the strong scent of leather and horse she relaxes
+slightly. Noting her relaxing posture he reaches out and rips the sports
+bra from her chest causing her heart to beat faster her body to tense but
+again he leaves her till she thinks he is gone and relaxes again.
+
+Taking another of the leather
+lengths he begins slapping it against her legs, her boots nearly knee high
+protecting her calf but setting her body to trembling in anticipation of
+the strokes that were gaining height.  Stopping just short of striking
+her flesh instead throwing the ends of the leather around her shoulders
+to drape across her breasts.  Her nipples hardening at the touch of
+the leather he grasps the ends crossing them between her breasts and begins
+looping them tightly making them bulge against the leather.  Pausing
+in his tying leans forward to kiss her nipples one at a time making them
+harder and more erect before he clamps them.  Delighting in her moan
+her ties off the leather thereby securing her bulging breasts.
+
+Listening closely she hears
+him drag a chair over so he may sit and observe her bound body.  After
+what feels like an eternity he rises and retrieves her crop. "A beautiful
+piece of leather work" she flinches as she hears it whistle through the
+air.  The next five strokes however land precisely as they are aimed
+the inside of her thighs her ass cheeks, the fifth stroke landing squarely
+on her pussy causing the knot of the crotch strap to tighten against her
+clit.  An involuntary moan escapes her lips as his hands follow the
+welts left by the crop lovingly and gently. Her juices flow over the crotch
+rope soaking the cotton fiber.
+He moves to her chest pulling
+on the nipple clams before adding a weight to each one causing new spasms
+of pain to engulf her nipples. Before the pain subsides, he has removed
+the crotch rope and thrust up into her in one mighty stroke.
+
+Impaled as she was her whimpers
+of desire blending with her pain arches down as far as she is able to take
+more of her Master into her body causing her shoulders to pull painfully
+she matches him thrust for thrust till they both explode into an earth
+shattering climax.
+
+Chest heaving her head dropping
+to her shoulder she pants trying to catch her breath. He steps back admiring
+her heaving breasts and pulls her nipples once more before dressing himself. 
+Upon his return, he removes the leather from her waist replacing it with
+a more permanent chain.  After adjusting her crotch strap to his satisfaction,
+he removes the blindfold and the gag leaning forward to kiss her gently,
+massaging her aching jaw with care.  Moving lower he unwinds the leather
+binding her breasts leaving the nipple clamps on as he releases her ankles
+from the cuffs and the spreader bar allowing her to close her legs.
+
+Rising he kisses her once
+more before releasing her from the cross ties wiping her sweat dampened
+hair from her brow leans forward and inquires mildly "When is your next
+lesson?"  He hands her a bundle of clothing taken from her apartment
+and leaves her to dress while he packed up his cuffs.
+
+When she has finished dressing
+the only sign of their encounter the collar which he leaves on putting
+his arm about her waist they exit her head bowed slightly a small smile
+playing across her lips.

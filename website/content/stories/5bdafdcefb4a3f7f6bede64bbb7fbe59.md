@@ -1,0 +1,247 @@
+---
+original_url: https://www.dollstories.net/storiesek/familymaid2.html
+subcategory: Doll Stories
+title: 'The Family Maid 2: The Sister from Hell'
+authors:
+- Gromet
+tags:
+- F+/f
+- FM+/f
+- machine/f
+- latex
+- maid-bots
+- uniform
+- device
+- mind-control
+- program
+- F2maidbot
+- computer
+- pod
+- tubes
+- insert
+- servant
+- controlled
+- recharge
+- discovery
+- reveal
+- tease
+- torment
+- party
+- guests
+- forced
+- kiss
+- oral
+- lesbian
+- cons/reluct
+- X
+---
+
+(story continues from [**The Family Maid**](familymaid.html))
+
+**Part 2: The Sister from Hell**
+
+Later that day there was a noise from the front door, Stacy was the maid-bot assigned to answer the door. It was her older sister Elizabeth, Liz for short as she hated being called Elizabeth. She entered the house with a couple of her girlfriends, Jillian & Louisa, friends from the posh school she attended years ago, still just as snobby as Stacy remembered them being. They walked in disregarding the servant maid, noisily talking amongst themselves.
+
+“Get the bags maid,” Liz instructed Stacy. The maid-bot immediately obeyed the command; she again felt the same tingle throughout her body as she received from obeying her Mother/Mistress’s orders and acknowledged the instruction, curtseying as they walked past her.
+
+Andrea, the other maid bot assigned by the system to respond to the door welcomed them all. “Welcome Mistress Liz, pleased to see you and your guests Jill & Louise.” She also curtseyed as she spoke. The system knew not to call her Elizabeth and also knew her friends nicknames, preferred over their full names.
+
+“Thanks maid, where are my Mother and Father?” Liz asked Andrea.
+
+“Your Mother & Father left this morning to cruise around the Islands with Melinda & Hamish, they won’t be returning until late Sunday or early Monday at this stage.”
+
+“Great, we have the place to ourselves girls! Make yourselves at home.” Liz said.
+
+“Excellent”, they both replied, “let’s head out to the pool.”
+
+Andrea joined Stacy in bringing in the luggage, none of the girls it appeared seem to travel light, and each had two or three cases with them. Several trips up and down the stairs soon had their belongings in their assigned rooms. The girls by now were relaxing out by the pool, all clothing now gone, they all three lay about naked sunning themselves or swimming in the pool.
+
+Drinks were ordered and Stacy was assigned to that task by the system, being closest to the main kitchen at the time. Stacy brought out what was ordered from the fridge along with bowls of snacks, presenting them on the tray she headed outside to the pool area where the girls lay. Stacy looked immaculate in her latex uniform, the sun glistening of the deep shine of the latex.
+
+The drinks and snacks were served to both Jill & Louise without any problems; they took the drinks without a second glance. But when it came time for Stacy to serve Liz, Liz looked up straight into her face as Stacy served her. “Stacy?” Liz asked.
+
+“Stacy-bot, Mistress, how may I serve you?” Stacy responded automatically, hoping that Liz didn’t recognise her.
+
+“Stacy, that’s you in that maid outfit isn’t it?” Liz asked.
+
+“My designation is Stacy-bot, MB0-090-7641, Mistress.” Stacy said in her best maid-bot voice.
+
+“You playing your maid games again Stacy?” Liz responded, by now the other two had picked up on the fact that this maid may be Liz’s sister Stacy.
+
+“Bring me some snacks, maid.” said Jill.
+
+“And bring me some too, maid Stacy”. said Louise.
+
+“And we need more drinks too,” said Liz, “so hurry up maid and get them.”
+
+All three laughing as they looked at the maid scurry away to follow their orders. Stacy was deeply embarrassed inside, being discovered by her older sister was one thing but by those two bitches, her sisters friends was something else. The system realised what was happening with her emotions & feelings and took control of her body, Stacy could now only follow commands as she brought out more snacks and drinks.
+
+The girls thought this was all great fun, they always loved tormenting her, Stacy remembered well the times the girls would return during the school holidays and bully her, tease her and take great delight in ordering her about. They spent the rest of the day around the pool, Stacy was kept by their side to serve them as they wished, the hot sun made her heat up inside her latex outfit. It was a relief when they ordered her to get more food or drinks from the kitchen.
+
+They made her stand out in the full sun, until she felt dizzy from the heat, the girls uncaring for their maid plaything, well if she wants to be a maid she can damn well act like one, they reasoned. The system was monitoring her signs and detected that Stacy was beginning to suffer from heat stroke, the prolonged activity of carrying out their instructions and the heat that had built up inside her uniform was making Stacy feel ill, but she could not do anything about it.
+
+The system overrode her commands to stand where she was and told her to return to her charging pod immediately. Liz, Louise & Jill were disappointed when she was replaced by Andrea the maid, who informed them that there was a malfunction with the Stacy-bot unit and she would be returning to her charging station. When Liz heard this she was intrigued, leaving her friends outside by the pool, still giving orders to the maid-bot, though the fun now taken out of it now that Stacy had gone.
+
+Liz walked down the hallway and into the door where she knew that the maids were kept in, opening up the door she walked in, she was surprised to see her sister naked standing there in one of the charging pods, wires connected to her and tubes seemed to be running out of every hole. Stacy was oblivious to her sister Liz standing there looking at her, her mind now controlled by the system, she was in a state of hibernation, resting and recovering from the heat.
+
+“Stacy?” Liz asked, but got no response. “Damn I’m sure that it’s you in there, but seeing you plugged in like this makes me wonder if I was right. I know I’ll give Mum a call.”
+
+Liz left the room to contact her mother, “Mum,” she said when she picked up the phone.
+
+“Hi Liz, how are you?” Her Mother replied.
+
+“I’m fine Mum; in fact I’m at home but found that you’re away this weekend.” Liz said.
+
+“Yes we’re on a yacht going round the islands.” She replied, “What are you doing home? I thought you were away skiing or something this weekend.”
+
+“We decided not to bother this weekend; I don’t think there was much snow, so we decided to crash here this weekend.” Liz said.
+
+“Oh, well enjoy yourself. There’s plenty of food and drink, just don’t wreck the place!” her mother laughed.
+
+“No Mother, we won’t wreck the place,” irritated that her mother thought that well of her that she would do that, though from past experience that’s exactly what she used to do.
+
+“We should be home late Sunday,” her Mother said, “we can catch up then.”
+
+“Okay Mum,” Liz said.
+
+“Bye then, behave.” Her mother said.
+
+“Oh mum,” Liz interrupted, “You have a new maid-bot, and she looks a lot like Stacy.”
+
+“Oh! Yes…” her mother replied, “We had her made that way…” thinking quickly and using the same excuse she’d used before.
+
+“Mum, I think it’s Stacy playing maid again isn’t it?” Liz asked.
+
+“No… why would you think that…” Mother said, “Stacy is still away at college.” The nervous laugh nearly giving the game away.
+
+“Okay mum, I get it Stacy is ‘away’ at college and this ‘maid-bot’ just happens to look like my sister.” Liz responded. “I get your meaning mum, don’t worry about us, we’ll be fine.”
+
+“Please…” her mother pleaded, “be good…” The phone cut out as they rounded one of the far islands in the yacht. “Liz are you there?”
+
+Liz hung up the phone, now sure that the ‘maid-bot’ was her sister, who was ‘supposed’ to be away at college. “Have it your way mum.” Liz said to herself.
+
+She went back into the maids room to check on her sister again, Stacy was still plugged into the charging pod, Liz ran her hands over Stacy’s naked body, her flesh moving under her touch, “I knew it was you the moment you served me by the pool, great disguise and you always loved playing the maid!”
+
+Liz left her sister and went back out to join her friends, “Great news, I’ve just spoken to my Mother and they won’t be back this weekend, time to party!” Liz said as she threw her hands in the air.
+
+“Party, party, party…” the others chanted in response.
+
+“Andrea make arrangements for 30 guests, we need food and drink for them all and we also need to get the place jazzed up for our party, what do you think girls.” Liz asked.
+
+“WE need to decorate…” they both responded.
+
+“Okay Andrea we need party lights out around the pool, the main lounge decorated with party lights and ribbons, the main dining room needs to have the table set for the food to await our guests, finger foods mostly, better get cracking,” Liz commanded, “OH and wake that maid-bot Stacy up too, we need her to get things done around here!”
+
+“As you command Mistress.” Andrea responded, then relaying all of the information back to the main frame computer to get all of the maids into action.
+
+Stacy awoke in her pod, her tubes still connected, ‘Strange, I don’t seem to have been here long!’ she thought. She received many commands from the system, Stacy didn’t take long to get ready, though still suffering the after effects of the heat stroke, and she continued getting dressed before heading off to the kitchen to prepare the food.
+
+Several trays of food were prepared, dips and other items were brought out, chicken wings in several different sauces, sausages and rolls were baked, cooked and prepared, the table was full of food by the time the guest were due to arrive. Stacy was very busy in the kitchen, if it wasn’t for the system running her body Stacy would not have been able to function as well and prepare everything on time.
+
+By early evening the guests that Liz, Jill & Louise had invited began to arrive, each was greeted at the door by Andrea, the other maids too busy getting everything else ready in such a short time. Liz had checked on her sister in the kitchen several times, amazed at the way she was working preparing the food, she couldn’t understand how she had become one of the maids, but she was determined to take advantage of it.
+
+Ever since Stacy was a little girl, she could always count on her older sister to be mean to her, she always looked down at her, especially when Stacy played at being a maid. She would say to their Mother that it was embarrassing for her friends to see her sister dressed and acting like a maid around the house. Their mother always placated her by telling her to play with her sister, which she did by using her as her personal run-around, fetching this and that, even more so when her friends were over too, each trying to meaner than the last.
+
+The party was in full swing, the guest enjoying the food and drink supplied, ordering the maid-bots around, more food kept coming out of the kitchen, several more exotic foods were ordered and it seemed to be a contest as to who could order the most extreme items, before the kitchen either ran out of food or the system couldn’t find what they ordered. The food when prepared was hardly touched; it was just left there for the maids to clear away.
+
+Soon they grew bored of this game and the crowd moved out to the pool area, several people were in the water, other playing around or dancing to the music. Everyone seemed to be having a great time, Stacy was now ordered by the system out to the pool area to serve drinks, take away left over food and dirty plates, there seemed to be more than enough food prepared for an army, so Stacy didn’t have to cook anymore, her services were needed elsewhere.
+
+Several of the guys, now under the influence of the copious amounts of alcohol they had consumed were getting a bit too frisky, more than one had reached under Stacy’s skirt to feel her up. Each time she couldn’t stop them, just smile and curtsey, but deep down she was hugely embarrassed by their actions. The guests got rowdier as the evening wore on, thankfully the nearest neighbour was some distance away, and they weren’t home anyway.
+
+Liz was nowhere to be seen, she’d been keeping an eye on Stacy, but now she had been distracted by one of the other females at the party and was face deep exploring the other girl’s nether regions, Liz had always preferred girls to boys, but would take a guy to bed if the desire was there. Jill was dancing topless to the music, much to the delight of several guys, whilst Louise had decided to see if Stacy was really the maid underneath.
+
+Calling Stacy over Louise asked her to show her to her bedroom, she said that she was feeling a bit tired and wanted to lie down. Stacy dutifully led Louise away from the main party and up the stairs to Louise’s assigned room, the system telling Stacy which one. Once inside the room Louise asked Stacy to fold down the bed and get it ready for her.
+
+Louise disappeared into the bathroom, when she returned Stacy was bending over folding the sheets back, her rear revealed in the latex underwear. “My, that looks delicious!” purred Louise, still looking at Stacy’s bottom. Stacy continued and folded back the sheets as instructed, the delightful feeling she received when she followed commands still sending tingles throughout her body. Not realising what Louise had spoken about.
+
+Louise walked over to Stacy, who stood there waiting further instructions. “My you do look good in that latex maids outfit Stacy.” Her hands moving to reach up to Stacy’s shoulders, Louise’s body coming into contact with Stacy’s.
+
+“Thank you Mistress,” Stacy replied, “this is the standard uniform for all maids in this house.”
+
+“Really,” said Louise, “I wonder which fetish pervert thought that up!”
+
+“I don’t know Mistress, shall I ask the system?” Stacy replied.
+
+“No it’s not important,” Louise replied, “what is important is what you look like underneath that uniform, is it all circuits and wiring or flesh and bones, shall we see?”
+
+“I’m yours to command, Mistress.” Stacy responded, her thoughts now confused as to what Louise was saying.
+
+“I command you to strip off!” Louise slurred, the drink affecting her speech.
+
+“As you command.” Was all Stacy was allowed to answer; anything else was blocked by the server. She began to remove her dress.
+
+“Slowly, entertain me.” Louise commanded Stacy.
+
+The tingle went through Stacy’s body, culminating in her sex, she felt hot but didn’t know why. Stacy continued to remove her clothing, the system now directing her to move to some unheard of music, all for the entertainment of Louise.
+
+Louise meanwhile was beaming, her smile as she watched this little brat that she had hated since she was small, as she stripped on her commands, Louise’s eyes following her every move, drinking in Stacy’s body as she revealed herself now out of the maids dress.
+
+“Come here maid,” Louise ordered, sending more tingles to Stacy’s sex. Louise planted a kiss on Stacy’s lips, but Stacy didn’t respond, she had not been ordered to but Louise didn’t realise this. “You little bitch kiss me!” she said angrily.
+
+Stacy followed the command and kissed Louise as directed, “As you command Mistress.”
+
+“That’s better, now get on your knees,” Louise ordered. Stacy followed her direction to the letter and waited on her knees for her next command.
+
+“Now put your lips to my sex and kiss me!” Louise ordered again.
+
+Stacy would have been repulsed by this if she wasn’t under the direct control of the system, her programming made her obey the commands given, no matter how gross she would have found them to be, she was just another maid-bot. Though she’d never heard of maid-bots being used like this, she didn’t doubt they were, why would they be made to look female after all.
+
+Stacy put her lips to Louise’s pussy, her smell hitting the senses of Stacy’s nose, she’d never smelt another female before, so didn’t know if they were any different to her own musk. Now she had found out, her lips made contact with the outer folds of Louise’s sex, once she had kissed it as directed she stopped.
+
+Louise was getting frustrated by Stacy’s inaction on pleasuring her, “Kiss me again, put your tongue inside me, and make me scream.”
+
+The order was confusing to Stacy, how was she supposed to make her scream, but she put her tongue out and inserted as far as it could go inside Louise’s sex, then just stopped, tongue still in place, she had followed her commands, but didn’t know what to do next. Stacy sought help from the main frame on how to make Louise scream with her tongue inserted in her. Several images flooded Stacy’s mind, various Sapphic love positions were relayed to her. Then it hit her, biting seem to be the top answer.
+
+Stacy bit the outer folds of Louise’s sex; causing her to scream out, happy that she’d carried out her commands she continued to bite down on the tender folds of Louise’s sex. The noise came through the wall into the bedroom occupied by Liz, now satiated that she had cum several times with this new female, the glow of their sex still drifting thru them both, when an almighty scream could be heard in the next bedroom.
+
+Quickly rushing into the bedroom and switching on the lights, she saw Louise on the bed in agony, her hand beating at Stacy’s forehead trying to get her to stop. Liz rushed over, looking at the scene with her younger sister nearly naked between the legs of her friend. “Stop!” Liz commanded. Immediately Stacy complied, Louise curled up into a ball on the bed, “You’re fucking sister is mental, she bit me and wouldn’t let go!” Louise cried out.
+
+“Did you order her to go down on you?” Liz asked.
+
+Louise, a bit embarrassed at being suddenly discovered using her friends younger sister, stammered, “Y.. Yes, I did.”
+
+“What did you say to her?” Liz questioned.
+
+“I said for her to go down on me, kiss me and…”
+
+“And what?” Liz asked.
+
+“I don’t recall…” Louise, still holding her bruised genitals, replied.
+
+“Stacy-bot, what did she order you to do?” Liz commanded Stacy
+
+“She said to kiss her, put my tongue inside her and make her scream, Mistress.” Stacy replied, in her maid tone.
+
+“And did you do that?” Liz asked.
+
+“Yes Mistress, I kissed her and then put my tongue inside her as directed, but didn’t know how to make her scream as requested, so sought out the information from the system.”
+
+“And what did the system tell you to do.” Laz asked bemused.
+
+“The system said that the best chance at making her scream, would be to bite her, I have been downloaded with several Sapphic love positions and techniques.” Stacy responded.
+
+She turned to her friend Louise on the bed, “So you’d thought that you get her to make love to you, not realising that she can only follow command prompts, if you’d said for her to make love to you, she may have had a better understanding of what was required of her. She is just a robot after all.”
+
+Turning to Stacy she said, “Go downstairs and return to your duties, clean up the mess they’ve made before you return to your station.”
+
+“Yes Mistress, as you command.” The tingle again reaching her sex, as she turned to head out the door to follow her commands.
+
+“You should have realised that she was just another maid-bot, she may look like Stacy, but she’s still away at college, that is just a maid-bot made to look like her.” Liz said to Louise.
+
+Louise still holding where she’d been bitten, looked downtrodden.
+
+“Let me have a closer look and see if there’s any permanent damage.” Liz said, as she moved her hands to part Louise’s thighs, her head getting closer to her injured sex.
+
+“Mmmm, no damage, just a little red, here let me kiss it better for you.” Liz purred and so did Louise.
+
+Stacy returned downstairs and began clearing away the mess created by the party guests, the crowd was thinning by now several had gone home, others had retired to the bedrooms and others simply passed out from too much drink. She and the other maid-bots made short work of the clearing up, the mess was dispatched to the kitchen or disposed of, broken glasses were catalogued and recorded for replacement, as well as any other damage.
+
+A couple of hours later the place looked clean and respectable again, though the guests sprawled out on lounges and the floor made it look untidy, they could wait until morning. Several of the maid-bots were running low on power so they returned back to their charging stations. Stacy soon followed them, hooking herself up to the machine as programmed, she was soon being recharged, her mind downloading updates and clearing other memories that she didn’t require anymore.
+
+
+
+30.10.17
+
+story continues in [**The Family Maid 3: Back to the Factory**](familymaid3.html)
+
+o0o

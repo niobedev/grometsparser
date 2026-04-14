@@ -1,0 +1,714 @@
+---
+original_url: https://grometsplaza.net/world/transformation/storieslr/the_mermaid3.html
+subcategory: Buried & Sinking
+title: The Mermaid
+authors:
+- Albarez9
+tags:
+- M/f
+- M+/f+
+- bodymod
+- transform
+- mermaid
+- slave
+- hum
+- mast
+- handjob
+- zipties
+- bond
+- oral
+- sex
+- sybian
+- machine
+- nc
+- XX
+date: 2022-05-12 00:00:00
+---
+
+### **Act 3 – Slave Games**
+
+The party started as the guests began to mingle and talk amongst themselves as they watched Sarah out on the island. Sarah for her part did as she was told by Robert, she smiled and waved and ensured her hefty breasts were on full display. Sarah watched from afar as the party progressed and grew worried as more and more alcohol was consumed. Sarah was instructed to swim over to the guests and pull herself out of the water. Sarah sat on the edge of the pool and put on her best fake smile, afraid of what will happen if she doesn’t comply.
+
+A man approached her, and Sarah recognized him immediately, he was a world-famous actor – Johnny Anderson! Sarah had a crush on him for as long as she could remember and now here, she was completely naked and helpless in front of him. Sarah blushed as he approached, she couldn’t believe her heartthrob was a creep as well, just like the rest of the men and women here. Sarah saw Robert give her a stern look, so Sarah pulled herself out of the water and knelt in front of Johnny. Mr. Anderson was just as handsome as Sarah remembered him being, with that jet black hair and strong jaw – she used to imagine that he would swoop her off her feet in her daydreams.
+
+“Your name's Sarah, right?” asked Johnny.
+
+“Ye… ye… yes, it is,” Sarah stammered. She was keenly aware of her nudeness. Johnny towered over her, and she was forced to stare up to make eye contact with him. He took a cigarette out of his pocket and lit it up. He blew a puff of smoke out of his mouth and Sarah got a whiff of tobacco.
+
+“Nice jugs you got there, how big are they?” asked Johnny nonchalantly. Sarah looked down at her seashell covered cans and back up at Johnny and blushed. She was suddenly aware of how much they were hurting her back.
+
+“They are O-cup breasts,” said Sarah sheepishly.
+
+“Shake them for me,” instructed Johnny.
+
+“Excuse me?” asked Sarah. She couldn’t believe her crush was a total dirtbag.
+
+“I said shake those massive knockers and let’s see them jiggle.”
+
+Sarah begrudgingly began to sway them back and forth and was embarrassed by them, they were bouncing and shaking uncontrollably. Johnny told her to do it faster and Sarah obliged, seriously wondering if her tits could give her a black eye. Johnny instructed her to stop, she could see a growing erection in his tight trousers. Sarah could feel herself getting hot and bothered, despite her predicament she still found Johnny extremely attractive.
+
+“Take off your nipple pasties,” Johnny commanded her.
+
+Sarah obliged and tried to remove the seashell from the left nipple only to find the glue had set. She had to rip it off and was met with a momentary sting of pain. She also ripped off the other seashell on the right nipple, leaving her bright red nipples exposed and standing proud on her heaving chest, as if they were announcing their arrival at the party.
+
+“Suck your index finger,” said Johnny.
+
+Sarah complied and began to suck her index finger confused about why she was doing it. She imagined she must have looked a comical site, her big tits gently swaying as she watched Mr. Anderson with a confused expression on her face as she sucked her index finger. Johnny pulled up a chair and sat down.
+
+“Now take your wet index finger and rub your nipple,” he instructed.
+
+Sarah complied and took her finger and started to rub her nipple, she left out an involuntary moan as her nipples were exponentially more sensitive than they had been when she had been a woman. Sarah blushed and looked up to see if Johnny had noticed and she was startled at the sight she saw before her: Johnny was sitting on the chair with his pants pulled down around his ankles and his penis exposed for everyone to see. His dick was bigger than Sarah thought it would be and she blushed even more.
+
+“Play with your nipples, you worthless whore,” Johnny told her.
+
+Sarah obliged and began to pull and tweak and rub her aching nipples. She was still surprised at their sensitivity. She began emitting moaning noises as her nipple-play continued. She watched as Johnny began stroking his cock.
+
+“Now play with your vagina as well, I was told you still have one.”
+
+And so, with a mixture of shame and excitement Sarah reached a hand down to her slit and inserted a finger and was immediately met with a wave of indescribable pleasure. She was mortified as she continued to rub her slit, she never imagined she would be masturbating in front of Johnny Anderson in a million years. She watched as he worked his cock, which provided material for her to continue to rub her slit and play with her nipples: it was a positive feedback situation between them. Sarah barely noticed a small crowd had formed around them watching the spectacle unfold between them.
+
+As Sarah reached her climax, a wave of pure pleasure crashed over her and she keeled over and fell on her back – she was having the best orgasm she had ever had in her entire life. Johnny stood up and was also approaching his climax as Sarah was nearing hers, as she trashed and writhed on the floor. Sarah and Johnny reached their climax together, Sarah felt like she was transported to another dimension as she came, completely unaware of the semen that Johnny was squirting onto her huge heaving bosom. As her orgasm subsided, she lay spent on the floor, she could feel Johnny’s hot cum on her expansive chest as her breathing was laboured. Johnny knelt and planted a kiss firmly on her lips and whispered in her ear, “you were great babe.”
+
+Sarah remained on her back for several minutes after her climax regaining her breathing, her sexual organs were infinitely more sensitive than what they had been a mere day ago. Sarah knew this was as designed, as she was meant to be a sex-toy to these people, a mere object for their entertainment. Still Sarah couldn’t believe she had just met Johnny Anderson a few minutes ago!
+
+Robert appeared and helped Sarah sit. He produced a towel and wiped away the cum off her tits.
+
+“That was incredible Sarah, that is what I need from you here tonight,” said Robert.
+
+“Fuck you, ignorant pig. I hate you for making me do this to myself: degrade and humiliate myself in front of all these people for your sick perverted pleasure.”
+
+Robert grabbed Sarah by the hair and pulled her head back and leaned in close.
+
+“Do you want to eat and drink while you live here?” whispered Robert.
+
+Sarah nodded her head in agreement. She was furious but she knew she was powerless to do anything, she depended on Robert for access to food and water and for protection. The only tool she had to fight back was her words.
+
+“Fine, fine – point made,” said Sarah through gritted teeth. Robert released her hair.
+
+“Good, now continue what you do best, being a slut. I believe there is a gentleman over there who could use your services. There was an overweight, middle-aged man sitting on a seat a bit back from the pool with his pants down and cock exposed. He was beckoning Sarah over. Sarah sighed in disgust.
+
+“Well, everyone can’t be a Johnny Anderson, now can they,” Johnny chided.
+
+“Fuck you,” replied Sarah.
+
+Robert chuckled and stood up, “you better get a move on then mermaid,” he said. Sarah began to crawl over to the man, her large rear sticking up in the air. She felt a sharp smack on her rear and heard Robert laugh. She whipped her head around and gave him a “screw you” look and continued to crawl to the older gentleman. Once she reached him, she sat back on her tailfin and looked up at him. He looked oddly familiar, Sarah thought on it for a second.
+
+It was Sergei Petrov; he was the CEO of one of the largest food and drink conglomerates in the world. “What the actual fuck,” she thought to herself, “is there any rich people who are not weird perverts?”
+
+Sergei motioned towards his penis and Sarah knew what he meant. She grabbed his dick with one hand and gripped it tightly and started to work his dick, slowly at first. She could feel his member engorging as she worked his cock. Sergei instructed her to work his cock slowly at first.
+
+“Sarah isn’t it?” asked Sergei.
+
+“That’s my name,” responded Sarah nervously.
+
+“You know you are a very lucky woman,” said Sergei.
+
+“Oh yeah, how’s that,” said Sarah sarcastically.
+
+“Your owner is a good man. I’ve known Robert for many years, he will take care of you. He always seemed to me to be a lonely man; it will be good for him to have some company, I think. He has given you an entire pool and a room to yourself, that is awfully generous. I would never allow my women that much freedom.”
+
+“How do you keep your women?” asked Sarah with a morbid sense of curiosity as she continued to work his cock, she was working it with both hands around the shaft now. Sarah assumed that the man must also have his own sex slaves.
+
+“Have you ever heard of a ponygirl,” asked Sergei.
+
+“I don’t think I have,” replied Sarah. She noticed his cock was getting harder as he was talking about ‘his women’.
+
+“My women are all taken from across the Motherland, across the beautiful Russian country! I take them and I train them to be pony girls! A pony girl is a woman who wears tack such as a bridle and a bit. I train them and I keep them in a barn outside where they all sleep together, some of them haven’t spoken in years! I’m surprised Robert lets you speak, if you were mine, you would be bound and gagged constantly!”
+
+As Sergei said that he came, and a river of hot semen was squirted onto Sarah’s face. Lovely, she thought to herself, one of these men is a BDSM freak, and my face is covered in his cum. Sergei leaned forward and wiped the cum from her face and laughed.
+
+“Thanks, little mermaid,” he said as he stood up and got dressed and walked away leaving Sarah alone to ponder the fates of his supposed pony girl women who haven’t spoken in years. She couldn’t imagine that and shuddered at the thought, maybe being a mermaid wasn’t so bad after all. Sarah had to remind herself that being a mermaid was indeed terrible and she WAS going to ESCAPE. Maybe not today, but soon she told herself.
+
+Sarah was then beckoned over to a group of naked men. They formed a circle around the kneeling mermaid and then instructed her to perform handjobs. She was working two cocks at a time trying to keep all the men hard and reach their climax. Sarah hated giving handjobs but at least she was not forced to give blowjobs or have penetrative sex, although she was sure that was coming later in the evening. After around 10 minutes Sarah was completely covered in the cum of seven men. She was covered in it from head to tail.
+
+Sarah dragged herself over to the pool to wash it off. She submersed herself under the water and watched as the majority of the semen was washed away. She swam to the island in the centre of the pool and sat on the edge. Her tail was clean, she cupped her breasts and washed them with water. Then she scooped water in both her hands and splashed it against her face multiple times. She felt cleaner for having done so. Sarah sat alone for a while enjoying the noise of the water lapping against the edge of the pool. She had her back to the party hoping that if she didn’t make eye contact with anyone, then they would leave her alone.
+
+“Hey big tits,” over here.
+
+Sarah sighed and lowered herself into the water and swam to the person who was calling her. She did an adapted breaststroke over to the edge of the pool and stared up at the naked man in front of her.
+
+“I wager you know who I am, slut,” said the young man who towered over her.
+
+“Not a clue,” said Sarah truthfully as she racked her brains to see if this rich prick seemed familiar to her. He did not.
+
+“My name is Alex Coventry, of the Coventry family from England. My father is the CEO of a multinational electronics company – CoventryTech. Perhaps you have heard of us,” he said self-indulgently.
+
+Sarah had heard of his father, Richard Coventry – a good and charitable man by all accounts. She wondered how the apple had fallen so far from the tree though. Sarah pulled herself out of the water and sat by the edge of the pool.
+
+“Oh great, a trust fund son,” she laughed intending to wound him. “I guess daddy didn’t – ouch!” Sarah said as she felt her hair being grabbed and her head pulled back.
+
+“What were you saying?” said Alex as he held her head back in a display of power.
+
+“I was saying,” said Sarah, “that if another man pulls my hair again tonight - I’m going to lose my shit!”
+
+Alex laughed and let go of her hair.
+
+“I like you; you are spunky! Got some real fight in you! But you haven’t met me yet,” said Alex. Suddenly he grabbed both her arms and she heard a “zipping” noise. She couldn’t move her hands, they were stuck behind her back, Sarah figured he must have zip tied her hands together. This resulted in her massive rack being stuck out more so than usual, a fact which did not seem to escape Alex as he removed his clothing and stood in front of her beside the pool. He positioned her on her knees, and she saw his cock. It was enormous, Sarah had never seen a cock so big in her entire life, granted she hadn’t seen that many cocks before. She had seen more penises than in her whole life tonight.
+
+“Suck my cock,” ordered Alex as he looked directly into her eyes. He was gently caressing it, making it hard.
+
+“No fuck you, I – MUMMMFFPPH,” said Sarah as her mouth was filled with cock mid-sentence. Alex had grabbed the back of her head and put his cock into her mouth. With her hands bound uselessly behind her back there was nothing she could do. He groaned with delight as he grabbed her hair making Sarah take deep strokes on him. She could hardly breathe as his cock filled the entirety of her mouth. Sarah felt extremely powerless, she knew now she was too be used as nothing more or less than a sex-toy for these rich and powerful people. She was a play-toy to the elite. Sarah was embarrassed by the slurping and choking noises she was emitting. She was embarrassed by the pleasure her body was experiencing. The blowjob went on for forever till eventually she could feel Alex cum into her mouth. She looked up at him with pleading eyes, begging him not to come in her mouth. He removed his cock after cumming into her mouth, she coughed and cum spewed from her mouth. She spat cum from her mouth as it dripped from her mouth and down onto her heaving chest where it rested. She brought her hands that were tied together to her face in an attempt to wipe away some of the cum that remained in her mouth and on her face.
+
+“You fucking pig,” said Sarah. “I hope daddy cuts off your inheritance and you are thrown out onto the street, you fucker,” spat Sarah.
+
+“You know Sarah, I really don’t like your attitude,” he said. He bent down and groped her tits for a moment. “It’s such a shame that Robert spent all this money turning a bitch like you into a beautiful and sexy mermaid. Such a shame.”
+
+Alex stood up and placed a foot onto her chest, Sarah realised what he was about to do.
+
+“No wait, please!” begged Sarah. The party was continuing in the background and for once no one was paying attention to the mermaid. Alex was about to push Sarah into the pool, and with her hands tied behind her back she would surely drown.
+
+“Alex, please. Let’s just talk about this, you don’t want to do this.”
+
+“Robert mentioned that he had created the first living and real mermaid in history. But we both know that’s strictly not true, now, is it? See, by my reckoning mermaids have gills and are able to breathe underwater, but Robert mentioned during that presentation that you didn’t have gills,” said Alex.
+
+“Alex, listen to me –“but it was too late, Sarah’s pleas were cut off as Alex brought his foot forward and kicked her into the pool. She fell backwards into the water and immediately began to panic. She could see Alex’s distorted image as he walked away from the pool. Sarah kicked her tail frantically but to no avail, without her hands she was unable to tread water. She was not yet proficient with swimming with her tail. She desperately tried to kick her tail and she went into a tumbled spiral through the water as she sank to the bottom, air bubbles escaping her mouth. She tried in vain to separate her hands from the tie that bound her, but it was no good, it was just too tight.
+
+Sarah was completely disoriented as she continued her spiral towards the bottom of the pool. So many thoughts were going through her head: what would happen to Rachel, would her parents ever find out what happened to her, what about Hunter, he would be devastated if she were to die. She knew it was foolish, but she had hopes of escaping this compound and maybe surgeons might be able to help undo the damage and mutilation that Robert had done to her body. All that was lost now, she was going to die in this pool. A mermaid was going to drown, the irony she thought to herself. She managed to stop her panicking and accept her fate, she finally touched the bottom of the pool and she just sat there.
+
+She could taste the chlorine of the pool and feel it mildly stinging her eyes. She stared ahead and remembered all the happy and joyous occasions that she had had in her life. All the events of her life were flashing in front of her eyes, all the trials and tribulations, the victories and defeats, the bitterness, and the sorrows. Sarah hated the idea that she would be buried as a mermaid, even if her family did ever find her body, they would not recognize her.
+
+Sarah could feel her lungs burning from the lack of oxygen in her system. She noticed her vision was starting to go black at the corners. She knew she didn’t have long left.
+
+Then Sarah saw a splash in the water above her. A figure approached her in the water, it was hard to tell at first but then she could make out the unknown person as they approached – it was Robert. Robert placed one arm around Sarah’s waist and the other arm he used to help him swim to the surface. Sarah surfaced and gasped for air; she had never appreciated a breath of air as much in her whole entire life. She gulped in the air and filled her lungs with it.
+
+Sarah could see that there was a fracas going on at the party and that the music had stopped. Robert was towing her to the edge of the pool. He heaved her out of the water and onto the pavement where she literally was like a fish out of water: her tail was thrashing as she tried to regain her breath and her hands were still bound behind her back. Robert knelt next to her and cradled her head in his arms.
+
+“What happened to you, are you okay! Why are your hands tied behind your back?!” asked Robert worriedly.
+
+“You… you… You saved my life,” said Sarah in between laboured breaths.
+
+“I’m not a monster, no harm will come to you here – you are mine. An attack on you is an attack on me,” said Robert as he laid a gentle kiss on her wet forehead. “I love you.”
+
+Robert cradled Sarah in his arms as she regained her breath, her massive chest rising and falling. She couldn’t see her tail due to the obstruction of her breasts; she could only see Robert’s looming face and the guests in her peripheral vision.
+
+“Alex, Alex Coventry did this to me. He made me give him a blowjob with my hands bound behind my back, then he pushed me into the pool when no one was watching. He knew exactly what he was doing, he knew I don’t have gills and that I would drown in this pool,” said Sarah.
+
+Robert looked up immediately at his security guards.
+
+“Bring me Coventry now,” ordered Robert. The security guards immediately fanned out into the crowd and began searching for Alex. It wasn’t long before they found him furiously trying to guess the password to the door that led out of the compound. The security guards punched him and roughed him up a little before bringing him over to the edge of the pool.
+
+“Let go of me you fucks, don’t you people know who I AM! I am Alex Coventry, when my father hears about this there will be trouble, mark my words, no one touches a Coventry!”
+
+Robert walked over to Alex and grabbed his throat and spoke loud enough so that the crowd would hear as well. It was both a warning to Alex and the members of the crowd about the consequences of what would happen if you crossed Robert Castellano.
+
+“Shut the fuck up, Alex,” said Robert in a tone that immediately silenced him. “What were you thinking trying to drown Sarah, she is MY MERMAID! She is under my protection! Do you hear that, anyone so much as ruffles a hair on her will answer to me. I invited you here to have fun with her and celebrate my accomplishment – not to murder her!”
+
+“That fucking slut was asking for it, she has an attitude on her. Clearly you have not broken her in yet,” said Alex.
+
+“That is my job to break her in. I decide how she is broken in and when and where she is broken in. If I decide that tomorrow, she will spend all day sucking cock, then I will ensure she follows my orders – not you!” roared Robert.
+
+He turned his back on Alex and Sarah saw him pace up and down the pavement as if the weight of the world was on his shoulders. He walked up and down the edge of the pool for several minutes glancing at Sarah and then glancing at Alex. Then Robert approached Alex and spoke low enough so only Robert, Alex, the security guards and Sarah could hear him speak.
+
+“Your father doesn’t know you are here, does he?” asked Robert.
+
+Alex nodded his head nervously.
+
+“I asked you here because we were friends a long time ago and I thought you would be happy for me to see me finally realise this dream of mine, but this is clearly not the case,” said Robert as he put a hand on his shoulder.
+
+“I won’t tell your father you were here at this party,” said Robert.
+
+“Thank you, Robert, thank you so much! I really – “
+
+“However,” began Robert, “if I ever catch you in my sight again there will be serious consequences.”
+
+Robert turned away from him and looked down at the still wet Sarah beside the pool and looked to his guards.
+
+“Break both his legs but take him outside and do it so the party guests don’t have to see,” instructed Robert.
+
+“Robert,” pleaded Alex, “you can’t do this!”
+
+“Alex, this is you getting off lightly, now take this punishment like a man!” said Robert as he clicked his fingers and the guards dragged Alex out of the house. Sarah gave him a smug smile and an evil wave as he was escorted from the premises.
+
+“Alright,” said Robert, “let’s get this party restarted,” he said as he signalled for the music to be played. Within a few minutes the guests were back to socialising and all seemed to have been forgotten, it was like Alex had never been an attendee at the party.
+
+Robert returned to Sarah and scooped her up into his arms.
+
+“Let’s go inside into your room for a bit, let you catch your breath for a while,” said Robert.
+
+Sarah nodded her head in agreement as Robert walked past the guests with the mermaid in his arms and entered Sarah’s room. He pulled across the door and placed Sarah sitting on the edge of the bed.
+
+“Thank you for saving me, I was really sure I was going to drown in that pool – I saw my life flash before my eyes,” said Sarah seriously as she moved her hair out of her eyes. Her make-up was smudged and running down her face.
+
+“I am so sorry that had to happen to you, there won’t be many of these parties that I will host. Ordinarily it will just be me and you and my security guards. It is important to me that you are safe when you are here, you are under my ownership and therefore my care. You shouldn’t have to worry about anything, one of the benefits of having no freedom is having no responsibilities,” said Robert.
+
+“You’re still not going to let me go, are you Robert,” asked Sarah.
+
+“No, my dear,” he said as he laid a kiss onto her forehead. “You are stuck here with me forever; this is your new life. It doesn’t have to be hard, there is a 45-inch flatscreen TV in this room connected to an XBOX, the latest model I am told. You can use it as much as you want when you are not with me, you can even play online and talk with people. However, you should know that there is a powerful AI that monitors the voice chat of all phones or any form of communication in and out of this house. If you mention your real name or ask for help, or even try to leave clues the AI will detect it and you will never be allowed any form of technology, understood?”
+
+Sarah nodded her head in agreement. “Fuck,” she thought to herself, “I guess getting hold of a phone and calling for help is out.”
+
+“The same goes for the PC over there in the corner,” continued Robert. “It is connected to the internet, but you have no access to emails or social media.”
+
+Sarah needed to gain Robert’s trust. If she could pretend to be a good little mermaid then Robert may actually believe that she was. Sarah arched her back causing her large breasts to jut out, almost as if she was serving them up to him on a platter. She started to caress her neck.
+
+“Robert, my neck is a little sore – do you mind,” asked Sarah.
+
+Robert smiled and sat behind Sarah on the bed, each of his legs on either side of her. He gently massaged her neck. She started to tenderly play with her nipples, and she emitted a soft moan. She could feel Robert’s member begin to swell as it was touching against her backside. Robert moved his hands down and cupped her large breasts and kneaded them with his hands. Sarah turned around to face him and sat on his lap. She helped him remove his shirt and pants.
+
+“I don’t need to worry about removing my clothes anymore,” joked Sarah. “I haven’t got any.”
+
+Robert threw Sarah onto the bed, and she landed on her back.
+
+“You don’t need any clothes,” he laughed. “You are perfect the way you are.” Robert straddled Sarah and she could feel his large penis entering her slit. He planted a deep kiss in her mouth. He grabbed both her arms and restrained them over her head and began to steadily pump. With every thrust that Robert made Sarah began to shiver and tremble with pleasure, her female vagina had never been this sensitive. He grunted as his pounding grew faster and faster. Sarah started to emit loud moans as she approached her orgasm. Robert cried out as he released his seed into Sarah’s body. Sarah was consumed by an immense wave of pleasure that caused her to scream and her body to writhe involuntarily. Her huge breasts jumped up and down on her chest as if they were lost and couldn’t remember quite where they were supposed to be.
+
+Robert rolled off Sarah and out of the bed. He went into the bathroom and cleaned himself and came back out to get dressed.
+
+“That was amazing,” said Sarah – and she meant it. She had never had an orgasm like that in her entire life. It was like every nerve in her body was alive and active, screaming out to her in a surge of pure pleasure that had consumed every inch of her.
+
+“I’m glad you enjoyed it Sarah, but you are not quite done for the night. We still have the Slave Games to enjoy,” said Robert.
+
+“Wait, what are the ‘Slave Games’” asked Sarah.
+
+“Well, whenever one of us, and by that I mean the gentlemen and women outside purchase a new slave – we get together like tonight to celebrate. Then we hold the Slave Games: a series of three trials designed to see who the most proficient and skilled slave is. And you are going to win it tonight, Sarah,” said Robert in a sudden sinister tone. “Because if you don’t, then you won’t be eating for the next week.”
+
+“Got it,” said Sarah. Sarah couldn’t believe that he was threatening her again. Robert had gone from lover to owner so quickly it had made Sarah’s head spin. Robert seemed to notice this too.
+
+“Don’t forget how this relationship works Sarah, I am your owner. You are a sex slave, granted you are an augmented one but at the end of the day let’s be realistic here – we both know what the situation is, you are a smart woman, I wouldn’t try to insult your intelligence by pretending anything else,” said Robert.
+
+“Understood,” said Sarah. “I never thought that this was anything else,” she said.
+
+“Great,” said Robert as he clapped his hands together. “Let’s get you ready for the Slave Games!”
+
+---
+
+Sarah was knelt in front of the crowd of guests and attendees. On her left was a brunette woman, she was standing to Sarah’s left – her pert C cups exposed for all to see. She was also stark naked. On her right was another woman, a red headed woman with what looked like 32 DD’s. Beside her was a woman who was covered in a black, shiny latex suit and was wearing an armbinder. Her face was covered with a hood, the only thing you could see of her was her eyes and her nose. Her hair came out of the hood in a single ponytail. Sarah supposed that woman was one of Sergei’s ponygirls by the way she was dressed. Sarah found out that some of the slave-women were being stored upstairs during the party, which explained why she hadn’t seen them before now.
+
+“What the fuck happened to you,” whispered the brunette headed woman on her left. “Your tits are fucking insanely big and is that tail real?”
+
+“Unfortunately, you are correct on both counts,” whispered back Sarah. “Robert drugged me last night and I woke up this morning with these enormous milk monsters and this tail this morning.”
+
+“Fuck,” said the other woman, “I didn’t realise they could do that to us. My name is Anna by the way, the woman on your right is called Sophie, and the woman on the far right we don’t know her name – she is one of Sergei’s pony girls. We have seen her at other Slave Games but she’s not able to speak due to the hood she is wearing. I’ve heard there is a penis gag in her mouth and that she hasn’t spoken in four years! Poor thing, I suppose you could have ended up worse – like her.”
+
+“My name’s Sarah by the way, not that it matters anymore. Robert has done a good job of dehumanizing me so far. So, what’s the deal with these “Slave Games”, what is the incentive for us to compete with each other? We don’t actually care about what our “masters” think, right?”
+
+“We have to compete. Our masters will punish us if we lose, I’ve lost some of these games before and been starved for more than a week – I never want that to happen again,” said the woman.
+
+“Yeah now that you mention it, Robert did threaten me with starvation if I lost,” replied Sarah.
+
+“Well, good luck Sarah!” said the woman.
+
+“Yeah, you too Anna!” replied Sarah.
+
+“Alright ladies and gentlemen, get ready for the 19th Slave Games of this year!” announced Robert. “Sergei and I have formulated a series of four challenges designed to test each of the women to see what slave is the most efficient and submissive of the bunch! You can place bets on any woman of your choice just before the games begin – the only caveat is that there is a five thousand dollar buy in for each round.”
+
+“Ladies,” Robert said, turning around to face the group of women. “Tonight you will be faced with four challenges designed to test you. Are you all ready?”
+
+Sarah and the other women all nodded their heads tentatively. Sarah couldn’t believe that they were going through with this whole game show bullshit – it was humiliating. But then again supposed Sarah, that was probably the point: to humiliate and degrade them.
+
+Four men walked forward, stark naked with their cocks exposed. Robert beckoned them forward, they stared at the women with a hunger that suggested they would enjoy this.
+
+“The objective of this first challenge is as follows: each of the women must tit-fuck a man. The winner will be the woman, or mermaid,” and the crowd laughed. “The winner will be the woman that causes the man to cum first using only their breasts to make the man cum.”
+
+“Fuck,” she heard Sophie say.
+
+“Sophie usually wins this challenge on account of her double d’s, but I think she has some competition from you,” sniggered Anna.
+
+“Three, two, one – go!” shouted Robert.
+
+Both Anna and Sophie sprinted ahead followed by the trotting pony girl.
+
+“Fuck,” said Sarah as she realised, she was at a distinct disadvantage as she didn’t have legs.
+
+Sarah crawled as fast as she could. By the time she had reached her designated man the other women were already starting their tit-fuck, save for the pony girl – with her armbinder there wasn’t a lot she could do except rub herself against the man’s dick.
+
+Sarah took the man’s dick and smashed it between her enormous breasts, completely covering it. She furiously started to knead her breasts, working the cock that was between them. She had never given a tit-fuck to Hunter before, not because she was a prude but because her tits were just not big enough.
+
+She could feel the man’s member engorge hugely as worked his cock, she threw some spit in between her breasts to help with the lubrication. Sarah needed to win this if she was to escape. She needed food to keep her active and at her peak, ready to take any escape opportunities as they arose.
+
+Suddenly she could hear the man moan in pleasure, and she felt hot semen be shot onto her massive tits. Sarah looked left and she did it! She had made her man cum first and therefore had won the round. She was one step closer to victory, for the first time today she was kind of glad that she had massive cantaloupes.
+
+“Looks like we have a winner,” declared Robert. “Well done, Sarah,” said Robert as the crowd clapped. There was money being exchanged for the betting that had taken place before the round. There was a brief interlude of five minutes as the guests were given opportunities on what woman they would like to bet on now.
+
+“The next round involves the use of a sybian,” announced Robert.
+
+“What’s a sybian?” Sarah asked Anna.
+
+“You’re about to find out unfortunately, it is basically a masturbatory device for females – not sure how it will work for you though, I mean do you even have a vagina down there?”
+
+“Of course I do!” said Sarah somewhat indignantly.
+
+“Alright, alright,” replied Anna with a smirk on her face.
+
+“The woman who cums first wins,” announced Robert.
+
+Each of the women were taken to their sybian. Sarah’s was different, instead of sitting on a phallic object Sarah was taken to a table and instructed to lay on her stomach which proved incredibly difficult on account of her massive tits being squashed underneath her. Then her arms were tied underneath the table and her waist was tied as well. Once Robert was sure that Sarah was effectively immobilized on the table, he started the round. Sarah immediately felt pleasure as a phallic object was inserted into her slit: there was a hole in the table exactly where her vagina was and then it was inserted up and into her vagina. Sarah almost immediately came on account of her newfound sexual sensitivity. Sarah started to scream in both pleasure and agony as the phallic object moved up and down inside her slit.
+
+“We have a winner,” announced Robert. There were cheers and moans from the crowd as people won and lost their bets. “Time for a brief interlude before the next event.”
+
+“Wait… I… Let me… Out of this thing…” pleaded Sarah through wave after wave of orgasms. “PLEASE… OH GOD…” Robert merely smirked at the struggling mermaid and turned her back on her. Apparently, Sarah was capable of indefinite orgasm, a thought which filled her with dread. Her orgasms were so intense they were actually painful.
+
+“Here let me turn this thing off,” said Anna as he flipped the off switch on the machine.
+
+“Thank you, Anna,” said Sarah through laboured breathing. “That was so fucking intense.”
+
+“How old are you Sarah, you don’t look as old as the rest of us. I’m twenty-seven and Sophie twenty-nine,” said Anna.
+
+“I’m twenty-one,” replied Sarah.
+
+“That fucking bastard, you had your entire life in front of you! I’m so sorry Sarah, I wish I could tell you that this life gets easier but that would be a lie,” said Anna as she untied the straps that held Sarah down.
+
+“This life just gets harder and harder; we don’t get to do anything meaningful with our lives. Our lives don’t make sense, we have no purpose – our lives are just filled with humiliation after humiliation – with a good dollop of degradation on top. I’m just so sorry that you have to experience this younger than most of us who are taken,” said Anna with a sorrowful smile.
+
+“Time for the third test: the first woman to reach George over there and suck him off will be the winner,” said Robert.
+
+There was a man a good distance away who was completely nude and sitting in a chair with his cock fully erect waiting for the women to reach him. The guests gathered around to watch, careful to line up either side of a pathway that led from the women, and mermaid, to the man they called George.
+
+Sarah realised she didn’t have a chance of beating this challenge. How could she? She no longer had legs, the best she could was an awkward crawl – nothing faster than that. She was truly fucked she thought to herself.
+
+“Sarah,” whispered Ann. “Don’t look up. Here is the plan: when Robert says go, I’m going to jump on top of Sophie and stop her from running, you grab onto the pony girl's lead and let her drag you to George. Then knock her down with your tail, the pony girl won’t be able to get back up, leaving you in prime position to suck George off.”
+
+“Why are you helping me?” whispered Sarah.
+
+“Because you are so young – I feel sorry for you. You’ve had your whole life taken from you; I don’t want to see you starved as well. We can still be decent people when we get the chance, sex slaves or not – don’t ever forget who you used to be. Don’t let them take that person away from you, you understand?”
+
+“I do, thank you Anna, I won’t forget this.”
+
+“Three, two, one,” counted down Robert, “go!”
+
+Ann immediately tackled Sophie to the ground and restrained her.
+
+“What the fuck are you doing you dumb bitch, let go of me!” screamed Sophie.
+
+Sarah lunged for the trailing lead of the pony girl and grabbed hold of it. Sarah was dragged along the pavement as the pony girl ran as fast as her high heels would allow her too. As Sarah was dragged along the floor, her breasts were acting as a shock absorber for the blows her body was receiving. She briefly looked back to see that both Anna and Sophie were still wrestling each other at the side of the pool.
+
+Just as Sarah was near George, she kicked the pony girl's legs with all her might and watched as the poor woman fell hopelessly to the floor.
+
+“I’m so sorry for that,” said Sarah as she crawled past the pony girl as she desperately tried to stand up. Sarah crawled a few feet to George who was smiling a big goofy grin as she approached him. Sarah knelt in front of him and looked up at him and then sighed, she knew what she had to do. She immediately clamped her mouth around his erect cock and started to suck. She worked his cock as fast as she could.
+
+From her peripheral vision she could see that Anna had lost the fight and Sophie was on top of the other woman now, and she was standing up. She kicked Anna in the ribs rendering her out of the round.
+
+Sarah sucked George off as fast as she could, she was not embarrassed by the slurping and choking noises she was making as she worked his member in her mouth. Sarah could see Sophie turning away from Anna and preparing to run over to George.
+
+Sarah felt the taste of cum in her mouth as George ejaculated. She swallowed all his cum, she no longer had time to worry about her dignity – all that mattered was winning the contest so that she didn’t starve.
+
+Sarah had swallowed all George’s ejaculate by the time that Sophie roughly pulled Sarah away from his cock and threw her onto the floor. But it was too late for Sophie, it was obvious that George had cum as cock was now flaccid.
+
+“And for the third time in a row Sarah has won,” Robert announced gleefully.
+
+Sarah watched as George picked up his pony girl and was shouting at her. He took her lead and led her off presumably to a dressing down over her performance. Likewise, Anna and Sophie were each getting a lecture from their masters about their poor performance. Sarah felt particularly guilty as Anna had been helping her.
+
+Sarah crawled over to a nearby table and grabbed a bottle of water to wash the remaining cum from her mouth. She pulled herself up and onto the chair and leaned back into the chair. The night was almost over, all Sarah had to do was beat this last challenge, whatever that challenge may be. There was another five-minute break before Sarah was ordered over to the pool. All the women were ordered to stand, or in Sarah’s case sit beside the edge of the pool. Sarah shared a thankful smile with Anna for saving her in the last round.
+
+“For the last and final round, the task is simple: the first woman to reach the other end of the pool first wins! Go!” shouted Robert.
+
+Sarah immediately threw herself into the water, finally she thought that her tail might come in handy. She kicked as hard as she could and was surprised by the speed at which she was moving. She did an adapted breaststroke: for each kick of her tail, she propelled herself forward with her arms. She reached the other end of the pool faster than the other women easily. Sarah got the impression that this test was purely designed to see if the so-called “mermaid” could truly swim faster than a normal woman. Sarah knew that Robert would be delighted with this result as it gave him more bragging rights.
+
+Sarah pulled herself out of the pool, her breathing a bit strained from the physical exertion that she had just undergone. She sat on the edge of the pool and flopped her tail uselessly against the water. “Back to being helpless on land again,” she muttered to herself.
+
+Sarah saw Sergei approach with his pony girl and Robert was also approaching her.
+
+“Robert, if you ever have any trouble with training this mermaid of yours, I’m always available eh,” said Sergei jokingly. He pulled on the lead of the ponygirl, and their eyes briefly met as she was led away, it was hard to tell the emotion that the woman was trying to convey when all Sarah could see were her eyes and her nose.
+
+Sarah watched as Sophie was led away, her 32 DD’s bouncing as she was led away by her master. Lastly, she saw Anna being led away. She was now wearing a pair of panties and a collar as her master led her off. Sarah briefly exchanged a glance with Anna and thanked her. Anna returned the sentiment with a sweet smile. And then within a few short minutes all the guests had vacated leaving just herself and Robert.
+
+Robert picked her up and brought her into her room. He tucked her into bed and sat down.
+
+“You should take these,” said Robert as he produced a pill and a glass of water.
+
+“This pill won’t make me grow another set of breasts, right? What is the pill?” asked Sarah suspiciously.
+
+“It’s a contraceptive pill Sarah, so unless you want to be pregnant, I suggest you take it. I plan on having you fitted with the bar in the future.”
+
+“You mean I can still get pregnant,” Sarah asked.
+
+“You sure can, you still have a functioning womb. If you were to get pregnant you would give birth to a normal, human baby just as any woman would. Not that we want that to happen, so I suggest you take the tablet.”
+
+Sarah nodded in agreement and swallowed the tablet with the glass of water. That was one less worry of her shoulders, at least she wasn’t going to be pregnant after the activities of the evening. She wasn’t ready for a baby yet and she didn’t want to bring one into this cruel world that she now found herself inhabiting.
+
+“Night Sarah,” said Robert standing up, “and welcome to the first day of the rest of your life. Tomorrow I will introduce you to your new daily routine.”
+
+Robert walked towards the door and turned out the lights leaving her in the dark. In the distance Sarah could see the lights of the village, she wished more than anything that she could just reach out to those lights and transport herself into that village and end this fucking nightmare.
+
+Sarah tried to sleep on her back, but the weight of her new breasts was giving her breathing issues. She missed her small B cup breasts that she had before, they never caused her any problems. They were tiny and never affected her life, not like these two massive melons that now inhabited her chest.
+
+Sarah moved onto her stomach but that was even worse – her breasts were squashed beneath her body. Sarah eventually settled on sleeping on her side. By the time she was comfortable in the bed she looked at her bedside clock, it had just turned half-one in the morning. Despite her best efforts, it took her another hour before she fell asleep. Sarah fell asleep to the soft hum of the pumps of the pool outside, her new natural environment.
+
+---
+
+That night Sarah had a vivid dream of her family. She found herself at the dinner table with her dad, her mother, and her sister. They were all sitting in the kitchen eating lunch, Sarah’s favourite – meatballs and spaghetti.
+
+“Oh, thank God, it was all just a bad dream,” said Sarah as she looked down at her body. She was herself again, she had legs and her breasts were back to their small size. She was wearing the same pink jumper and blue jeans that she was wearing when she met Robert that fateful day.
+
+“What dream, sweetie,” asked her mother.
+
+“I had this horrible dream where I was turned into this mermaid, and I had these huge breasts!” replied Sarah.
+
+Her family laughed at the absurdity of the dream, and Sarah joined in with them.
+
+“Sarah, I can assure you that you are most certainly not a mermaid,” her father said.
+
+“I’m just glad that the dream is over, it was horrific,” Sarah said.
+
+There was a ringing noise, and everyone looked at the front door.
+
+“I’ll get it,” Sarah said as she stood up and walked over to the door. She opened it and was shocked to see Robert Castellano standing there.
+
+“Ah Sarah aren’t you going to introduce me to your family,” asked Robert.
+
+“You… you can’t be here – you’re not real.”
+
+“Oh, but I am very much real, Sarah, which reminds me: you don’t appear to be your ‘real self’,” said Robert menacingly. “Let’s fix that,” he said whilst laughing maniacally.
+
+“Stay away from me you creep,” Sarah screamed as she closed the door and locked it. She ran back into the kitchen, but her family had disappeared.
+
+“Mum, Dad, Rachel!” Sarah cried frantically.
+
+Suddenly she felt her legs go extremely weak, she had to lean against the chair. She also felt a tightness in her chest as well.
+
+“What the fuck is happening to me,” exclaimed Sarah.
+
+She watched in horror as her pants ripped and her legs merged together into a single appendage. She felt severe pain in her chest and ripped off her jumper convinced that she was having a heart attack. After stripping down to just her bra she was distraught to see her boobs were overflowing from her bra. The fabric was cutting into her heaving and rapidly expanding chest. She desperately tried to unhook the bra strap, but she couldn’t reach, eventually the bra couldn’t stand the strain anymore and snapped, releasing her gargantuan breasts. At the same time her feet changed into a tailfin and Sarah fell backwards. Sarah sat up to see she had a blue tail and massive tits; her family were back in the room along with Robert.
+
+“Nice to meet you Mr. and Mrs. Savage, I’m here to collect your daughter. She wants to come and live with me from now on!” said Robert.
+
+“No! Please listen to me! I don’t want to go with him!”
+
+But it was too late, Robert picked her up and brought her outside of the house and towards his car. Sarah’s family came out onto the street to wave her goodbye. Sarah desperately struggled to break free from Robert’s grip.
+
+“Someone help me! Please! Someone help me!” screamed Sarah.
+
+---
+
+Sarah awoke with a start. That dream was scary as fuck she thought to herself. She stared at the alarm clock on her bedside table and immediately knew this was reality. She was still a big titted mermaid. It was eight o clock and her alarm was buzzing incessantly. She reached out and turned it off. Sarah figured Robert had set the alarm clock for eight a.m. as this was the start of her regimented schedule to keep her disciplined and subservient to him, a further form of control.
+
+Sarah pulled back the duvet covers and sat on the edge of the bed. She yawned and stretched, feeling the strain of her unnaturally large breasts on her back. Sarah then climbed onto the floor and crawled over to the bathroom. The bathroom was designed for a mermaid Sarah thought to herself: the sink and light switches were at the same height that she was when she knelt so she could easily access the switches.
+
+Sarah looked at herself in the mirror as she brushed her teeth. She looked so tired, her hair was an unruly mess and she had slight bags under her eyes. She was sure a cup of coffee would alleviate the tiredness, that was if she was allowed to drink coffee anymore. Sarah spat the toothpaste out of her mouth and returned the brush to its holder and then dragged herself over to the shower.
+
+She enjoyed the hot water as it washed over her body. She lathered her breasts and stomach and scrubbed them clean. She hosed down her tail as well. Then she applied a strawberry shampoo to her hair and washed it away, leaving a pleasant smell. She got out of the shower and applied some deodorant and then decided to use the toilet.
+
+To use the toilet Sarah had to climb onto a specially designed leather bed. She would lay on her stomach and position her vagina over a whole in the bed under which was a toilet. She would then relieve herself and press a button to flush. Sarah then washed her hands and went back to the bed and waited for Robert.
+
+Robert arrived a few minutes later and opened her door.
+
+“Morning Sarah,” said Robert.
+
+“Morning Robert,” said Sarah not knowing what else to say.
+
+“Call me master Sarah, it is important we set these ground rules now so as not to cause you any confusion further down the line,” he said.
+
+“Morning master,” Sarah said, hating herself for even uttering the word. Sarah had never explored BDSM or anything like that, but now she knew she was not the submissive type. Unfortunately for her, she was trapped with a “master” and an “owner”, pretty much making her a submissive woman, or rather, mermaid she thought to herself.
+
+“Let’s go upstairs,” said Robert. “First task for you is to cook us some breakfast.”
+
+Sarah raised an eyebrow at this.
+
+“Don’t you have maids or servants for that sort of thing? Why have me do it?”
+
+“I don’t have maids or servants, that’s why I have you. Or did you not understand the whole sex slave concept? There is also the word slave in that sentence, which involves working for me,” explained Robert. “Now let’s go.”
+
+Robert picked Sarah up and brought her outside. It was a beautiful Greek morning; the sun was just beginning to rise, and the weather was calm and peaceful. A flock of birds flew overhead as Sarah stared at the cloudless, blue sky above.
+
+Robert instructed Sarah to avert her gaze as he entered the password that allowed egress to the spiral staircase and the upper portion of the house. It pained Sarah to look away as he typed the code, but she knew she did not have a choice or say in the matter. She heard the buzz as the gate opened and Robert walked up the spiral staircase.
+
+Sarah noticed there was a hot tub at the top of the spiral staircase and two double-doors that led into the atrium of the upper portion of the house. There were many rooms up here, and the one on the right contained the kitchen which was where they were headed. Sarah figured this area wouldn’t be as heavily guarded as the compound below. The only caveat was that she would never be alone up here and unsupervised.
+
+Robert placed her on the black marble counter of the kitchen.
+
+“Glasses and plates are in the press above your head, ingredients are in the fridge to your left. The cooker is on your right. Now make some breakfast, I will be catching up on some work at the kitchen table. Call me when the breakfast is ready to be served,” commanded Robert.
+
+Sarah proceeded to gather ingredients for the only thing she could cook, which was an omelette. She gathered her ingredients: two eggs, some water, dried herbs, olive oil and black pepper. Sarah then proceeded to beat the eggs, water, pepper and herbs together in a pool using a whisker. The motion of beating the eggs caused her huge tits to jiggle which irked Sarah. She couldn’t even do something as simple as making a breakfast without being over sexualised anymore. It was just part of who she was now. She then heated the oil in a frying pan and added the egg mixture to the pan. Sarah then spread the mixture around the pan and cooked until the eggs were set, carefully turning the omelette to ensure both sides were cooked.
+
+“Voila, breakfast is served,” said Sarah.
+
+Robert put away his PC and picked Sarah up off the counter and placed her in a seat at the table. He then proceeded to dish up the omelettes. Neither of them spoke as they ate their food, both were exhausted from the events of the preceding night.
+
+“Is that all you know how to make,” asked Robert suddenly.
+
+“I’m twenty-one years old and was a broke student, this is all I know how to make. If you were looking for a chief you should have turned a MILF into a mermaid and kept her instead,” retorted Sarah.
+
+Robert chuckled at her retort and finished eating his omelette. Once he finished, he told Sarah it was time for exercise. He went to one of the rooms and came back with a huge sports bra and gave it to her.
+
+“This is your only item of clothing, so look after it. You will only be allowed to wear the sports bra when you are exercising in the gymnasium, all other times you must be topless around this house, understand?”
+
+Sarah nodded her head to show her understanding. Robert gave her the bra and she quickly put it on. She couldn’t describe how nice it felt to have some support for her huge tits after having them hang free for the last day.
+
+Robert picked her up and took her to the gym. There he made her exercise intently using resistance machines in addition to free weights. Robert told her that he was determined to keep her body in perfect shape. After an hour of intensive exercise Sarah was told to hand the sports bra back to Robert. He then took her back down to the pool and told her she had the majority of the day to herself as he had business to attend to. He would return after work and there would be another activity.
+
+Sarah lounged by the pool for a while before deciding to go for a swim as it was so hot. She swam lengths of the pool for a while honing her skills as a mermaid. She was getting faster and faster swimming with her tail. After a while she swam to the edge of the pool and stared out at the village of Artemida. She could see activity in the village, people were going about their daily lives oblivious to the predicament that Sarah now found herself in. Sarah wondered when they would start searching for her – she wondered did anyone still think that she was on the island, or did they assume she fell overboard from the cruise ship?
+
+Sarah grew tired of thinking those negative thoughts, they sure wouldn’t help her escape from the clutches of Robert. Sarah decided to try and investigate the door that led out of the compound, the one where all the guests were ushered through last night to attend the party and Slave Games.
+
+Sarah crawled from the pool over to the door and stared up at the keypad. She could barely reach the keypad due to her being unable to stand on account of her tail. She did try and enter some passwords: Robert, Sarah, mermaid etc were all tried but to no avail. Sarah realised she didn’t know Robert and therefore didn’t know what names, dates, places, etc. were important to her – she didn’t even know his age!
+
+After a while, Sarah grew tired of entering passwords and decided to go back to her room. She crawled into her room and sat at the bottom of the bed and grabbed the XBOX controller and pressed the start button. There was a gentle hum and whir as the console turned on. Sarah had been a huge first-person shooter fan back in university – she used to play all the time with Rachel. Her favourite games were Call of Duty. Sarah browsed through the games and was pleasantly surprised to find that there were a few iterations of Call of Duty installed on the XBOX. Sarah booted up the most recent one and entered an online multiplayer lobby.
+
+Sarah enjoyed playing the video games, it provided her with a momentary escape from her current predicament. The only thing that bothered her was that she could no longer see the remote when she held it below her breasts, so she had to place her elbows on her chest and hold the remote up towards her face which allowed her to see what buttons she was pressing and was just all-round more comfortable for her.
+
+Sarah noticed that her online profile had been pre-set by Robert: she was called the “mermaid69”. “Well at least Robert has a sense of humour,” Sarah thought to herself. Sarah started to search for her friends and Rachel on the social servers but unfortunately, they were all greyed out, the option to interact with them was stricken. Sarah supposed that the AI was ensuring that anyone she knew was filtered out, Robert did have access to her phone when he drugged her, and he had the resources to do something as crazy as blocking everyone she might have known.
+
+Sarah eventually went back to gaming and found a clan that was looking for another member. If she was going to be spending time in this villa, in her downtime she might as well have a clan, right? She joined the aptly named “SlayersofDestiny94” clan. It consisted of three members, William, Bruce, and Brian. William was the leader of the clan; they all seemed like mega-serious nerds to Sarah but she just wanted company and people she was sure would spend time online so she could talk to them. She was tempted to ask them for help, but she knew there was no point, there was a watermark in the top right-hand corner of the screen that informed Sarah that the AI filter was active and monitoring her conversations – any attempt to circumvent it would just get Sarah punished. Besides, she needed to gain Robert’s trust in order to exploit any potential weaknesses that he may have.
+
+William, or Will as he liked to be called, was the clan master. Will was keen on the idea of Sarah joining their clan, as was Brian, but Bruce was cynical. He didn’t think that a girl was capable of being in their clan as she was not a real gamer, probably just some twitch streamer with her tits out. She had to hand it to Bruce, he did have some insight – her tits were out. “Casual misogyny,” she thought to herself. “Some things don’t change, mermaid or not.” Will decided to play a game of Battle Royal to test her skills.
+
+Sarah was easily able to keep up with the boys, reviving Bruce on several occasions. They went on to win their first Battle Royal as a team and there was much celebration. Sarah was able to momentarily forget her horrid situation as she celebrated with her new team.
+
+“So, Sarah, tell us a bit about yourself,” asked Will after the match.
+
+“I sure can,” said Sarah. “Let’s start at the beginning, my name is Sarah and I’m from Arizona in the United States.” This was actually true, Sarah decided to pretend to them that she was still the successful and independent woman that she had been just a few short days ago. It made her feel better and gave her an element of control back about the narrative of her life.
+
+“I’m twenty-one years old and got accepted onto a scholarship with the University of Arizona to study Biochemistry. I spend most of my days working in a lab wearing a lab coat and safety glasses,” lied Sarah. She flopped her tail uselessly on the floor and slapped a mosquito away from her massive milk monsters. Truth be told, the fact that she would never be going back to university to study had not yet set in. Her mother was a feminist and always wanted her daughters to have the education she herself never received, she wanted them to do better for themselves. Sarah had managed to screw-up her mother’s dream for her, she had trusted the wrong man and now she was paying the price – imprisoned in a watery prison and stuck within the confines of her own body, reduced to a mere plaything for the rich and the powerful. Any agency she had in life had been taken from her.
+
+“That’s so cool,” said Will. “You’re like a real scientist.”
+
+“Sure am,” Sarah said with a hint of sadness in her voice.
+
+“And on a scholarship as well, your family must be so proud of you,” said Will.
+
+“They are,” replied Sarah. “They are. What about you Will, what do you do?”
+
+“Oh me? Not much honestly, I mostly play video games and work at the local grocery store, I’m nothing special.”
+
+“Don’t sell yourself short Will, I’m sure you’ll find your purpose in life,” Sarah said.
+
+“Thanks Sarah, my interactions with women don’t usually go this well so thank you for the words of encouragement.”
+
+“Glad to help Will. Now, who wants to kick some ass!” shouted Sarah as they loaded into another matchmaking lobby.
+
+Sarah played with her new clan for the entirety of the day. She found more and more about her fellow clan members, like how Will wanted to be a video game programmer in an indie studio one day, Brian was actually British and lived in London, liked to sing karaoke on the weekends, and Bruce, well Bruce was a virgin and wanted to get laid. Bruce made a few jokes that Sarah and he should hook-up, and Sarah joked that she was more woman than Bruce could handle. She glanced down at her huge mammary glands as she said that and realised it wasn’t a lie. She looked like a male’s wet-dream fantasy come true as she sat there on the floor.
+
+At around five o’clock Sarah heard the buzz of the security gate as Robert descended the spiral staircase.
+
+“Looks like playtime is over boys, same time tomorrow?” asked Sarah.
+
+“Sure,” said Will.
+
+“You bet,” said Brian.
+
+“Wouldn’t miss spending time with you Sarah,” said Bruce.
+
+“Welcome to the clan,” said Will as they all disconnected one by one.
+
+“Making new friends I see?” enquired Robert.
+
+“I guess you could say that,” said Sarah. “It’s not like there is much else for me to do around here.”
+
+“Don’t be so sure little fish, come here I have something to show you.”
+
+---
+
+“What is that?” asked Sarah bemused.
+
+She was kneeling outside on the pavement and there was a complicated machine sitting in front of her. There was a metal cage that was around the same height as Sarah when kneeling. Inside the cage. There appeared to be some form of a motor. Above that there was a contraption that had a metal bar sticking out. There was some form of control knob on top of the cage. A few feet in front of the machine there was a metal pool. On the metal pool, again the same height of Sarah when kneeling was white, translucent, rubber cock that was attached to the metal pole. There were various straps and locks on the machine as well.
+
+“This Sarah is a new machine that just arrived today, I had it purpose built for you. It is called a ‘blowjob trainer’”. It works by strapping you into the machine and then the machine will help you become more efficient and proficient in the feminine art of blowjobs. Lucky you.”
+
+“This can’t be a real machine, this is so humiliating – Robert please don’t make me use this machine,” asked Sarah.
+
+Robert gave her a stern look and folded his arms.
+
+“This isn’t up for negotiation, Sarah. You are going to use this machine.”
+
+Sarah sighed and mentally prepared herself for the degradation and indignity that was about to come along with the use of this machine. If her mother could see what she had been reduced to she would be physically ill. Sarah had been a scholarship-winning biochemistry student, and now here she was reduced to sucking a rubber cock on the whims of a mad-man.
+
+“Fine,” sighed Sarah. “Let’s just get this over with.”
+
+Robert picked Sarah up and placed her kneeling on her knees in front of the rubber cock. Her tail was brought up behind her, her tailfin touching her back. A strap was then applied ensuring that her tail could not move and was stuck behind her back. Sarah was immobilised in this sitting position. Robert then tied her hands together behind her back with another strap rendering them useless. Sarah Robert then produced a steel collar and placed it around her neck and locked it with a satisfying click. The collar ensured that Sarah’s head remained facing ahead the entire time, she had no movement in her neck. A black strap was then applied that went under her chin and on her forehead. Robert then pushed Sarah’s open mouth onto the rubber cock and then Sarah heard a click as the machine held her in place.
+
+“mmmmmppppfff,” was all Sarah could say as the rubber cock filled every inch of her poor mouth.
+
+Sarah could see that a bulge was forming in Robert’s pants, and she rolled her eyes. He really revelled in her humiliation, it seemed to be what he got off on.
+
+“Try to relax Sarah, you don’t have to do anything – the machine does all the work.”
+
+Robert kneeled in front of her and briefly groped her tits that were thrust outwards either side of the metal bar. He flicked her nipples and seemed to enjoy the moans that Sarah emitted from such a stimulation.
+
+Robert walked behind Sarah and out of her sight. Sarah could hear the roar of the motor as it kicked into life. She heard Robert adjust the knob on the console behind her and felt her head begin to move forward ever so slightly. Her mouth was forced along the length of the cock, and once she reached the shaft of the rubber cock her head was forced to move back along the rubber cock shaft. The thickness of the cock was consistent throughout meaning that there was never an opportunity for Rachel’s mouth to become loose from the cock and time for her to grab some air. She was breathing exclusively through her nose for the time being.
+
+“Now watch this,” said Robert as he adjusted the speed of the machine using the knob. “Time to go all the way to the max speed!”
+
+“mmmmmmmmpfpppppfffff,” Screamed Sarah as her head was violently thrust forwards and backwards along the length of the cock. Her huge melons were bouncing around in chaos as her body was thrust back and forth. Robert appeared in front of her and smiled clearly enjoying the view. He then disappeared behind her and adjusted the knob again.
+
+“Let’s set the speed to manual,” he said. “A nice happy medium.”
+
+Immediately Sarah felt the machine slow down. Her head was still moving back and forward along the cock by at a slower speed. She was extremely embarrassed at her situation. She could see one of the security guards looking at her through the corner of his eyes. She must look quite the site as she sucked this rubber cock, big tits bouncing wildly as she cried helplessly.
+
+“I have some personal commitments to attend to, but I will return at… Let’s say seven o’clock?” said Robert as he stood up.
+
+Sarah’s eyes went wide as she heard that she would be spending two hours on this wretched machine. Robert positioned the machine, so she was facing out towards the village.
+
+“There is a celebration in the village tonight, some Greek festival not quite sure what it is about but I know there will be fireworks in about half an hour. It is something to watch while you practice giving blowjobs.”
+
+Sarah was only able to glare to show her dissatisfaction and disapproval at her current predicament. Her words had been taken from her, she was being impaled on this phallic object and reduced to sucking it like a worthless whore. Robert smirked and blew her a condescending kiss as he walked towards the spiral staircase.
+
+Sarah entered a hypnotic trance as time passed. She grew accustomed to the rhythmic motion of her head bobbing forward and back and the whirring of the motor of the machine. She felt the cock become more and more slick with the saliva from her mouth as she sucked it. Sarah figured this was a new low point for her, since she had been turned into a mermaid she had: given handjobs, been tit fucked, given blowjobs and had penetrative sex with her new vagina – but this blowjob machine was so impersonal, she was literally just reduced to sucking a rubber phallic object repeatedly for no other reason than to practice the real thing. It was like the most graphic and inappropriate hobby she could imagine.
+
+Eventually Sarah saw a flash of light in the sky over the village where a firework exploded with a loud bang. Eventually there were more fireworks, and the sky was filled with a brilliant display of colour and light. Sarah wondered what the villagers were celebrating. Had this festival been two days previously Sarah wouldn’t have been in a nightclub but instead she would have been out in the streets mingling with the locals and learning about their culture. She had always been fascinated with the cultures of other countries. She wondered if she had been on the street would she still have met Robert Castellano. Probably not she figured, and she would be currently on a cruise ship with her boyfriend Hunter and her friends eating food and drinking on the deck, looking forward to the next location that was on the schedule. She had wanted to travel, to see the expansive world around her during the summer. She wanted to roam and explore. It was ironic that this desire for freedom had led to her captivity and imprisonment in the villa; her whole world had shrunk from endless possibilities to one where she was confined to a small room and a pool, with the world beyond her cordoned off to her. At least the view was nice, she thought to herself. If she had to pick anywhere to get kidnapped and turned into a sex-slave, then you could do a lot worse than Greece. At least the weather was warm, and it didn’t rain a lot. Sarah was used to the heat being from Arizona herself, so it didn’t bother her too much.
+
+Sarah remembered the first time her and Hunter had made out, it had been a few months previously. They had attended the local county fair and there were fireworks at the end of the evening. Sarah and Hunter had kissed each other passionately and made out in the car as the fireworks exploded all around, bursts of light to signify their blossoming romance.
+
+“Poor Hunter,” Sarah thought to herself. “He will be devastated when they find out that I am missing, he loved me, and I loved him. We were meant for each other. He will never get over my disappearance,” thought Sarah.
+
+Sarah watched the firework show as it continued for the next hour. She could see that the locals had taken to the street to celebrate, she could hear music and laughter carry over the forest. She wondered if any of them were aware of the monster that was Robert Castellano, and that he lived a stone's throw away from them. He could see the entire village from his villa, it was almost like he oversaw the entire island. Maybe he did, thought Sarah. The thought sent chills down her spine.
+
+After what felt like an eternity, Robert finally returned and turned off the machine. He unstrapped Sarah and took her out of the machine. Sarah rubbed her jaw as it ached her something fiercely.
+
+“Don’t worry about the pain Sarah, you will get used to it. After all, you will be spending time with this machine every day!” said Robert.
+
+“Every day?” gulped Sarah.
+
+“Each and every day Sarah. You are going to give the best damn blowjobs that womankind has to offer, or should I say mermaid kind in your case?”
+
+Sarah knelt in front of Robert, too tired to argue with him. She just wanted to go to bed and pretend the last few days didn’t happen and that she was at home or working in the labs of her university. Anywhere but here where she was reduced to a topless mermaid freak.
+
+“Time to watch some TV,” said Robert. “My treat.”
+
+“Wow, you are so generous,” retorted Sarah.
+
+“Watch your tone, tits!” warned Robert as he picked Sarah up and held her in his arms. He took her into her room and placed her on her bed. He picked up the TV remote and opened a streaming site and began browsing the movie selection. To Sarah’s surprise he went to the romantic section. Sarah left out a chuckle.
+
+“What’s so funny,” asked Robert defensively.
+
+“It’s just I didn’t picture you as the romantic type. You know on account of drugging women and having them turned into mermaids.”
+
+Robert selected a romantic comedy movie, which coincidentally starred Johnny Anderson. Robert and Sarah both sat back against the headrest of the bed as the movie started.
+
+“Don’t you find any of this romantic Sarah, a man so obsessed with you he is willing to risk it all to have you. A man who wants nothing more than complete and utter ownership of your body, mind, and soul. A man who wants to spend the rest of his life with you, a man who can provide you with whatever material needs your heart desires,” said Robert.
+
+“You kidnapped me, remember? You drugged me, had my clothes stripped from my body, had my breasts enlarged to ludicrous proportions, mutilated my legs and gave me a tail, forced me to suck and fuck all your rich friends and are currently keeping me as prisoner in your own home – is there anything I missed?” asked Sarah sarcastically.
+
+“You still don’t understand the gift I have given you. You don’t have responsibilities or commitments. You don’t have to worry about the nine to five rat race, worry about meeting a man and working sixty hours a week to afford a shoestring apartment where you can barely afford to raise a family. You don’t have to worry about bills, clothing, food – the essentials. Everything you could ever need is here for you, and you are being provided for. You are a creature of pure desire and pleasure, let it consume you – let your sexuality run free. Your boyfriend Hunter could never give you what I have given you,” said Robert.
+
+“I loved Hunter,” Sarah said with tears in her eyes. “He was sweet, kind, gentle – he respected me and loved me for who I was. We were meant to be together forever, me and him, him, and I. You took that away from me, from him, from both of us!” cried Sarah. She stared down at her huge tits and shed a tear and felt it land on her breasts and trickle down and around her large and proud nipple and then it followed the curve of her breast, until finally dripping onto her flat and toned stomach.
+
+“Sarah,” said Robert as he gently cupped her face. “I see you; I see the real you. I see the Sarah that no one else can see, the first time I saw you, from the very first instant I knew you were special. I knew you were the one. This body,” said Robert as he guided her gaze down towards it, “this is what you were meant to be, a siren, a mysterious beautiful and sensual creature: a mermaid! It was your destiny to come to Greece, to meet me in that bar that night. I had waited for years to find the right woman, and the moment I laid eyes on you I saw the creature locked within. You think that I changed your body, but the truth is that I did not – I merely unlocked the real Sarah that was hidden within,” said Robert as he laid a kiss on her lips. He reached down and gently began to stroke her slit, eliciting a moan from Sarah. He looked deep into her eyes as he slowly worked her slit.
+
+“Faster,” said Sarah. Despite hating this man, she was consumed by pure carnal desire. She leaned back against the headboard as Robert’s rubbing became more vigorous. He started to gently knead her breasts and kept kissing Sarah on the lips. Sarah bit Robert’s lip as she approached her orgasm. She knelt on top of him as he worked her vagina with his tongue and continued to play with her nipples.
+
+“Oh yes, OH YES!” screamed Sarah as she reached her climax. She shuddered and collapsed into Robert’s arms as she was raked by a massive orgasm. Robert gently brushed her hair as she lay on his chest, her massive boobs squashed against his chest.
+
+They stayed like this for some time before Sarah silently disentangled herself from him and sat back against the headboard, full of embarrassment, humiliation, and hatred for both herself and him. Neither of them said another word during the rest of the movie, neither of them needed to. There was nothing left to be said between them.
+
+Robert and Sarah fell asleep together in the bed. Sarah awoke to find that Robert had fallen asleep on her left tit, there was drool on her nipple. “Gross,” she thought to herself as she quietly wiped away the saliva. Sarah silently disentangled herself from him and sat on the edge of the bed. It was early in the morning and the sun was starting to rise. Sarah crawled from her room and towards the swimming pool. She could hear nothing, but the gentle hum of the swimming pool pumps and the squawk of a solitary bird in the distance. Sarah silently slid into the pool and swam towards the edge overlooking the village below. She found the water refreshing and enjoyed the early morning swim. She swam back to the edge of the pool and pulled herself out of the water. Sarah noticed that Robert had left his jacket on a chair beside the pool. Sarah crawled over to it and checked the pockets. She found cigarettes, wads of cash and a box of sleeping pills. An idea sprung into Sarah’s head: if she could steal a few sleeping pills at a time without Robert noticing or being aware of it over the next few months she could drug his morning coffee and use the time he was unconscious to get away.
+
+Sarah placed his items back inside his jacket and crawled back inside her bedroom. She curled back up beside Robert and for the first time in days she smiled, she had a plan of escape. It would take months as she would have to be careful, Robert was unlikely to notice a few missing tablets here and there if she spaced it out over a long period of time. She would just have to figure out a location where she could stash the drugs until she needed them.
+
+Robert was beginning to wake up. He draped an arm around her waist and pulled her tight. She could feel his cock harden against her back. “Just great,” she thought to herself, “he’s horny and wants to fuck.”
+
+“Good morning little fish,” said Robert sleepily.
+
+“Morning master,” replied Sarah. She just needed to pretend that she had accepted her fate and bide her time until the opportune time to escape presented itself. She wrapped her hand around his.
+
+“Good little fish,” said Robert as he pulled her closer. He flipped her onto her back and began to mount her, she felt his penis slide into her vagina, and he began to vigorously thrust in and out of her. He planted deep kisses deep within her mouth as he rode her. Sarah for her part was nearing orgasm, and Robert sped up his thrusts. Sarah screamed in ecstasy as she came, her entire body quivering as she was wracked by a huge wave of pleasure. Robert rolled off her and stood up beside the bed and began to get dressed.
+
+“I have a very important meeting today, so I won’t be back till later on to put you on the blowjob trainer,” said Robert. “One of my security guards will bring you breakfast when he can,” he said as he planted a kiss on her forehead. “I will see you later to do this all again, little mermaid,” said Robert as he exited the room. Sarah waited till she was sure he was gone up the spiral staircase before falling back into her bed. Sarah stared at the ceiling for what felt like an age. She was exhausted after the events of the past few days. She ran a hand along her toned flat stomach and up to her gargantuan tits and squeezed them.
+
+“I’m never going to get used to having these,” she said to herself. “I wonder if I can get breast reduction surgery when I escape,” she thought to herself. “I want to go right back to having A-cup breasts and nothing larger, I miss my small and pert boobs. I don't think there is much a surgeon can do about my tail though,” Sarah thought as he flapped her tail uselessly.
+
+She climbed off the bed and crawled over to the edge of the pool and slowly lowered herself into the warm water. There was a slight breeze today which helped alleviate the intense Greek heat. Sarah submerged herself under the water and swam along the pool, only surfacing for air. She was getting more comfortable swimming and increasingly found solace in the pool as it was easier for her to move, and she didn’t experience back pain as her boobs were essentially weightless in the underwater environment.
+
+Sarah swam to the edge of the pool and looked at the nearby village. She stayed there for what felt like hours just watching the hustle and bustle of people going about their daily lives, not a care in the world. She was envious of them; she had a monumental task in front of her. This escape plan of hers was going to take all of her cunning, intelligence and resilience and a dollop of luck to pull off. One wrong move and Robert would restrict her freedoms further and probably starve her too just for good measure.
+
+Sarah thought of her family and Hunter, they kept her going. She wanted to see her parents again and especially Rachel. Sarah didn’t trust Robert that he would provide medical care for her sister. She had no way of knowing that he would keep his word besides trusting him, and she certainly did not trust him. The last time she trusted him she woke up with a blue mermaid’s tail and a pair of massive, whopper O-cup size breasts. That is the reward that trust had gotten her.
+
+Sarah knew that Hunter would wait for her, he would never give up trying to find her. Laura too, they would be devastated by her disappearance. She just hoped that they would find her sooner rather than later, whilst she still had a shred of her dignity and her humanity left. She glanced over at the blowjob trainer machine on the pavement and shuddered, she knew she would be reacquainted with that machine later on this evening.
+
+Sarah watched as the sun rose on the village of Artemida. She suddenly felt homesick, she missed Arizona and she especially missed the University of Arizona. This semester she would have been studying Protein Structure and Function of the Cell Membrane. She had really been looking forward and excited for that module and that was the area she hoped to specialise in. Rachel’s disease was due to protein structure in her cells, and Sarah had dreamed of curing the disease for her sister. Everything she had done in life was to protect and care for her sister. Sarah shed a tear thinking of her sister alone without her. Sarah and Rachel had always been extremely close, they were inseparable – this trip was Sarah’s first time away from Rachel for an extended period of time. Rachel had been apprehensive on account of Sarah going on the trip and was worried for her. Sarah had assured her that nothing untoward or bad could happen, after all – she was only going to Greece! The cradle of civilization!
+
+Sarah submerged herself under the water and screamed in a fit of rage, air bubbles streaming from her mouth. She resurfaced and felt better. She hated Robert Castellano for what he had done to her body, for what he had made her do, for what he had made her think of herself and for separating her from her family and friends. He had ruined her life.
+
+Sarah spent the next hour floating on her back, imagining all the ways that she could kill Robert Castellano as she stared up at the sky. Her boobs were gently bobbing up and down in the water as she floated.
+
+“You need to calm down,” Sarah said to herself. “Rage won’t help you now,” she thought. Sarah decided she needed to be calm, cool, and calculating if she was to escape this horrid situation. She needed to bide her time and wait for the perfect moment to arise. And if that meant she had to play the submissive damsel in distress to achieve that then she decided, she would. She was going to get out of this fucking pool, of this fucking villa and off this Godforsaken Island and back to her lovely Arizona. Sarah swam to the edge of the pool and stared off into the distance.
+
+“I’m going to escape,” Sarah promised herself. “And then I’m coming back for you Robert Castellano, I don’t care how rich and powerful you think you are. I’m coming back. I’m getting my freedom and my life back,” she said aloud to no one in particular.

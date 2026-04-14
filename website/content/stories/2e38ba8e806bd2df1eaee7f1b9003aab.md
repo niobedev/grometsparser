@@ -1,0 +1,110 @@
+---
+original_url: https://www.boundstories.net/storiessz/sweet_caroline2.html
+subcategory: Bound Stories
+title: 'Sweet Caroline 2: More Caroline'
+authors:
+- iamacdtom
+tags:
+- F/m
+- bond
+- bdsm
+- foot worship
+- boots
+- blackmail
+- hum
+- office
+- oral
+- cd
+- fem
+- outdoors
+- toys
+- reluct/cons
+- X
+date: 2010-03-05 00:00:00
+---
+
+(story continues from [**Sweet Caroline**](sweet_caroline.html))
+
+Part 2: More Caroline
+
+The next day was Friday and much to my annoyance Caroline was working from home that day. It didn’t stop her acquiring my mobile number and thanking me for an interesting evening last night. She requested my home email account as she wanted me to send me something. First thing I did on my return home was load up the PC and access my email account (which is blocked on the office servers).
+
+The email was short and only contained a link to somewhere on the internet and a mobile number. I clicked on the link and downloaded a video of me wanking myself against the column in knee high boots whilst being whipped by someone out of shot. I looked like a slut too and the video address had my actual name in it. If anyone searched for me on the internet they would see this video and know it was me. I was BUSTED. Naturally I called the mobile number in the email, which was Caroline’s phone, and received instructions to turn up for work next morning (Saturday!) at 8am. She also said my video will stay available unless I comply. If I don’t comply I become famous at work for the wrong reasons.
+
+Saturday morning at work and Caroline and I are the only ones there. She is wearing red pvc knee boots with zippers along the inside and 5 inch spiky heels. She also has a long black skirt that falls to her ankles and a white shirt on. Her lipstick is cherry red and very shiny. She is trailing a carry-on luggage case, which I presume contains her working from home material. It actually contained a few more items than that.
+
+We arrive at her desk on the second floor and despite my questions and demands about the video she ignores me completely and demands that I strip naked. With the threat of my movie role becoming global I comply and strip naked. At this point she puts leather cuffs on me, locks them on with padlocks and fastens them close together with nylon rope behind my back. When she finishes off the knots I notice her scent. She smells fantastic, which added to the bondage produces an erection.
+
+She smiles at this, bends me over a desk and softly caresses my behind. My head swims with excitement and my balls tingle. Whilst bent over the desk she goes underneath it with some rope. She fiddles underneath for a moment and gets onto her knees once she’s ready. Out of her case she pulls out a large black butt plug and some minty lube. She generously applies the lube and teases it into my arse. The minty lube sends a cold shiver through me as the plug violates me. It’s snug and forces me open a little more than expected.
+
+Next she retrieves a 2 inch wide belt from the case. This she fits tightly about my waist. Then it’s a length of 1cm wide chain about 1 metres long. This gets looped via another padlock to the fastening position of the belt at the front of the body. The chain is fed around my swollen balls and cock, looped twice round them, under my frame and forcing the butt plug to remain where it is, up under the belt and over it, back under to the front, reinforcing the plug and finally locked in place by the waiting padlock that originally started the chastity device.
+
+“On your knees darling” she teases.
+
+Caroline positions me facing away from her desk, but allowing her to face the doors to the office floor which are about 20 meters away. On my knees with my hands tied behind me she moves forward and adjusts her skirt so the split allows my face access to her vagina. My view is of the black skirt bunched either side of her middle offering her slightly tanned flesh finished off by her shiny red patent boots. The smell is warm, rich and inviting whilst her opening glimmers and requires attention from my willing tongue.
+
+I’m an inch away from pleasuring my mistress when her nails from both hands clamp my head ceasing any further motion forward. My exhale stirs her scent deeper into my nostrils and I involuntarily twitch my chastised cock.
+
+“Go slowly and tease me NICELY” she commands.
+
+She follows this by relaxing the pincer nails in my head to a sharp scratching motion through my hair and finally down my neck. Her final movement drifts me into her and I start by placing my tongue on the bottom of her vagina and dragging it up along one of the sides. Although I can’t see her I know she has thrown her head back with her mouth open and let out a deep groan. I drag the tongue down the other side and give it a wiggle at the bottom. I do this a few more times with some of them going the other way around the loop. I can sense her frustration building, and eager to please my mistress, I finally treat her with tongue friction on her clit. I massage, suck and kiss all over her and glad she is clean shaven. The taste is divine and I can sense her juices on my face as I press into her reaching as deep as possible into her with my tongue.
+
+After some minutes she pulls me away slightly and tells me to play with just the vagina and leave the clit to her fingers. Her fingers do the magic for her while I do my best to help. My cock is aching to in on the action but so far I’m denied any gratification. She groans, arches and I feel her push out towards me and orgasms into my face. I dutifully continue licking and kissing until she finally retreats away from me. My face is covered in her juices and her new taste makes me crave some snogging and penetration.
+
+“You need some practice to perfect the skill, and you’ll get it. Once you’re at the desired standard you’ll start getting some rewards back. I have some jobs for you to do again so the sooner you start the better.”
+
+She attaches the rope under the desk to my cuffs behind me. Then she reverses me under the desk whilst pulling on the rope. The rope is looped round a base of the desk, so as she pulls it guides me towards the rear under her desk.
+
+“My boots need cleaning so you better start cleaning them. I expect them to be COMPLETELY spotless when you are done and the soles had better be clean too. Get your tongue working boy !!” she barks. She crosses her legs and slides her chair towards her desk. She can now work while getting her boots clean.
+
+The red pvc boots are cool and smooth and my tongue glides over them. They are clean to the eye apart from a few mud and dust specks about the base of the boots. I clean these away with my tongue and repeat the actions until she raises her crossed boot and forces me to suck on the heels. I move my mouth up and down the heel as if I was pleasuring a cock which is exactly what she wants me to do. She then forces the end of her toes deep into my mouth forcing my mouth to open as far as possible.
+
+Classical music starts to play in the background as she gets comfortable. 2 minutes later I hear the door clang open and I hear her shout greetings to some of her team who have joined her for overtime and double pay. Caroline’s desk backs against the far wall with only 1 person able to sit next to her and he is on holiday, so all the others will sit facing her or on desks further down. They can’t see me from their side, and would only see me if they came all the way round to speak to her. A cupboard blocks most of that view whilst the floor to ceiling window offers the light. Thankfully it’s the reflective kind so you can’t see in.
+
+The sole is rough and dusty and not pleasant. But I am keen to please. She re-crosses her legs and I work on the other boot which is just the same as the first. The music is loud enough to cover any noise I create by adjusting myself or knocking the rear of the desk with my toes.
+
+“Take them off please” she half whispers half blurts out at me. She uncrosses her legs and places a leg on my shoulder which pushes the heel past my ears but places the zips next to my mouth. I twist my neck sideways and clasp the zipper in my teeth and starting tugging he zip undone. It’s slow work and makes the usual slow unzipping sound but the music drowns it out. The zipper reaches the bottom and for a brief moment I wonder how the boot will actually come off her foot. She offers her heel side on to me which I hold with my mouth and she eases her foot from the boot.
+
+A new smell is apparent now in the confines under her desk. It’s the sweaty foot scent made from plastic and hot skin and it drives me wild. My throbbing cock twitches once more against its bonds, my balls tingle and the muscles in my arse close around the plug. I dive in to taste the feet, but sensing my pleasure she raises her foot and pushes my face away with toes about my nose. She then offers the other boot, and we complete the cycle again.
+
+Now she is bootless and allows me to lick her feet all over, suck endlessly on her toes and kiss her feet, calves and inner thighs. My tongue rattles between her toes and I finally notice that her toenails are perfectly manicured and coloured purple. I continue kissing, licking and sucking until my mouth is dry and my throat burns for watery relief. I cough slightly due to the dry throat and she senses the problem.
+
+To relieve the issue she takes out a bottle of water and slowly pours some of the content down over her knee, over her shins and onto her feet. From here it flows onto her toes and drops into my mouth. Most of it is swallowed but some of it dribbles on my chin and runs down my chest. Her legs have water veins on them and I remove them for her ensuring her legs look silky smooth again.
+
+The next 90 minutes were focused around Caroline completing the work she had going which left me as a footstool with the occasional cock rub from her bare feet. After this she announced to her friends she was off to the shops for a while and would be back in an hour or so. Her friends mentioned they were almost done too, and said they would switch the music off when they went. I was trapped under the desk, and if any of them came round Caroline and I were both busted. I knew the radio could be switched off from the other sides of the desks so that didn’t worry me too much. But if anyone came round I would die on the spot. She put her boots on and I heard her leave. I got myself as comfy as possible, closed my eyes and fantasised about my future. After 20 minutes the music fell silent and the others left. It was another hour before Caroline returned, with more bags and more bills for me to pay.
+
+She empties some contents from her bags, and puts some other contents inside. Then locks the case closed. She releases me from underneath the desk although my wrists are still locked from behind. I stand up and straighten as much as I can to relieve the stiffness. She is standing their looking fantastic, smelling even better with a dirty smile on her face. Her lips look like mirrors they have so much gloss on them. Caroline puts an arm over a shoulder and hooks her hand on my neck stroking it where the hair meets the open skin. She moves herself forwards to kiss me but stops just short. I try to make the gap but she doesn’t let me.
+
+“How much would you like me to kiss you now, our lips to rub and our tongues to wrestle with each other?”
+
+“I would give anything – DO anything” I wanted her so bad. I was destroyed.
+
+“Then you promise to stay at my home tonight ? Serve me and do my bidding ?”
+
+“Yes mistress, I belong to you. I will do anything for you”. I just wanted the kiss.
+
+She looks at me, and slowly draws herself to me and we kiss. Her lips are waxy from all the gloss, and I caught a slight scent of cherry. The kiss is slow and deliberate. Our tongues glide over each other and the second I start to drift into ecstasy she removes herself from the kiss.
+
+“Right then you pervy slave, my house tonight so here’s how it’s happening. Here are the clothes you will be wearing and here is your bus money with instructions on how to get to my house”
+
+She handcuffed my wrist cuffs together so that when she untied the rope I was still restrained. She then picked up her bags and her luggage and made her way to the doors. Just before she left she told me the key to the cuffs were on my desk. Then she was gone. All that was left was an envelope (containing some bus money, keys and the instructions) a plastic bag of clothes (contents unknown) and a medium sized ladies hand bag.
+
+By the time I unlocked the handcuffs she was long gone and I was all alone. She had taken my clothes so I was resigned to whatever she had in the bag. I was horrified with what I found, but I decided to open the envelope and read the instructions before I got dressed.
+
+The instructions were simple.
+
+Take off your bonds and plug, and clean yourself up.
+Put on makeup so you look like the picture in the envelope (lots of rouge & lipstick - slutty)
+Put on your new clothes
+Put the plug, cuffs, toys into the handbag – plastic bag to be binned
+Get on the 15 bus and get off at the stop after the supermarket
+Find number 36 on that street and ring the bell.
+Put on the handcuffs and turn around so I can see the cuffs clearly. Drop the cuff keys
+
+My head was pounding with excitement and dread. I had always fantasised about this but have never thought I’d be doing it, let alone being forced into doing it. I cleaned myself up as instructed, unlocking the chains and removing the plug and started applying the make up as best I could. I have to admit to doing it a few times before but this time I was very careful. Once finished my lips looked plump and fire engine red. My eye shadow was green and my cheeks were rosy. I had done a fair job, but looked a total tranny. I was gutted and couldn’t face going outside. I had to complete the course so examined the clothes once more.
+
+Caroline had left me with a pair of bright pink tights, a pair of 5 inch heeled white strappy shoes, a black leather coat that fell midway between the waist and the knee and a ginger bobbed wig. I looked like a total tranny in the outfit, especially with fake snake skin hand bag containing my goodies. I wanted to be home, safe in my bed, but I was trapped in a situation I had no control over but always secretly yearned for. Armed with bus fare and a handbag I decided to get it done. It was lunch time and it had started raining, HARD. Perhaps I would be saved after all. In the office I had a found an umbrella to hide under.
+
+Wearing the clothes I was given and the leather coat buttoned as much as possible, and hiding under the brolly it wasn’t as bad as it could have been. So I decided to leave and get it over with. It was quiet outside apart from the rain, so I made my way to the bus stop and prayed it wouldn’t be too long. Little did I know that the bus ride was the least of my worries……..
+
+I would love to get feedback from you as I hope continue the story, please give me your thoughts and suggestions - [iamacdtom@googlemail.com](mailto:iamacdtom@googlemail.com)

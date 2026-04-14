@@ -1,0 +1,921 @@
+---
+original_url: https://www.boundstories.net/storiesek/field_survey01.html
+subcategory: Bound Stories
+title: Field Survey
+authors:
+- Zack
+tags:
+- M/f
+- futuristic
+- bondage
+- slave
+- n/c
+- X
+---
+
+\*
+**The
+Star Fleet Series**
+Field Survey
+by Zack
+Copyright©
+2001, 2002. All rights reserved.
+
+Part
+One
+
+The Amalgamation Survey Ship
+Interloper moved in a synchronous orbit above the only landmass on the
+third planet of star P314159264. Three young women entered the Captain's
+office, and one said, "Junior Lieutenant Erig and Ensigns Mahoon and Regan
+reporting as ordered, Captain."
+
+Captain Goda returned their
+salute. "At ease, ladies. I've summoned you because we have an important
+field survey pending, and since that unfortunate incident on the holodeck
+last night we're now short-handed. I need three field surveyors and you
+are the only ones that have the necessary characteristics. I really dislike
+sending you out on such short notice but I have no choice. The ship has
+other commitments and we cannot remain here beyond our original departure
+date. Fortunately, this survey isn't difficult or dangerous. I'll give
+you a summary of what you'll be doing, and if you need more details you
+can get them later from the net."
+
+"This planet, which we have
+designated as Gamma, is apparently unique in the galaxy. Like all of the
+other inhabited planets it was seeded with life by the Elder Ones, and
+like all of the other planets it lost its technology in the Great Crash,
+when every computer in the galaxy locked up at the same time because of
+a date/time bug in the operating system. Unlike all of the other known
+planets, which lost all civilization and descended into savagery, Gamma
+was able to maintain its social order. Exactly why they were able to do
+this is a question that will keep the xenoanthropologists busy for years,
+but the tentative theory is that the physical characteristics of the planet
+are responsible. All of the habitable land is in the form of one compact
+continent without notable physical barriers, and the theory is that this
+inhibited the formation of warring factions. We've gotten some good images
+of the surface, and so far we haven't found a trace of any ancient or modern
+fortifications."
+
+"This political and cultural
+uniformity is a barrier to field surveying, however. On other planets the
+surveyor can pose as a foreigner, so that a bad accent or ignorance of
+an important custom can be easily explained. Obviously, that cannot be
+done here. The initial field survey was done by Lieutenant Breg, the ship's
+Xenologist, who posed as a mentally retarded mute and pretended to have
+a job as a sweeper in a university library. He was able to copy books and
+set up listening posts so that the language transplant could be prepared
+and so we could determine the basics of this culture. Now we need to know
+more about the larger society."
+
+"This is where you come in.
+You three will be disguised as peasant girls, our substitute for the ignorant
+foreigner. Gamma's technology is at a preindustrial level, and as is usual
+in such societies most of the population is employed in agriculture. Subsistence
+farming is so demanding that it is normal to have a rural population that
+is unsophisticated. Also, Gamma's orbit is so circular and its axial tilt
+is so small that there isn't much seasonal variation and crops are grown
+all year. This means there is no winter break that might otherwise allow
+the rural inhabitants time for intellectual pursuits."
+
+"Each of you will enter a
+major city and will gather information just as a real peasant might, by
+walking around seeing the sights and asking questions. Most city people
+think that peasant girls are ignorant and naive, so any gaps in your knowledge
+will seem plausible, and you can ask questions that a city child of five
+would know the answers to without arousing any suspicion. Compared to your
+other field surveys this will be easy. You said something, Ensign Regan?"
+
+"I, er, I haven't been on
+a field survey, Captain".
+
+"You haven't?" The Captain
+motioned to Erig and Mahoon. "Wait outside".
+
+When the door had closed
+behind them the Captain sat down behind her desk and ordered, "Sit down,
+Ensign, while I look at your service record."
+
+The Captain typed on her
+keypad and looked at the screen that popped up out of her desk. "Let's
+see... Sonji Regan, Ensign, Star Fleet Survey Service. It says here that
+you have been on board this ship for four months and that this is your
+first Fleet posting. It also says that you didn't attend the Academy but
+instead got your commission through the Officer Training Program at your
+home planet university. Is this correct?"
+
+"Yes, Captain".
+
+"You have been to Field Survey
+School, haven't you?"
+
+"Yes, Captain."
+
+"How much experience have
+you had outside of the Amalgamation?
+
+"Er, none, Captain. Until
+I went to Field Survey School I had never been out of my home city."
+
+The Captain sighed. "Under
+other circumstances I wouldn't do this, but I have no choice, I've got
+to send you. Look, all you have to do is enter a city, ask some questions,
+and leave the city. You can do that, can't you?"
+
+Sonji sprang to her feet.
+"Yes, Captain! Thank you, Captain!"
+
+"Get the others. There is
+one thing more."
+
+Sonji opened the office door.
+When the other officers were inside and the door was shut again, the Captain
+said, "You all know the First Directive..."
+
+Sonji chirped, "Never interfere
+in any way, however minor, with the culture of a non-Amalgamation society."
+
+"Thank you, Ensign. Now,
+as I was saying, you all know the First Directive is often bent if it gets
+in the way of an operation..." The Captain noticed Sonji's shocked expression.
+"well, most of you know it. Don't count on any slack now, though. Until
+the stink from that fiasco in Sector 4 dies down we're going to have to
+play it by the book."
+
+"What happened, Captain?"
+Erig asked.
+
+"Well, we don't know exactly,
+but the result was that an early iron age culture somehow got tactical
+nuclear weapons. What a mess."
+
+"Now, you three report to
+the Bio-computer Lab for your language transplant and then go to Survey
+Supply for your costumes and equipment. The Xenologist will meet you there
+to answer any questions. Dismissed."
+
+The three women saluted and
+left the office. Once they were well along the passageway Mahoon started
+to giggle. "Unfortunate incident on the holodeck. What an understatement!"
+
+"What happened? All I heard
+is that the three that were supposed to make these surveys are in sick
+bay in some kind of a coma."
+
+"Well, they gave themselves
+a party by going to the holodeck and activating that rough-sex scenario."
+
+"You mean the one where you're
+gang-raped by the space pirates?"
+
+"Yeah, that's it. Well, somehow
+the computer went into a loop and the scenario ran eight times before the
+techs could get it stopped. Luckily the safety backup worked so there wasn't
+any tissue damage, but it really messed up their minds. They're all under
+sedation now, and they all have this big smile on their faces."
+
+"Wow, I did that scenario
+just once and it really shook me up. Did you ever try it, Sonji?"
+
+"No. I've been conditioned
+to avoid bad sex."
+
+"Well, it's true that some
+of those holodeck scenarios are really bad. What do you consider to be
+good sex, Sonji?"
+
+"Good sex is when a husband
+impregnates his wife. Bad sex is everything else."
+
+Erig and Mahoon exchanged
+did-we-really-hear-that looks. "Why would you believe something like that?"
+Erig asked.
+
+"In my religion we believe
+that the way to Enlightenment is through the voluntary renunciation of
+physical pleasure. This is something I have known since I was a little
+girl. When I reached puberty I received the conditioning that now keeps
+me from being tempted."
+
+Mahoon said, "We've shared
+a compartment since you arrived on board and you know that I often have
+overnight visitors. Doesn't it bother you that I don't share your beliefs?"
+
+"No, you must find your own
+way to Enlightenment; it does not have to be my way. The only thing that
+bothers me are your moans and screams when I'm trying to sleep."
+
+Erig shook her head, "I'm
+glad I'm not of your religion. I wouldn't have a social life. Ah, here's
+the Lab."
+
+The language transplant took
+only a few minutes, and when it was over the three women were fluent in
+the language spoken on Gamma.
+
+A short walk brought them
+to the Survey Supply compartment. Waiting for them were the store keeper,
+a communications technician, and a lieutenant. Erig wrapped her arms around
+the lieutenant and gave him a passionate kiss.
+
+When they came up for air
+she said, "Hi, lover. You know Mahoon. This is Sonji Regan. Sonji, this
+is Thar Breg, the Xenologist. He'll tell us all we need to know about the
+planet."
+
+"Pleased to meet you, sir."
+
+"Yeah, me too. Listen girls,
+the shuttle departure time has been moved up so we've got to get going.
+We can save time if you change here while I talk. Roget, give me those
+costumes."
+
+The store keeper handed Breg
+three large bags, and he gave a bag to each of the women. "Here are your
+costumes. After you've changed put your uniform in the bag and I'll have
+it delivered to your quarters."
+
+Sonji opened her bag and
+examined the contents. She found a dress made from a coarse gray fabric,
+a knitted shawl, a pair of leather sandals, and a small leather purse containing
+a handful of copper and silver coins. She asked Breg, "Where is the underwear,
+sir?"
+
+"Peasant girls don't wear
+any. Hurry up and change."
+
+Sonji was stunned. "Here,
+sir? In front of everybody?"
+
+"You won't shock us. Do it,
+Ensign! That's an order."
+
+Sonji looked at the other
+women. Erig was naked and Mahoon had just pulled her dress over her head.
+Blushing all over her body, Sonji turned her back to the men, stripped
+off her uniform and underwear, and quickly put on the dress and the sandals.
+
+Mahoon examined her dress.
+The bodice was just a sack with holes for her arms and neck. A full skirt
+was attached at the waist and ended just above her ankles. She said, "Well,
+I wouldn't want to wear it to the prom, but it doesn't feel too bad. Do
+we get a change of clothing?"
+
+"No. In this culture clothing
+is expensive, because spinning, weaving, and sewing all have to be done
+by hand. Most peasants never have more than one dress at a time. Your dress
+is better than most, because it doesn't have any patches."
+
+Erig said, "At least we don't
+have to put on a lot of makeup. For one of my surveys I had to dye my skin
+green and paste phony antennas on my forehead."
+
+"Yes, all of you will fit
+in as is. Most people have brown hair like yours and Mahoon's, a few have
+hair as black as Regan's, and there are also blondes." He waved over the
+communications technician. "CT2 Aoki will give you your comm devices and
+test them out."
+
+Aoki gave each woman what
+looked like a wooden disk, about 5 centimeters in diameter and a half-centimeter
+thick. There was a hole near one edge with a leather thong threaded through
+it, and an eight-pointed star was burned into one side. Aoki said "This
+equipment contains an audio recorder, but it's sound activated so you don't
+have to worry about it. To activate the communicator pull on the thong.
+It will buzz to indicate you have contact, and then you can speak into
+the star or put it to your ear to listen. It will stay activated as long
+as you hold it in your hand. The signal also acts as a tracking beacon
+and we can locate you to within a couple of meters. Let's run a communications
+check. You first, ma'am." After all three women had made the check Aoki
+looked up from a test set and said, "All of the equipment is operable,
+sir."
+
+Breg said, "The star is the
+local deity symbol. These devices are made to look like the religious medallions
+that most peasant girls wear. Remember, the communicator is only to be
+used in emergencies, not for routine matters. It would be a violation of
+the First Directive if anybody saw you using it."
+
+Breg ordered, "Now listen
+carefully. We have selected three district capitols, one for each of you.
+The shuttle will drop you off just before dawn. You'll be as close as we
+can get without being detected, but you will still have about a half-day's
+walk to the city. Here is a list of the questions you should ask." He gave
+each woman a piece of paper. "Memorize the questions and leave the paper
+on the shuttle. It would be hard to explain where you got something written
+in an unknown language. When you get to the city just walk around, ask
+the questions, and record the answers. You have enough money to pay for
+food and lodging in a hostel for five days. After that walk back to the
+drop-off point and call in. You'll be picked up after dark."
+
+Mahoon complained, "What's
+with all of this walking? Don't they have horses on Gamma?"
+
+"Actually, they don't. The
+only draft animal they have is a small ox, which is powerful, but slow.
+Anyway, no peasant girl would pay for transportation when she could walk.
+Now, get your stuff together and let's get moving."
+
+Sonji wrapped a leather thong
+around her waist and tied on her purse, and then she picked up her uniform
+and put it in the bag. She didn't see Erig whispering into Breg's ear.
+
+Sonji put her shawl over
+one shoulder and started down the passageway towards the shuttle bay. Erig
+winked at Mahoon and said, "Thar, don't forget to tell Sonji about the
+bandits."
+
+"Oh, yeah. A gang of bandits
+has been reported near where you'll be. They've been robbing travelers
+and kidnapping women for ransom. They wouldn't do more than gang-rape a
+peasant girl, though."
+
+Sonji stopped, her eyes wide.
+She stayed that way until Mahoon grabbed her arm and pulled her away.
+
+Breg said to Erig, "Why did
+you want to do that?"
+
+"Just a little initiation.
+Besides, she'll be more alert if she's nervous."
+
+"You're a cruel slut."
+
+Erig kissed him. "Just the
+way you like me, lover." Then she ran towards the shuttle bay.
+
+\* \* \*
+
+Sonji walked down a dirt
+road toward the district capitol, Brombeg. It was mid-morning on a bright,
+pleasant day and the road was empty of other travelers. The weather reminded
+her of early summer on her home planet, but here some of the fields had
+crops ready to harvest, while in others the plants were just beginning
+to sprout. It had been cool earlier and she wore her shawl over her shoulders,
+but now it was so warm that she took it off and wrapped it around her waist.
+
+Some of the fields she passed
+were planted in grain, others in root crops or vegetables, and about a
+third were fallow and covered with grass and clover. Mixed in with the
+fields were woodlands of various sizes, from less than a hectare to almost
+a square kilometer. Sonji always grew tense as she neared the woodlands,
+expecting bandits to appear from behind the trees.
+
+Sonji was just leaving a
+dense patch of woods when she saw something that made her stop and gasp.
+Ahead of her the fields on both sides of the road were fallow, and it was
+about 50 meters to the next patch of woods. On the right, close to the
+woods and about 20 meters from the road, an ox hitched to an empty wagon
+grazed on the grass.
+
+Sonji was shocked by what
+she saw on the other side of the road. A rope was tied chest-high between
+two trees. Two women were standing with their backs to the rope, facing
+away from her. And she could see that the women's hands were tied behind
+their backs!
+
+Sonji's first thought was
+of bandits, and she ran towards the women without hesitating. Helping them
+to escape was her only concern. The women heard her running and turned
+toward her.
+
+Sonji asked the nearest woman,
+a blonde in a light blue dress, "Where are the bandits?"
+
+"Bandits? What ban... Oh,
+yeah, the bandits! They're close. Get me loose, quick!"
+
+Sonji examined the woman's
+bonds. Her right arm had been put though a loose loop in the rope tied
+between the trees, and a wide leather strap around her wrists held her
+hands palm-to-palm. The strap was fastened by a brass clamp instead of
+a buckle.
+
+Sonji asked, "How do I get
+this clamp open?"
+
+"Look at the clamp end closest
+to the free end of the strap. See those two tabs coming up from the base?
+Pins in the clamp handle spring into holes in those tabs. You have to push
+both pins in."
+
+Sonji located the pins. She
+looked on the ground and found two sharp twigs, and after some fumbling
+she was able to push in the pins and lift the clamp handle. As soon as
+the strap was loose the blonde pulled her arm out of the loop and ran into
+the woods.
+
+Sonji heard heavy footsteps
+coming from the direction of the road and turned to see a heavy-set man
+running towards her. He was shirtless and his left hand was holding up
+his trousers. He had a wooden cudgel in his right hand and he raised it
+overhead as he got close to Sonji. She used a move she had mastered in
+her self-defense classes and kicked him in the groin. He fell to the ground,
+emitting loud groans.
+
+Sonji turned back to the
+other woman and said, "Now I'll get you loose."
+
+The woman backed away and
+exclaimed, "Not me!"
+
+Sonji was surprised. "But
+you're a prisoner! Why don't you want me to free you?"
+
+"Of course I'm a prisoner,
+I'm on my way to jail. But I only have to serve 50 days, and I don't want
+an escape charge added on to that."
+
+"You mean that man isn't
+a bandit?"
+
+"No, that's the jailor, Hodg.
+He's a piece of shit. The other jailor over there in the wagon is Madii.
+They tied us here while they took a fuck break."
+
+Sonji looked over at the
+wagon. A naked woman stood up in it and dropped a dress over her head.
+"Why did that blonde run away?"
+
+"Oh, that's Flixee. She was
+sentenced to three years I.S. for fraud. I guess she figured she didn't
+have much to lose. My name is Jonii, by the way."
+
+"What's I.S.?"
+
+"Involuntary servitude. You're
+a peasant girl, aren't you?"
+
+Sonji walked over to Hodg,
+who had recovered enough to get to his knees, and said, "I'm sorry, I seem
+to have made a mistake...Oooff."
+
+Hodg punched her in the solar
+plexus. She fell down and he turned her on her stomach, pulled her hands
+behind her, and strapped them palm-to-palm. Then he pulled a piece of thin
+rope from his pocket and made a harness by running each end of the rope
+forward over a shoulder, back through an armpit, and tying the ends together
+in the middle of Sonji's back. He took out a wide belt, looped it around
+her arms just above the elbows, and pulled until her elbows almost touched.
+He used more rope to cinch the center of the belt to the harness. Then
+he tied her ankles together, ran a rope from them to the cinch on her elbows,
+pulled until her feet touched her hands, and tied off the rope.
+
+He stood up, kicked Sonji,
+and shouted, "Madii! Bring the wagon over here."
+
+Hodg walked, bent over, to
+the trees and untied the rope holding Jonii. When the wagon arrived he
+helped her get into it and she sat on the floor. Madii tied one end of
+the rope holding Jonii's arm to a ring at the front of the wagon.
+
+Hodg picked up Sonji and
+tossed her into the wagon. She landed heavily on her side and screamed
+in pain. Hodg climbed into the wagon, jammed a wooden bit gag into her
+mouth, and fastened the straps behind her head.
+
+"That'll keep you quiet.
+You can think about your future. Let's see, assaulting a judicial officer,
+ten years. Aiding an escape, three years plus the escapee's time. You've
+got sixteen years of I.S. ahead of you, slut."
+
+Hodg pinched Sonji's nipples
+and she squealed from the pain. Madii turned around and shouted, "Hodg,
+you piece of shit! Get your hands off her and get up here!" Hodg climbed
+onto the seat and Madii urged the ox forward.
+
+The wagon had traveled no
+more than half a kilometer when Madii was stopped by a farmer standing
+besides the road. The farmer's left hand was tangled in Flixee's blonde
+hair as he held her bent over with her head at waist height. Her wrists
+were crossed and tied behind her back with thin rope.
+
+He said, "I think I got something
+you folks lost."
+
+"Yeah, she's ours. Where
+did you find her?" Madii asked.
+
+"She came to my house and
+asked me to loan her some money so she could get to town. She said she
+was a kidnapped heiress and her father would give me a big reward. But
+I was in my field and saw you tie her to the trees while you ah, rested."
+He leered at Madii, who blushed. "Blondes are so much smarter than most
+folks that they sometimes think everyone else is stupid."
+
+"Good job. Getting her back
+now will save a lot of trouble. You can apply for a reward."
+
+The farmer smiled. "Oh, I've
+had a reward already. She did everything she could to persuade me not to
+turn her in."
+
+He handed Flixee up to Hodg,
+who sat her on the floor next to Jonii and strapped her right ankle to
+the rope holding Jonii's arm. Hodg got back on the seat and the wagon moved
+on.
+
+Several hours later the wagon
+was still moving. Sonji's arms and shoulders hurt so much that she was
+sobbing into her gag.
+
+Flixee said, "The girl is
+really hurting. Can't you loosen the ropes a little?"
+
+Hodg replied, "I'm hurting,
+too. We'll be at the jail in less than an hour. Shut up or I'll gag you."
+
+Flixee muttered to herself,
+"Hodg, you're a piece of shit."
+
+The wagon entered Brombeg
+and traveled along the city streets until it stopped in front of a wooden
+gate in a high stone wall. Hodg got down and pounded on the gate until
+it was opened from the inside, and Madii drove the wagon into a large courtyard
+and stopped the ox. She got into the back of the wagon, unstrapped Jonii's
+wrists, took the loop off of her arm, and refastened her hands behind her
+back. She unstrapped Flixee's ankle, helped both women out of the wagon,
+and led them towards the jail.
+
+Sonji screamed as Hodg picked
+her up by the rope attached to her ankles and elbows and carried her into
+the guardroom. He dropped her on the floor and said to the duty Civil Guard
+sergeant, "I want this slut arrested for assaulting a judicial officer
+and aiding an escape."
+
+The sergeant asked, "Are
+you the one she assaulted?" He looked at Sonji, who was lying on her stomach.
+"She really looks dangerous. You were lucky to escape with your life. How
+long have you had her trussed up like that?"
+
+"Couple of hours."
+
+"I'll bet. Hodg, you are
+a piece of shit."
+
+Hodg flushed. "I don't care
+what you say. If a judicial officer makes a complaint the law says you
+have to make an arrest."
+
+"Yeah, yeah. The complaint
+book is on that table. Fill in your part and then get out of my sight.
+I'll get information from the girl once she's able to talk."
+
+He walked over to Sonji,
+took out a knife, and cut the ropes off of her ankles. He cut the shoulder
+ropes and the cinch at her elbows and took off the belt. He took out a
+clamp tool, a U-shaped piece of wire with the ends bent in, and used it
+to release the clamp on the strap that held her wrists. Sonji's arms were
+purple and dangled limply at her sides as the sergeant picked her up and
+put her into a chair.
+
+Sonji moaned as the sergeant
+took out her gag. She croaked, "Water, please, water."
+
+The sergeant took her limp
+arms, crossed her wrists in front of her, and loosely fastened them with
+the strap. He got a jug of water and a pottery mug from his desk, poured
+water into the mug, and held it to Sonji's lips. She drank some and said,
+"Oh, thank you. My mouth was so dry."
+
+"I need some information
+from you and then I'll put you in a detention cell and you can rest. First,
+what's your name?"
+
+"Sonji".
+
+"How do you spell that?"
+
+Sonji realized that she didn't
+even know the alphabet of the local language. On Gamma she was completely
+illiterate. She whispered, "I don't know."
+
+The sergeant wrote ZONGEE
+on the form. "How old are you?" Sonji paused to calculate the difference
+between a Gamma year and her home planet's year. The sergeant looked at
+her innocent face and wrote down '18'. He put down BROMBEG as the place
+of residence.
+
+The sergeant picked up Sonji
+and carried her to a door in the back of the room. He kicked on the door
+and a sturdy woman opened it. He said, "Pre-trial detention." and followed
+the woman into the cellblock.
+
+The woman opened an iron-bound
+wooden door with a key from the ring attached to her belt. The sergeant
+carried Sonji into the cell and put her down on a wooden bench attached
+to the back wall. There was an iron collar connected to a ring in the wall
+over the bench by almost three meters of heavy chain. The woman closed
+the collar around Sonji's neck and fastened it with a large padlock, and
+the sergeant removed the strap from Sonji's wrists.
+
+The sergeant ordered, "She's
+had some rough treatment. The doctor should look at her."
+
+"The doctor is here now;
+I'll bring her over. I can search the girl at the same time. What happened
+to her?"
+
+"Hodg brought her in."
+
+"Hodg is a piece of shit."
+
+By the time the doctor arrived
+Sonji was in a lot of pain from the returning circulation. The doctor had
+her drink a cup of bitter liquid and she was soon asleep.
+
+Sonji woke up to find the
+cell illuminated by dim light from a small barred window high in the wall
+over the bench. She was lying on her back, wearing her dress and covered
+by her shawl. Her arms hurt and her bruises ached, especially the place
+on her thigh where Hodg had kicked her.
+
+She struggled to a sitting
+position on the bench and adjusted the collar so the chain dangled in front.
+She stood up and went to a stinking wooden bucket, squatted over it, and
+relieved herself. She found a pottery jug and drank some water. She went
+back to the bench, stretched out on her back, and fell asleep.
+
+The sound of the cell door
+opening woke up Sonji and she looked over to see a woman slide a wooden
+bowl across the floor and close the door. Sonji got the bowl and sat on
+the bench; the bowl was filled with porridge and there was a wooden spoon.
+Sonji hadn't had anything to eat since she left the shuttle and she was
+very hungry. The porridge was bland but filling, and Sonji scraped the
+bowl clean before she put it back on the floor.
+
+She heard a shout from outside
+and found that if she stood on tiptoe on the bench she could just see out
+of the window. A courtyard was bright with morning sun and about twenty
+uniformed men were lined up near a gate in the wall. Sonji recognized the
+man standing in front of the rank as the guardsman who had been kind to
+her yesterday. He shouted something and the rank broke up. Sonji guessed
+that this was the morning muster. The weight of the chain was pressing
+the collar painfully into the back of Sonji's neck, so she lay back down
+on the bench.
+
+She inventoried her possessions.
+Her money and sandals were missing, but she had her dress and shawl. She
+raised a hand to her chest but she couldn't feel her communicator. She
+used both hands to feel her neck and back but soon there was no doubt.
+Her communicator was missing.
+
+Sonji considered her situation.
+She was chained to the wall of a jail cell. No one on the ship knew what
+had happened to her, and even if they did know they couldn't help her if
+it violated the First Directive. She was going to be treated as if she
+were an actual peasant girl. Sonji felt panic and then fear. Sixteen years
+in prison! She would be almost forty when she finished her sentence. She
+said to herself, "I'm a Star Fleet officer. I must be brave!", but the
+thought of spending her youth in servitude on a backwater planet was too
+awful. She started to cry.
+
+Sonji cried for a long time
+and then fell into a fitful, broken sleep. Once again the sound of the
+cell door opening woke her up. A woman put a wooden bowl and a small loaf
+of bread on the floor and relocked the door. Sonji was too depressed to
+be hungry, but she made herself get the food. The bowl contained warm vegetable
+soup and the bread smelled fresh. She forced herself to eat and was surprised
+by how good the food tasted. She ate it all and then drank some water and
+squatted over the bucket.
+
+The chain was so heavy that
+she was comfortable only when she was laying down, so she got back on the
+bench. She tried to empty her mind and pass the time with sleep, but before
+long some memory would come to her. Her family back on her home planet.
+Her friends from the university. Even the cramped compartment on the Interloper
+that she shared with Mahoon. She thought of her bleak future and how long
+it would be before she saw a familiar scene or a friendly face. Then the
+tears would start.
+
+The sun was sending a yellow
+beam of light through the cell window when another meal arrived. This time
+it was a bowl of stew and more bread. Once again Sonji forced herself to
+eat, drink some water, and use the bucket.
+
+The sun was down and the
+cell was getting dark when the cell door opened one more time. A woman
+came in and picked up the empty bowls and put them into a basket on a cart
+outside the cell, and exchanged the water jug for a full one she got from
+a lower shelf on the cart. The cart rolled out of sight and another one
+took its place. This one carried a stinking barrel. Another woman came
+in, took the latrine bucket, and emptied it into the barrel. She poured
+some water into the bucket and brought it back into the cell. Sonji looked
+at the woman. It was Jonii! Jonii smiled at her but didn't say anything.
+Finally, a woman with keys at her belt looked into the cell and made a
+mark on a tablet. The door was locked and night left the cell in blackness.
+
+The next three days were
+the same. Sonji had gotten better at blanking her mind and she didn't cry
+much. Her arms had stopped hurting and her bruises were changing to vivid
+colors. She spent as much time as possible on the bench with her eyes closed.
+
+Her sixth day in jail started
+the same way, but about an hour after the morning meal a woman came into
+the cell. She looked to be about forty, and she was smartly dressed in
+a gray jacket and a pleated gray skirt. She carried a rectangular case
+made of polished wood and a folding camp stool. She waited until the cell
+door was closed and then she unfolded the camp stool and sat on it. She
+put the case on her lap, opened the top, and took out several sheets of
+paper.
+
+She said, "My name is Lornee.
+I am an advocate, and I have been appointed by the court to be your representative."
+She raised an eyebrow. "Unless you want to hire someone else?"
+
+Sonji sat up. This woman
+reminded her of Captain Goda. "No, ma'am. I don't have anyone else."
+
+Lornee looked at a printed
+form. "Your name is Zongee?"
+
+"Sonji. Please, ma'am, will
+I have to go to prison for sixteen years?"
+
+Lornee looked surprised.
+"Why do you say that?"
+
+"That's what Hodg told me."
+
+"Hodg is a piece of shit.
+First of all, the aiding an escape charge has been dropped. Flixee was
+never reported as missing, so there wasn't any escape to aid. Second, the
+maximum sentence for assaulting a judicial officer is ten years, but you
+wouldn't get that much time unless you had a long history of violence.
+On the other hand, the court considers any attack on its officers as an
+attack on the court, so it tends to deal harshly with this kind of offense.
+I've read Hodg's statement, and he says you attacked him from behind with
+a club, without any provocation. Madii backs him up."
+
+"But that's not true!"
+
+"Knowing Hodg, I don't doubt
+it. You tell me what really happened."
+
+Sonji related her story.
+When she finished Lornee said, "I talked with Jonii and she agrees with
+what you said, although we both wonder how anybody could seriously believe
+there were bandits in the area, or that they would leave woman captives
+unguarded."
+
+Lornee sighed. "I hate to
+tell you this, but I don't think you have a chance of being acquitted.
+It comes down to your word against Hodg's and Madii's. Jonii and Flixee
+are both convicts and their testimony wouldn't have much weight. Your best
+chance for a light sentence is to plead guilty. If you express remorse,
+and the judges take into account your age and background, you won't get
+more than a few years I.S."
+
+Lornee thought, 'If you look
+like that in court, with that innocent face, that woebegone expression,
+and those tear-stained eyes, the judges will have to have hearts like kidney
+stones to give you any more than that'.
+
+"You know best, ma'am. I'll
+do as you say."
+
+"Your court appearance is
+scheduled for the first thing this afternoon, and I'll meet you there.
+Don't worry, everything will work out." She put the papers back in her
+case, stood up and folded her camp stool, and knocked on the cell door.
+The door opened and she stepped out of the cell. She looked back at Sonji
+and smiled. The door closed.
+
+Sonji sat on the bench, with
+tears of relief running down her face. For the first time in days she felt
+some hope. She thought, 'Maybe I won't have to spend all of the best years
+of my life on this planet!'
+
+Sonji ate her noon meal and
+had just finished using the bucket when the cell door opened and the woman
+with the keys came in, followed by a uniformed guardsman carrying a handful
+of leather straps.
+
+The woman dropped Sonji's
+sandals on the floor and said, "Put them on."
+
+When Sonji had done this
+the guardsman took a wide leather strap and clamped an end to each of her
+ankles. She spread her feet and found the maximum allowed by the strap
+was about 30 centimeters. She could walk, but she couldn't run. The woman
+took a key from her belt, unlocked the padlock, and removed the collar
+that had been around Sonji's neck for almost six days. Sonji rubbed her
+neck, happy to be free of the weight.
+
+The guardsman commanded,
+"Stand up and turn around."
+
+Sonji quickly did so, and
+the guardsman put a thick belt around her waist and buckled it in the back.
+There were straps riveted to the belt, and he used them to fasten Sonji's
+wrists just in front of her hips. Sonji found that she could just make
+her fingertips touch.
+
+The woman folded Sonji's
+shawl and tucked it under Sonji's left arm, and then put the communicator's
+thong around her neck and put the medallion inside her dress. She said,
+"Your money will be held by the court."
+
+The guardsman took Sonji
+by the arm and led her out of the cell and down a corridor to another door.
+He knocked and a peephole opened and an eye peered out; then the door was
+unlocked and opened. They went though it and down another corridor and
+through an unlocked door into the courtroom.
+
+Sonji looked around. To her
+left was a large desk with three chairs behind it. To her right were maybe
+twenty benches, in two rows with an aisle between them. The only other
+people in the room were three old men sitting on the bench farthest from
+the desk, against the back wall. Sonji panicked when she didn't see Lornee,
+but just then a door in the back wall opened and Lornee walked down the
+aisle and over to her.
+
+Lornee said, "We'll start
+soon. Let's go sit down." She led them to a bench in the front row and
+sat down. Sonji sat next to her and the guardsman sat just behind Sonji.
+
+"Let me do all of the talking.
+Don't say anything unless I give your arm a squeeze. When you are asked
+if you want to say anything before sentencing tell them how sorry you are.
+Cry if you can."
+
+A clerk came into the room
+from a door behind the desk and said, "All rise. Criminal court for Brombeg
+district is now in session."
+
+Three judges in gray jackets
+and gray trousers with a red stripe along the outside seam came into the
+room and sat in the chairs behind the desk. The one in the middle looked
+at some papers and said, "Case number 3141. Assault on a judicial officer
+alleged against Zongee. Is the allegent present?"
+
+Lornee took Sonji's arm and
+led her in front of the desk. "Yes, Excellency, this is Zongee. I am Lornee,
+her advocate."
+
+"How does the allegent answer
+this charge?"
+
+"Guilty, Excellency. We request
+immediate sentencing."
+
+"Granted. The convict may
+make a mitigation statement before sentencing."
+
+Lornee squeezed Sonji's arm.
+Sonji started to cry and wailed, "I'm so sorry! It was a terrible mistake!
+I didn't mean to hurt anybody." She was now sobbing so hard that she couldn't
+speak. Lornee put her arms around Sonji and patted her back.
+
+The judge announced, "We
+will recess for a judges' consultation."
+
+Lornee led Sonji over to
+the bench and they sat down. She held Sonji until the crying stopped and
+then got a cloth from her case and dried Sonji's tears. She whispered in
+Sonji's ear, "Very convincing!"
+
+Sonji looked puzzled and
+said, "What?" Before Lornee could say anything else the judges returned
+and they moved in front of the desk.
+
+The judge said, "Assaulting
+a judicial officer is a very serious offense. It is a crime of violence,
+directed not only against an individual but against justice itself. Even
+allowing for the convict's youth and inexperience we are obligated to deal
+with her harshly. Zongee, you are sentenced to one year of involuntary
+servitude. You are placed in the custody of the Warden of Prison Farm Number
+Four. Court is adjourned."
+
+Sonji had experienced increasing
+terror as the judge spoke. When she realized that she had been sentenced
+to only one year I.S. she swooned and Lornee held her up until she recovered.
+
+Two women in tan dresses
+moved up to them and one said to Lornee, "I'm a keeper from PF 4. I now
+take custody of the slave Zongee."
+
+Lornee moved in front of
+Sonji, held her head with both hands, and kissed her on the lips. Lornee
+had tears in her eyes as she said, "Good-bye, Zongee. I'll never forget
+you."
+
+The keepers led Sonji away
+to begin her new life as a slave.
+
+End of Part One 
+Field
+Survey continues in
+**[Part
+Two](field_survey02.html)**_
+
+_Copyright© 2001, 2002
+by Zack. All rights reserved.
+I welcome your comments.
+Email me at zack\_writer@hotmail.com
+
+16.06.02
+
+story continues in [**Field Survey**](field_survey02.html)
+
+o0o

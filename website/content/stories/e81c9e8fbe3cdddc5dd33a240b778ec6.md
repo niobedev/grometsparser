@@ -1,0 +1,276 @@
+---
+original_url: https://www.boundstories.net/storiesek/a_game_for_some6.html
+subcategory: Bound Stories
+title: A Game for Some
+authors:
+- Walt A.K.A. Xan
+tags:
+- M/f
+- bond
+- spank
+- cane
+- hum
+- costume
+- roleplay
+- cons
+- X
+date: 2020-07-26 00:00:00
+---
+
+Continues from [part fiv](a_game_for_some5.html)
+
+### Part 6
+
+“Of course, I’m nervous. I’ve never been married before,” I said to Sam.
+
+“You love her don’t you,” he asked?
+
+“Yeah. I really do. She sates everything I want out of a woman, but…”
+
+“But what? Janey doesn’t ‘love you’ enough? She’s not ‘submissive’ enough for you? She doesn’t love ‘bondage’ as much as you do? She won’t dress to suit ‘your desires’? She’s not doing ‘everything’ in her power to please you? What? Damnit buddy, just cowboy-up and marry the woman. You are not getting any younger and you sure as hell are not going to find anyone better than Janey. How nervous do you think I was before marrying my best friend’s woman? He was a trained killer, doing it on a regular basis for Uncle Sam. Shit yeah, I was nervous too.”
+
+“Well, there is that,” and both of us laughed while Sam helped me into the jacket of my white tux. I put my new white Stetson on, and I was ready.
+
+We walked out of my bedroom, through the kitchen and dining room, took a right down the central hall and into my very own saloon which was my idea of a living room. This room was twenty by thirty and looked as good as a Hollywood set. To my right, as I faced the door, was the bar. On my left was the player piano and under the stairs going up to the guest bedrooms was the brass bed. In between were round tables for poker, drinking and just socializing. There were also two wooden posts supporting the rooms above.
+
+Janey was tightly tied to the post closest to the piano, with an excess of hemp rope around her body. Dressed in a crème-colored gown, that was lacey and very low-cut to show off her magnificent boobs, Janey’s eyes were bright and happy over the white Kerlix-gauze gag wrapped around her mouth. Her long-sleeved dress came down to the top of her white bondage-boots which sported a six-inch stiletto heel.
+
+Built-in straps at the top of each boot placed around each of her calves locked the boots on. Another strap around each ankle also locked the boots on. Their flat locks could only be opened with a special key, making voluntary removal of these boots impossible, short of cutting them off of her. Although they were locked on her feet, whoever had tied her to the post had tied ropes around her feet, just like I wrapped around her to tie her pumps on.
+
+Her arms were tied behind the post and her elbows were touching, pushing her chest out even more. Her extended fingers and hands were held together with white Kerlix-gauze and it was clear to everyone that Janey was quite helpless.
+
+Standing on her right was Beth, wearing a strappy, floor-length, grass-green, silk gown that was ‘painted-on’ tight, with a V-neck and a slit on the side to show a full length of leg. For the occasion she wore color-coordinated, five-inch, cage sandals and long, grass-green, satin gloves on her arms. Around her neck was a two-inch wide, white-leather collar, studded with Swarovski crystals, with matching, white leather wrist cuffs. The collar and cuffs were all locked on.
+
+Lately, Beth had been catering to her fetish for long, slinky gowns, cut up the side. It wasn’t anywhere near a western theme, but she looked so damned good that no one noticed or cared. Especially when her nipples tented the silk. They were flinty-hard from how excited she was that she was standing up for the woman that was soon to be ‘my’ slave/wife.
+
+On Janey’s left was Vonny. She was dressed in a gray, long-sleeved, western-styled, leather mini-dress, black tights and grey, over-the-knee boots with a four-inch wedge. Grey was the concession she’d made with the girls to get her out of the black clothes she constantly wore. I thought she looked cute.
+
+Like Janey needed any coercion to marry me, but in going with the whole western theme, both women cradled nickel-plated, side-by-side, coach-guns, making this a true shotgun wedding. Both were smiling, and barely able to suppress their giggles.
+
+When Sam escorted me in, I gave Janey a long hard look up and down, carefully inspecting her bondage. With a hand on each side of her head I spent several long moments staring into her eyes and then kissed her over her gag. She shivered and her eyes glazed over as I heard her say, “I wuv ooo.” Obviously, her mouth was not fully packed with a wadding. I unwound the Kerlix-gauze and let her spit the wadding out into my hand. It was a small pair of white silk panties. I put them in my pocket and then I kissed her again.
+
+I took my position next to Janey on her right. Beth moved over to her left, with Vonny stepping a little to the side. Sam took up his position as my best man to my right and Jimmy stepped up in front of all of us. He’d gotten online and was now an officially ordained minister legally capable of marrying us. Joe was the photographer for this ceremony, along with a more professional videographer that I knew from my time in California. In the day, he had actually photographed several of the videos that Beth and I had made. When I called him, he was all jazzed up hearing that Beth and I had buried the hatchet, and not in each other. Sam was paying him, but he told me he would have done this for free, just to see Beth and me in the same room again.
+
+Bearing witness to this happy occasion were Carlotta, Pete, Ben, Gina, Ben’s assistant trainer Billy, his sub Betty-Jo, and Marcia, Janey’s publisher. More were expected at the barbeque scheduled for later, but they were not as open-minded as those in the saloon with us now. We were surprised when Marcia had sent Janey her RSVP, and strenuously demanded to attend the actual ceremony. After a long video-chat with Janey, Sam had sent a limo to pick Marcia up at the airport for the wedding. She seemed happy but couldn’t stop crying. Emotional women crying at weddings. Go figure.
+
+Clearing his throat, Jimmy said, “Beloved friends of this happy couple, welcome and bear witness to the marriage and enslavement of Janey to Bartholomew. Their love for one another is undeniable and both of them have convinced me of their consent to freely establish this union. At this time, I have to ask, is there anyone who can show just cause why Janey and Bat should not be wed in this manner? Anyone? Speak now or forever keep your counsel and hold your peace.”
+
+“Good. I will continue. Bat? Your declarations, please.”
+
+“Janey, we’ve known each other for years, but social conventions kept us from realizing we shared something so wonderful and special. Since we got together, just a couple of months ago, and admitted to each other how kinky we actually are, the world has become a much happier place for me. You make me very happy, emotionally satisfied and spiritually fulfilled. I am proud to know that a woman like you wants a tired, old, cranky cowboy like me. I’m a lucky man. You make me feel ten-foot tall and bullet-proof. As your husband and master, I promise, on everything that I hold as sacred, that I will cater to your fetishes and perversions in an effort to keep you as happy as I am. I will keep you helplessly bound and gagged, thoroughly enjoying your luscious and sexy body for my pleasure and try to give you as good as I get from you. Your physical, mental and spiritual health is important to me and I will never neglect these things for my own selfish desires. You are important to me. I need you. I want to spend the rest of my life with you by my side. I can’t think of anything that would make me happier, and I have a wild and vivid imagination. Please marry me and submit to my perversions as my slave/wife.”
+
+Beth produced a handkerchief from somewhere and helped Janey wipe the tears from her eyes and clear her nose. She then went behind Janey and unwrapped the Kerlix-gauze from her hands.
+
+Jimmy continued with, “Janey, your response to this?”
+
+“Bat, my Sir and soon to be husband and master, I love you with all of my heart. I am the lucky one because an expert, talented, creative, experienced and loving bondage-dominant wants to give me what I’ve wanted all of my adult life. Every rope you wrap around this body of mine confirms your love, your skill and the pride you take in your craft. You make my body crave more and more of your ropes. Your dominance constantly thrills me. I am anxiously wondering, all the time, what you will do to me next. Your bag of tricks seems endless, yet I want to explore and experience each and every way you can make me your helpless slave. Everything so far has been magical. Every morning I wake up in your bonds and lay there wondering what you will do to me today. This makes my mind soar and brings a greedy little smile to my face knowing that you are doing exactly what I need you to do to me. I’ll gladly wear the highest heels, dress in anything you tell me to and submit every bit of my heart, body and soul to you, just to feel the ropes you so lovingly apply to my body. I’ve wanted a real bondage master, like you, since I realized just how excited bondage made me. That revelation was over twenty years ago and now that I’ve found you, I really will do anything and everything to keep you. I’ll gladly submit to anything that makes you happy enough to keep me. Please keep me, my bondage master. Keep me, tie me, gag me, dress me in ways that please you, beat me if you want to, just love me as much as I love you. What may I do to please you, Master Bat, my ruggedly handsome cowboy? God, you look so hot in that Stetson.”
+
+Nodding and smiling, Jimmy said, “Bat, is your dominance consensual, and do you want to be Janey’s bondage-master and husband?”
+
+“Yes, my dominance is consensual, and I do want to be Janey’s bondage-master and husband,” I said.
+
+“Janey,” asked Jimmy, “is your submission to Bat consensual and do you want to be his submissive slave/wife?”
+
+“My submission to Bat is absolute, and completely consensual. I want to be his slave/wife with all of my heart and with every fiber of my being.”
+
+Sam went behind Janey and untied her arms. She was still tightly tied to the post, but she needed her hands for this next part. She shook out her arms, clenched and opened her fingers and then accepted the ring from Sam. He then handed me her ring and her collar.
+
+“It is now time to exchange the physical manifestations and symbols of this union. Janey, put the ring on Bat’s finger,” said Jimmy.
+
+She held the ring up, kissed it, kissed my ring-finger and then slipped it on, kissing it when it was on my finger. She smiled brightly as she did this.
+
+“Your turn Bat,” said Jimmy.
+
+I’d had a collar made specifically for Janey. A friend of mine carved a cameo of Janey’s profile and set it in an oval of wound gold wire so that it looked like golden coils of twisted rope. This was a large setting and used to hide the front hinge on the gold-plated 1/8th-inch steel band of the collar. The cameo came up on hidden rails to allow the hinge to open and slid back down to hide the hinge and hold it closed. In the back, this collar locked on with a mechanism that could be opened with a Peerless handcuff key. I fitted this around her neck and locked it in place. Then I put the ring on her finger and kissed it once it was in place. Janey reached up and fingered her collar and held her hand out to stare at the ring on her finger.
+
+“As an ordained minister, I pronounce you husband and wife. As your friend, I testify to all present that you, Janey, are now enslaved to Bat, and that he is your master and dominant until you cease to please him, or until one of the two of you dies. Congratulations, and thank you for this honor.”
+
+When I started to untie Janey, I noticed that each of her wrists had been wrapped in Kerlix-gauze before the ropes had been applied.
+
+“Master, that was so I didn’t have rope marks on my wrists for the barbecue this afternoon. They tied my upper thighs, but no ropes went around my knees for the same reason.”
+
+“Who tied you to the post anyway?”
+
+“Beth did most of it, but Vonny helped.”
+
+“Well, I guess you can’t have been tied up as many times as Beth has and not pick up a few skills. I always suspected that she’d be a good Top, but there really isn’t a dominant bone in that long lean body of hers.”
+
+“I know, but she’s such a sweetheart that you just have to love her.”
+
+“Been there, done that. Now let’s go back and get you changed before this really starts to get out of hand. Beth’s already behind the bar and pouring. Sam grabbed the first drink and is already out with Pete’s crew getting the side of beef they’re roasting ready for the rowdy crowd he’s expecting. We get to meet the governor today and at least one of Kentucky’s senators in from DC. Sam opened up his black book of celebrities and wants us to be known to his circle of wheeler-dealers, so put a smile on your beautiful face and let’s be sociable. We still have hours before this shindig really kicks into high gear, and we have to be the starry-eyed couple everyone’s expecting.”
+
+While I was unlocking her new boots Janey asked, “So, what do you want me to wear, my new husband and master?”
+
+“I ‘want’ you to wear six-inch heels, a smile and about 300’ of rope, but not right now. That’s for later. Vonny made you something to fit this theme and won’t be a tragic loss when someone splashes BBQ sauce on it or decorates it with something worse. Let’s snug you up in a corset, some bronze pantyhose, a bra whose cantilevered architecture shoves those tits together and up under your chin, so that’s what the men notice first and something short enough to show off those sexy legs of yours without looking slutty.”
+
+Vonny’s creation looked very sexy on Janey, and probably after talking to Beth about these parties, she provided three exact copies of both the skirt and the blouse. The skirt was white denim, cut away in the front to show off her legs, and it was longer and gathered in the back. The blouse was primarily a light-blue denim. A very sheer, wide panel of white material across her chest showed Janey’s cleavage off to its best advantage. The shoulder caps were bloused up a little, giving it a more western flare and the bodice was fitted and snapped together.
+
+The cuffs of her long sleeves were white satin and closed with more mother of pearl snaps. The collar was high, and the white material was ruched around her neck. It too snapped in back and I had to reposition her new collar on the outside of this material. On her feet Janey wore tan, western-stitched boots with a squared-off toe and four and half-inch conical heels, in keeping with the cowgirl boot style.
+
+“Master, would it be too much to ask you to take your pants off?”
+
+“Wow, I guess I’m already starting to take you for granted and in doing so neglecting one of your favorite fetishes. Apologies,” and I took my boots and pants off. After she gave me a ball-draining blowjob, I got redressed and we went out to the bar. From then on, the rest of the day was a bit of a blur.
+
+Marcia immediately monopolized Janey and arm in arm wanted to hear all about our lifestyle and why Janey hadn’t told her about this before now. Marcia blamed Janey’s new accelerated productivity on the games we played and opened the door for her to write erotic romance novels with a subdued bondage theme. Janey told me later that her publisher hinted that it looked like fun and she wondered if she was too old to play these games. I laughed.
+
+Malcolm kept his camera on Janey while he and I caught up on how all of us were getting along, now that we were practically living together. He did everything but pull out his checkbook trying to get a chance to do a video of us all playing together. The only problem with that was that as a professional photographer, Malcolm always wanted to keep a copy of everything he did.
+
+Sam apparently paid him a lot of money to get the only copy of our ceremony, making Malcolm sign all sorts of legal documents to ensure non-disclosure and privacy. Sam maintained a large firm of really good lawyers that could do a decent imitation of a full broadside fusillade from a modern battleship, if provoked. Malcolm caved and promised to be good. He was undeniably hungry though for a 21st century video of Bat binding Beth in bondage again.
+
+Pete was straw-bossing a catering crew so Sam and Beth could maintain their standards of excellence with their high-powered guests. Ben and Gina were getting the stables ready for Sam’s ‘close friends’, who just had to get a chance to ride one of his thoroughbreds. Carlotta had a small staff of people to help her keep the place from becoming a disaster area. They weren’t official wait-staff but could cover different things as the barbecue ebbed and flowed. Joe, Billy and Betty-Jo were Sam’s valet parkers. Jimmy again surprised me by coordinating the security firm that Sam employed for occasions such as these. They all looked like Spec-Ops mercenaries in tuxedoes, and they seemed to be everywhere, watching everything.
+
+Because of my training, I noticed the PTZ security cameras Sam had all over were moving constantly and covering every little corner of the property. The eye-in-the-sky was watching too. I was surprisingly impressed. I guess with the governor and a senator coming, security needed to be a little tighter, and the State Police, that I knew would be there, weren’t going to be enough. Vonny was put in charge of the DJ and she was running around with a tablet to send specific requests in so the DJ could play them. Janey had already given her a list of songs for us to dance to later.
+
+I watched Janey interact with Marcia and Malcolm for a while and then pulled her off to the side, claiming my right of prima nocta. Marcia knew what this was and scurried off to find her newest author, Beth. I had to explain the term, and my firm intent to Malcolm. Focusing Janey back to the here and now, I would whisper to her what was going through my mind, in regard to what I was going to do to her later. This tore her mind from the new business opportunities that Marcia filled her head with, and the conniving schemes Malcolm tried to induct her into.
+
+On my arm, we went in and got a couple of go-fast shakes from Pete, who always seemed to have just what we wanted. He put everything else aside and made time for us like he had nothing better to do. We ducked into the library in the main house and whispered interestingly intense intimacies to one another about how we wanted to spend the next few days, holed up in our new home.
+
+As I expected, Janey was the hit of the party. I was by far not the only one to tell Janey how hot she was. Some used more politically correct language or euphemisms, but it all boiled down to the same two things, lust or envy. She just smiled and giggled coquettishly. If she got tired of their small talk, Janey just told them how she introduced herself to me this time around.
+
+Most of the women smiled and nodded when Janey told them that to get my attention, she simply showed me her tits. The men got a bit too excited with the fantasy and usually found something else to do before their enthusiasm started to show. I think that if he could have gotten away with it, the governor would have invoked prima nocta with her. Janey left an indelible mark on his brain.
+
+Sam and/or Beth made it a point to introduce us to all of the power players in attendance. A few in the know thanked me for my service, but for the most part, I was just ‘the husband’ of the famous author. Because I had pockets and she didn’t, Janey handed me all of the cards she collected. Names and faces blurred together, and I figured that if we needed to at some later date, we could identify certain people from Malcolm’s video.
+
+It surprised me when the senator, another veteran, knew my military history. Apparently, he had been commanding another unit in country at the same time and recognized my name. He gave me his private business card and told me that he would make time to have lunch with me if I ever got to DC. We bonded the way only veterans could. He was one of the few that didn’t immediately leer at Janey. In his mind, she was my plus-one.
+
+A surprising number of the wives and female significant others in attendance had read at least one of Janey’s books, and several were huge fans, like Beth. Janey told many of them that if they came back with their books that she would autograph them. She also made it a point to include her new bestie in this book signing. Having her publisher in attendance just smeared the icing on that cake even thicker than it was.
+
+Marcia would gather groups of these women around and reveal plotline teasers about the yet unpublished books that Janey and Beth were writing. While the men drooled over Janey’s tits and her very submissive attitude, the women were living vicariously through the new and racier adventures of the McGovern women, Cecelia and Olivia.
+
+When Janey drug me out on the dance floor everyone ate up our song selections. First, we danced to Carole King’s ‘Where You Lead, I Will Follow’. Janey stared into my eyes throughout the whole song, nodding. Next came Sade’s classic, ‘The Sweetest Taboo’. The only two songs that I contributed to this playlist were ‘You’ve Made Me So Very Happy’, by Blood Sweat and Tears, and ‘Now and Forever’ by Richard Marx. And lastly, we danced to another one of Janey’s selections, Celine Dion’s, ‘The Power of Love’. Janey mouthed the lyrics to express her intent. A couple of the women were openly weeping, and all the men wanted Janey in their arms and in their beds. She was mine though and I smiled. I knew what she wanted and needed, and it was about time to give it to her. Especially because I wanted it too.
+
+Feigning fatigue from the long day, we excused ourselves and walked over to our new house, which wasn’t far from the main house. Jimmy sent an escort with us and I knew they’d make sure we were undisturbed tonight. Even though she had obviously been in the house many times before, to honor tradition, I picked Janey up and carried her through the swinging doors and into our saloon. I hung up a large, ‘Just Married – Do NOT Disturb’ sign, closed the wooden doors and locked them. Not worrying about even the possibility of peeping-toms, Janey and I headed for the windowless basement playroom.
+
+Beth had stocked this playroom with a mile or so of various thicknesses and types of pre-cut lengths of rope, gagging materials and various pieces of gear that she figured we’d want to play with. Vonny stocked the hanging racks with several costumes, along with the appropriate heels, hose, garters, lingerie and corsets needed to please my imagination. Sam had made sure that Pappy and several of Pappy’s friends were in attendance. Pete had stocked the refrigerator down here and up in the kitchen for a prolonged stay, and even Carlotta had left us a note telling us to just leave the mess and that she’d clean it up when we came up for air. After a frosty mug of our energy-shake, we were ready to play.
+
+I stripped Janey down to skin and after mauling the skin that now officially belonged to me I had her put on seamed black opera-length hosiery, and her slutty black-patent oxfords with the six-inch heels. With her wrists tied in front, I strung her up and let her hang there, just an inch off the floor while I manhandled her wriggling body. Janey giggled a lot. I fitted a black corset around her and tightened it up. Back on her feet and momentarily free of her bonds, she got no bra or panties, but I did have her put on a black slip that could pass for a micro-mini dress. To Janey’s surprise I handed her a full and authentic, long black nun’s habit.
+
+“Go scrub the make-up off your face. Nuns don’t wear the devil’s paints. Put the habit on and even the white cotton apron. I’ve substituted the official cincture for some black rope. It’s time to realize your request to be tied up and beat with an eighteen-inch ruler.”
+
+Janey squealed happily and ran into the bathroom. I changed out of my tux and into denim bib-overalls, a plaid flannel shirt with the sleeves cut off at the shoulders and work boots. I substituted my white Stetson for a hardhat and loosely tied a bandana on as a kerchief. I made sure all of the stationary cameras were in record mode, focused on the desk and pocketed the remote. I rolled a large whiteboard behind the desk and set up a couple of the student desks we had down there. After filling my well-worn, red toolbox with ropes, a ball-gag, grey tape and some large zip-ties, I was ready for our playtime. Sister Mary Jane was a bully and needed to learn some manners.
+
+Hearing the bathroom door open I touched the record button on the remote. Coming into the room, Sister Mary Jane looked up and saw me.
+
+“Oh, Mr. Daemon, our PTA appointment isn’t until tomorrow. You’ll have to come back then. I have to grade some papers for my class. Good-bye Sir.”
+
+“You can’t dismiss me like you do your students. We have serious matters to settle, so sit your butt down, shut your mouth and listen.”
+
+“Mr. Daemon, you cannot talk to a sister of the Holy Order of the Apostates in that manner. Show some respect. I believe I’ve earned it.”
+
+“The only thing you’ve earned is some manhandling, and a good, sound spanking with that ruler you use to hit the children with. You’re a bully, and a child abuser Sister Mary Jane, and I intend to teach you a lesson.”
+
+Picking up the prop phone on her desk, she said “We’ll just see what security has to say about your threats and accusations, Mr. Daemon.”
+
+“Monty’s an old, fat wimp they stuffed in a uniform. All he does is watch soap operas all day in his office. He was called home earlier by his daughter. Her son, like many, has been abused by you and she’ll keep Monty away from here while I teach you a real life-lesson. Now, come here. If you try to run and make me chase you it’ll just go harder on you.”
+
+She did try to run. I tried to be as gentle as I could with Janey, but Sister Mary Jane turned suddenly and unleashed a kick at my groin. I just stepped back out of range and then tackled her. She really fought hard to get away, but I quickly subdued her and drug her back to her desk. Sometimes a woman, even when she knows it’s just play, needs to be roughed up and manhandled into submission. Janey was telling me that this was one of those times with the spunky fight Sister Mary Jane was putting up. Holding her down I opened my toolbox, grabbed a shortened zip-tie and pinning her with my knee in her back I pulled her arms behind her and sealed her wrists together, pulling the zip-tie tight. Sister Mary Jane started to scream.
+
+Letting her roll over enough to see what I was doing, I popped open my folding knife right in front of her. Some of these assisted-opening folders can snap a blade out as fast as any switchblade. Scared now, she continued to scream as I cut the apron she was wearing from around her neck and used my knife to cut a square of cloth from that apron. I roughly shoved that cloth in her mouth, pushing it into her cheeks and shoving as much of it as I could between her teeth. Picking up the gray tape from my toolbox I started to wrap it around the lower half of her face. I wasn’t being neat about it; I just wanted that oversized wadding to muffle her screams.
+
+Even though Sam had made sure that this basement playroom was soundproofed, her screams were loud and annoying. Gagging her was necessary in my mind. Quieter now, Sister Mary Jane was still fighting for all she was worth. To reduce her efforts, I took out another zip-tie and used it on her upper arms to pull her elbows together, ratcheting down the zip-tie until they touched. This made her groan and scream even louder into her gag.
+
+Her legs were flailing around, so I turned to zip-tie her ankles together.
+
+“Well sister, aren’t you the little fetish queen. High heels, and damn, they look to be about six-inchers. No wonder you couldn’t run away. Let me see what else you have under those long skirts. Hold still dammit. You can’t get away, and no one’s coming to rescue you,” I said.
+
+I pulled her dress up little by little until it was up to her waist.
+
+“Okay then. Seamed hose and what’s this? No panties. Sister, I’m shocked. You’re just a little slut, aren’t you? Now as I go higher, is this a corset under your habit? It is, and it seems to be snugged up nice and tight.”
+
+Rolling her over I started groping her tits.
+
+“And no brassiere. Let’s see. Six-inch high heels and expensive seamed black hosiery, no panties, a corset and no bra. Why sister, were you going to a fetish party after you finished grading those papers? If not, I think you and I are going to have one right here. You got a nice body, for a nun. I’m going to have some fun with you, and there ain’t nothing you can do to stop me.”
+
+I untied her cincture from around her waist and used it to tie her flailing ankles together, making sure to add a tight loop under the pegs of these heels. Then I pulled her habit all the way up and around her waist. Blindly reaching up on her desk until I found her eighteen-inch wooden ruler I threw one of my legs over her bound legs and started to wail on her ass with the flat of the ruler. Sister Mary Jane continued to scream, from the outrage she felt, and she bucked, trying to fight her way out of my grasp.
+
+“I bet you don’t let your students scream and cry like this when you beat them. You know, there are other ways to use this ruler. More painful ways. Do you want to see how that feels?”
+
+And with that, I turned it in my hand and started to use the wooden edge to beat her. This turned it into a short cane, and made it hurt a lot more. If I had used the side with the brass straight-edge fitted into the wood, it could have cut her, and I wouldn’t do that to my new slave/wife. Sister Mary Jane was still righteously pissed at this new level of pain. I didn’t beat her long before I went back to using the flat of the ruler to redden every square inch of her butt cheeks, hips and upper thighs. The caning worked though, and Sister Mary Jane quieted down and stoically accepted the stinging snap of the ruler.
+
+When I got bored, I untied her ankles and stood her up.
+
+“Now it’s time for a little humiliation with your discipline.”
+
+I reached in the toolbox and pulled out a large red ball-gag and held it in front of her face.
+
+“Do you know what this is my fetish nun? No, it’s not a dog’s toy. That’s right, it’s a ball-gag. Now ball-gags don’t do a lot to keep a woman quiet, but they do two things well. First, after wearing it for a while, it makes her jaws ache something terrible. That will be part of your punishment. The second thing they do is make a woman drool. Now, we all know that drooling is not acceptable in polite society. One must be able to control their bodily functions. That’s why this is going to be so humiliating for you.
+
+Sure, for a few minutes you’ll try valiantly to swallow the drool behind this huge ball I’m going to wedge between your teeth and strap around your head so you can’t spit it out, but eventually, too much drool will build up and you’ll start to soak the front of your guimpe. Yes, I know what it’s called. I looked it up when I packed this ball-gag. Now, I’m going to take this tape gag off and the stuffing out of your mouth. If you scream, I’ll just gag you again anyway, and go back to caning your ass with the edge of your ruler. Do you want more of that pain? Good, then don’t scream.”
+
+I peeled layer after layer of tape from around her head and let her spit out the wadding when it was off. To her surprise, I spun her around and kissed her. To my surprise, Sister Mary Jane kissed me back, playing tongue games with a noticeable passion.
+
+“You a little turned on Sister?”
+
+Her blush told me she was as I wedged the ball in between her teeth and strapped it tightly in her mouth, making her cheeks bulge. In just a short order of time, spit bubbles and long runnels of drool came out of her mouth, running down the starched white bib that nuns wore. To increase her outrage, I groped and mauled her tits, being none too gentle. To my continuing surprise, she just stood there and didn’t try to move away. When I lifted her dress and stuck my fingers in her pussy, that told me everything I needed to know, because they came out wet and redolent of excited woman.
+
+Sticking my stinky fingers under her nose, I said, “There’s no denying it now, slut. This abuse excites you. Your nipples are hard. Your pussy is wet, and your cheeks are flushed. You’ve dreamed and fantasized about someone doing this to you, haven’t you Sister Mary Naughty?”
+
+She hung her head and nodded. Then a full body shiver took over and she almost fell as her knees got weak. With a hand under each tit, I held her up and said, “And now for some discipline. You’re familiar with discipline, aren’t you Sister? Of course, you are. So, here’s the deal. I’m going to increase your helplessness, and while you humiliate yourself by drooling like a spaz, you will stand here in those six-inch heels and write what I tell you to on this whiteboard. Got it, slut?”
+
+She nodded and I cut the zip-tie off of her elbows, carefully, so I could reuse it on her ankles, which I did. I used another zip-tie to tightly bind her calves, her lower thighs just above her knees and her upper thighs, pulling this one very tight. Snipping off the zip-tie on her wrists, because it was too short to reuse, I used another one to fold her left arm behind her, pulling her wrist as close as I could get it to her upper arm. It would have gotten closer if it had been positioned in front of her or off to the side, but I wanted it behind her. I used another, longer zip-tie around her chest and her folded arm to further secure it in place. Sister Mary I-Want-To-Be-Restrained moaned at the strictness of this position. I added one more long zip-tie a little lower than the last one. Then I handed her a dry erase marker.
+
+“I want you to write: ‘I will never physically punish my students ever again.’. Continue writing that sentence until I tell you to stop. Got it?”
+
+She nodded and started to write. I knew standing there in her high heels was something Janey enjoyed, so she was going to be writing for a while. When she filled the whiteboard, I made her erase it and start all over. She moaned. After a while, I pulled her dress up around her waist and zip-tied it in place so I could look at her ass and legs. With her legs bound like they were, with very little movement possible, she had to lean precariously from left to right to write each sentence on the board. Seeing this, I slowed things down by tying a knotted crotch-rope on her with the black rope from her cincture. This got her knees weak again, and slowed her down, which did nothing but force her to stand in those heels even longer.
+
+Mercy was not in my vocabulary. The good sister drooled, slurped and whimpered, but she got no sympathy or any relief.
+
+I made it a point to take some pictures with my cell phone, telling her that I was going to send them to the parish priest, Father Sam and to all of the parents in the PTA if she tried to cause any problems for me when I finally released her. Using a stern voice, I reminded her that my job was to give her the pain that she had dished out to her students, humiliate her, and discipline her into being a nicer nun.
+
+Deciding that I was slacking up on the humiliation, I would reach around and play with her pussy, getting her hot and bringing her right to the edge. Then I’d quit, swatting her tit with the flat of her ruler to distract her. Mournful moans, whimpers and drool were the only things coming out of her mouth.
+
+Somewhere around 300 repetitions of her punishment, and two markers later, I told her to quit. She sighed and tears leaked from her eyes. To her dismay, I used more zip-ties to restrain her right arm like I had done with her left one, basically positioning her arms in a reverse prayer. With the kerchief around my neck, I blindfolded her and took the crotch-rope off. Bending her over the desk, I took off my overalls and had sex with my naughty nun.
+
+Then, I stood her up and told her to stand there while I got in my car and left. I told her I would call Father Sam, in a few hours and tell him where to find her. I reminded her how humiliating it would be for him to find her dressed like this. I left her there for several more minutes, and then I began to release her.
+
+When she got the kinks out of her jaw from wearing that ball-gag for so long she exclaimed, “Sir, that was so realistic and totally believable. You were magnificent. I really was Sister Mary Jane, believing she was being punished for her sins. Wow! That was so hot. Please use that oversized ball-gag on me more often. That’s the type of slow-pain I can really get into. Standing in my heels, grinding on that tight and unforgiving crotch-rope and wrapping my head around the building pain in my jaws was wonderful, magnificent, hot, sexy and exactly what I was looking for with this whole naughty nun cosplay thing. I love you so much.
+
+You made this so believable for me. Was I sexy enough for you? Did it get you aroused? I never realized you hated nuns that badly. Were you a catholic at some point in your life? Wow. Just Wow. That was one for the memory books. Were you having as much fun as I was having, Sir? I didn’t know my arms would bend like that. Is that what they call a reverse prayer? It had to be. Talk about restrictive. Wow. Just Wow. Now that’s what I call a wedding night. Sir? May we go sit in the hot tub? Please?”
+
+Now that I’d stripped her out of that nun’s habit and her corset, I decided that a good hot soak would be about right. Cutting off the recording I laid the remote down. I picked her up in my arms and we went up to the hot tub that was built into the side of our bathroom. Janey had me put her down in the kitchen and she made us a blender of go-fast shake, while I turned the heater on and started the jets going. I put on some instrumental jazz for background music and after getting her completely naked, we soaked away the day.
+
+“What do you want to do to me next husband? That last scene was so hot, I want to keep playing, especially with my new husband.”
+
+“It’s been a long day. I want to hold you, and tie you, and gag you, and play with you, but I’m not sure I have another full cosplay adventure left in me tonight. You, Janey, my beautiful and very desirable slave/wife will get attention, but I already gave my fantasy attention to Sister Mary Jane. Yea, we had fun. Both of us, but we’ll do a little more tomorrow. There’s really no hurry. Sam said that the only reason they’ll open our front door is for A: a national emergency, B: A sudden illness or death, or C: if we open those doors and come out. Pete says we’ve got at least three weeks of food and supplies here. We sure as hell won’t run out of things to play with, and I can always amuse myself with you. That will keep me happy and satisfied.”
+
+“So, what do you want to see me wear for you, or is skin, heels, ropes and a gag going to be enough for you?”
+
+“We just did long and covered. I want short, sexy and saucy.”
+
+“You want flouncy short, like a plaid schoolgirl thing, or a short LBD, or micro-mini skirt short, or butt-hugging shorts type of short, or lingerie, or leotard short? What can I wear to please you?”
+
+ “You got a teddy with a built-in bra that pushes your tits up and in?”
+
+“Yea. With these tits I’ve got several. What color do you want?”
+
+“Any of them have keyholes for more skin exposure?”
+
+“Black, red, or white?”
+
+“White. Wedding day and all. I’m feeling traditional. I also want high-waisted shorts that show a lot of leg.”
+
+“White, of course. No problem.”
+
+“White T-strap sandals.”
+
+“I only have five-inchers. Are you sure you want T-strap sandals?”
+
+“Are you questioning my choices already?”
+
+“No master, five-inch white T-strap sandals it will be. Hose?
+
+“Two pairs of suntan support pantyhose, with no panties underneath.”
+
+“Anything else, Sir?”
+
+“Long white satin gloves and one of my white shirts. Clean. I want to smell you, not me. No, cancel that. Put on your white business jacket instead of one of my shirts. And find your white Gwen-hood. Bring back white Kerlix-gauze, and micro-foam tape.”
+
+Janey ended up kneeling back on her heels perched on a padded barstool. Hemp ropes went around her thighs in three wide, cinched wraps. More ropes crossed over her legs, secured to each leg of the stool. More ropes held her heels on and side-cinched the ropes going over her legs. Watching her watching me as I stuffed her mouth, smoothing strips of micro-foam tape over her lips, and then making smooth, tight wraps of Kerlix-gauze around the lower half of her head was pure heaven for me.
+
+Squeezing her head into her Gwen-hood and carefully covering everything but her nose and eyes was a shared joy we both loved. Allowing the ends of her bangs to peek out from the hood was just one example of my attention to detail that Janey adored. After wrapping the extended fingers of each hand in more Kerlix-gauze, I tied her wrists behind her back, palm-to-palm, with no cinch. I tied a shoulder harness over her jacket and attached her elbow bonds to this harness. I tied them tightly, but not together. Janey, in white, on her wedding day, was helplessly bound and gagged, and I loved making her this helpless and staring at her like this. She made me happy.
+
+Sitting close so I could touch her when I wanted to, I read pre-selected bondage stories to her. While I did, Janey stared at me, lost in the sound of my voice. This was a relaxing way to wind down from the day. Other than a tiny wriggle, Janey could barely move, couldn’t talk and therefore she could devote her total attention to me, and what I was doing for her. Our lifestyle had unique challenges and equally unique potentials.
+
+Janey and I had forged our bond, partied with new and old friends, played so intensely we lost ourselves in our characters and now we were winding down, enjoying our separate jobs in the scheme of things, communing in a way that was special just to us. I would stop my reading occasionally to tell her how lovely I thought she was, and how special she was to me. Then I would go back to reading.
+
+When I got a little hoarse, I recognized my actual fatigue, so I took the ropes and mittens off of Janey, took her jacket off, let her get ready for bed and then snugged her into her single arm-sleeve. I tied her legs together and tied her shoes on her feet. Carrying her over my shoulder, I took her up to our new California King four poster bed, which was Beth’s gift to us. I laid Janey down and crawled into bed next to her. I was out before my head hit the pillow, but I could feel her bouncing around, shifting her position and wriggling all night long, trying to find that comfortable position to sleep in.

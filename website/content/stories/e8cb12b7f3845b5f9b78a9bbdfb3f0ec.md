@@ -1,0 +1,82 @@
+---
+original_url: https://www.latexstories.net/storieslr/rubberhell3.html
+subcategory: Latex Stories
+title: Rubber Hell
+authors:
+- 'M88 3: Why'
+tags:
+- F/m
+- captive
+- dungeon
+- latex
+- catsuit
+- bond
+- cuffs
+- gag
+- hood
+- cell
+- chast
+- cbt
+- bdsm
+- crop
+- torment
+- crush
+- climax
+- force
+- cons/nc
+- XX
+date: 2014-07-24 00:00:00
+---
+
+story continued from [part two](rubberhell2.html)
+
+**Part 3: Why**
+
+Still breathing heavily in the blackness of his bondage cell. James started to take in what had happened to him over the last couple of days. His dick was starting to turn the same colour as the rubber it was bound in. The pain shooting from his cock was causing him a dark pleasure. He was starting to love the rubber suit and total bondage. Jess had started to break his mind and body through her sadistic tactics. She was taking control of his whole life and more importantly his manhood. He knew he was in deep trouble and with each day that passed the punishment would only get worst.
+
+His rubber suit was now dirty and starting to stink as was the padded bed. His back was sore and lifted the pressure off it was very very different. All the cuffs and straps continued to dig into him leaving red marks all over his body. The rubber suit was also starting to itch as it filled up with body liquids. His head feel compressed and strangled and his jaw was arching like it never had been for. He wanted to scream loudly for help and rip his body free. Both of which where not going to happen anytime soon. Unless Jess made a stupid mistake or got careless with her captive. Which he could only dream about. He had no idea how he could ever escape all the cuffs and straps and even if he did what else would he have to overcome. He would just have to hope Jess freed him when she was done playing and torturing him.
+
+James then wondered why Jess hadn't freed him or if she was ever going to. She has to have a reason for keeping him lock away in a shit load of bondage equipment. He had only meet her three times in his life. A couple of times at a local coffee shop and once at the pub. He started to think maybe the kidnapping and being hold hostage was random. He had no idea that his imprisonment was of Jess's design. Everything that kept James from the outside world was a reason for him to be her captive.
+
+You would need to go back to a wet and cold day in April 2009. A young and beautiful red haired girl was waiting in line at the local bank. Jess was about to start her dream business and job as an adult film maker. She had already build the secret filming location below an old farmhouse she had obtained at auction. Which is where James now finds himself trapped and alone. Jess had already spend a lot of money getting the underground studio built and building a stainless steel bunker. She had even paid for the farmhouse out of her own money. She was at the bank today to get a loan so she could get the filming and fetish equipment she needed. The bank had already giving her a lot of money and Jess had already missed one or two payments. So the bank was ready to recall the debts and stop any payment. The person Jess talked to about her beloved business was James. James had no say in the decision to close Jess's company or to take farmhouse as payment. But he would be the face of Jess's nightmare. He would be the person who closed her dreams and ruined her life.
+
+As it happened the meeting between the two went very well. Jess was a more normal person at the time and believed the bank would give her the money later. She had no real understanding of how banking worked and how bad this news was. It was only when she was living in a run-down tower block and doing porno videos the full impacted hit her. That was six months after going to the bank for help. It was time to get her life back on track and punish the man responsible for her implosion. Her heart was filled with dark thoughts and plans of what she would do. She started visioning the farmhouse and underground bunker in the end of every night. Each time she worked on completing her dream and within five years the location was finished.
+
+She then worked on finding and imprisoning James for what he had done to her. She found it easy to work her way into his life and soon had a plan. A plan she used only three days ago to take control of his life. She had following him round for days at a time and also broken into his flat a couple of times. She know all about him when they first met up in a local coffee shop. She had joined his table and started talking to him in a sexy and seductive manner. It had worked it's magic on him and they had agreed to meet up at the coffee shop in a weeks time. Jess wanted to know more about him before she locked him away. The pub was the perfect location to drug and kidnap him. The outcome of which is history as James woke up in the cell again.
+
+He had no idea that he was the unlucky target of Jess rage towards the bank he worked for. He was the person who stopped her from becoming a legend in the world of adult entertainment. The ideas and plans she had been working on for so long went down with the meeting they had. In Jess's dark and rage filled mind, she placed him right in the centre of her problems. She needed to punish him to make herself feel better. So she could get back at the bank that put her through hell.
+
+She had anything fun day planned for James and entered his cell with a huge smile on her face. First things first James needed feeding and Jess was not about to remove any retraints. She had a long rubber feeding tube in her hand and three bottles of liquid in the other. She placed the tube in his nose and feed the tube down his throat into his stomach. James was gagging on the rubber tube and trying to blow the tube out.
+In the bottles was:
+
+Water
+Soup-Tomato 
+Piss
+
+One by one they hit the bottom of James's stomach as he struggled to breath through just one air hole. He could feel his stomach rising up as the last drops of piss entered him. His rubber suit was sticking out from all the much needed liquid. Jess removed the tube from his nose and give him a kiss on the tip of his cock. She had a number of new CBT ideas to use on his trapped rubber dick. She quickly place two rectangular plastic panels each side of his cock. The panels had four holes in one in each of the four corner. Jess picked up four long metal screws and four metal butterfly nuts. She pushed the screws through each of the holes and started moving the butterfly nuts down them. They quickly reached the plastic panel and with each turn made the plastic press down more and more on his bound cock. The rubber squeaked as the plastic descended even lower onto his painfully and sore manhood. Jess only stopped turning the butterfly nuts when it looked like James's balls may pop. His rubber covered dick looked amazing under the pressure of the plastic vice. Jess when clipped the plastic vice against James's stomach strap to hold it in place against his body.
+
+She then stepped onto James's bondage bed with her 6 inch heels standing both sides of his trapped body. She then placed the sharp pin like heel of her leather boot right into James's helpless left ball. She was only pressing down with the softest of touches and only for a couple of seconds. But the reaction was epic as James pulled and pushed against the restraints. Jess had left the hydraulics off for this bondage and torture session which meant James could move about a little bit. He could only move maybe a couple of inches in any direction. But it was better then feeling he was being pulled apart.
+
+Jess had made a huge mistake by lowing the level of restraint she kept James captive in. She was about to make another. She wanted to look into his eyes each time she pushed her boot into his cock. She wanted to see the fear and pain in his eyes and the pleasure it would give her. She removed the head and neck brace from his rubber enclosed head. She then unlocked and lifted the nightmarish rubber hood off his sweaty and dirty face. The cold and fresh air softly blow against James's now freed face. Sweat was dropping from the rubber hood as Jess placed it and the brace on the floor next to the bed. She then removed the blindfold sending burning light into James's isolated eyes. He instantaneously shut them back together as tightly as he could. But after 5 minutes his eyes started to accept the light as his vision become clear. Standing over his worthless rubber body was a god like Jess. Her well lubed latex catsuit with her stunning ass, pussy and tits loomed over him.
+
+She had a real power about her as she looked into his brown scared eyes. She wanted to humiliation him before she stood on his cock again. She unzipped the front of her beautiful catsuit and pissed right into his face. His embarrassment was complete as he feel his balls being crushed by his goddess. The yellow liquid dropped from his matted hair and onto the bondage bed. His eyes opened wide with each and every touch from her leather boot. His cock and balls where on fire as the pleasure started to build inside him. She was torturing him in just the right way to make him cum. She was slowly rubbing his swollen and now black cock with the tip of her heel. She moved her heel  from top to bottom for another minute or two before he came.
+
+The cum shot into the plastic vice almost hitting his stomach strap. His rubber balls and cock squeaked as the cum continued to exit his manhood. Jess was wrapped up in the moment as one of her high heels went through one of the latex mittens and removed a lot of the tape on his hand. James felt her heel hit and turned the mitten away from Jess. Jess then stood on the first link of chain next to a cuff on the hand with the broken mitten which caused it to split open. James once again spotted the weakness in his restraints and covered the cuffs chain with his mitten. Jess was miles away in her own little world and had no idea what she had done. But she was about to make things worst for herself. Now that his hood and blindfold had been removed, Jess wanted to play with his mind. She placed the keys to his whole bondage system on a padlock on the front of his gag. He could see the keys through the gag and know what he needed to do.
+
+Jess removed the plastic vice and untied James's cock. Each touch felt like she was stabbing his poor cock. But finally his cock was free for the evil bounds that held it for so long. James was breathing heavily for today's long and painful day of submission. Jess left his metal bondage cell with a smile on her face again. But for the first time since the bondage session had started. James was smiling as well under his huge gag. He would need to work very hard in order to escape from this nightmare. But Jess had made it possible for him to do so. He waited about half an hour before he started struggling and fighting with his cuffs and straps. He wanted to be confident Jess had left his prison. He would have all night to break free and already had a plan to deal with Jess.
+
+First he needed to free his right hand from the tape and latex mitten. His rubber hand struggled and pushed against the tape as it started to break. Quickly the tape dropped away from his fingers and he continued pulling apart the mitten. The tough latex took a lot of hard work to rip open. But he did it and could now play with the cuff around his wrist. The cuff come off with a little effort, that freed his right hand completely. The cuffs chain was of a poor quality and should never have been use to keep someone captive. The keys where locked to a small padlock on the front of the gag with a plastic tie. James could just about reach the keys if he turned his head. He pulled with all he had on the keys trying to break the plastic tie. He was pulling so hard, his gag was stretching the glue that kept it in place.
+
+He then started rubbing the keys from side to side. Which in turn started to slowly break the plastic tie. After what felt like forever, the plastic tie snapped. The keys where now in James's hands if he could undo the padlocks in time. He had spent 4 hours trying to escape so far and time was running out. First he unlocked his elbow cuff, which took 15 minutes going through all the keys. When he was finished with a key he would drop it on the floor. So they would not get mixed up and take longer to find the right one. He then worked on freeing his other arm from the hateful cuffs. After some more trial and error, he found the right keys and now had two arms to work with. He then worked his way down his body as he started undoing the cuffs in good time. Finally his body was free and the weight of the straps was off his chest. His legs lined up next up to be freed from the cold steel cuffs. He quickly worked out which keys go in which locks. And for the first time time in three and a bit days he could stand up and move around.
+
+Jess had made stupid mistakes which was the only reason James was able to free himself. James would not make the same mistake when restraining Jess in an inescapable bondage cell. James slowly walked to the thick metal door and pushed a small switch. The switch was about half way up the right hand side of the door. The second James flicked the switch, the door opened. Staggering out of his rubber and metal prison and into another steel room. At first James was disheartened about going from one metal box to another. But as he looked round the miles bigger second room an understanding of Jess hit him. Plus the walls were covered in tools and machines, which could help him. First he used a large pair of scissor, which he used to cut the rubber suit off his body. The rubber dropped to the floor as sweat, piss and cum ran out of it. His body could finally breathe and the feeling was amazing. He then spotted a shower and a bag of what looked like food. He used the shower and the bag was luckily filled with a soup like liquid. James then found some men's clothes stuffed in a random box in the corner of the steel room. Looking at them, he realized they belonged to him.
+
+He rushed to put them on and set his trap. He soon found all he needed and was ready for Jess. He had cleaned away his rubber suit and left the room just as he had found it. He waited behind his metal prison cell for Jess to enter. After 45 minutes of just standing there, the door to the second room opened. James could hear footsteps approaching his old cell. He then heard the sound of a pin bring entered and quickly moved into action.
+
+Jess had just enough time to realize, James had broken free from her prison. Before she was injected with a needle and started to black out. James quickly put some handcuffs on her hands and feet.
+
+He was going to have some fun with Jess.
+
+What goes around, comes around
+
+M88

@@ -1,0 +1,381 @@
+---
+original_url: https://www.latexstories.net/storiesad/black_amoeba.html
+subcategory: Latex Stories
+title: Black Amoeba & the Holy Grail
+authors:
+- Ataraxia
+tags:
+- M/f
+- latex
+- catsuit
+- bond
+- bagged
+- inflatable
+- encased
+- cocoon
+- toys
+- climax
+- cons
+- X
+---
+
+As always, she arrives at about 8 a.m.
+She's still wearing her airline uniform, having flown an early flight this
+morning. She looks bedraggled and a bit wilted. She probably came right
+from the airport. She called me last night telling me how stressed out
+she was. I made sure everything was ready for her.
+
+After a friendly kiss on the cheek and a bit of
+small talk, she heads for the bathroom to empty her bowels and bladder
+as best she can. I've given her a large tube of KY jelly and pair of latex
+panties equipped with inflatable, vibrating anal and vaginal dildoes. She
+knows the routine. She puts these on, lubricating herself using the entire
+tube of jelly. I leave her to these chores and go put on my latex catsuit.
+I knew I'd have to wear the suit for at least as long as her ordeal. Fortunately,
+it had two-way zipper which allowed me to open up to pee even when the
+suit was locked on. Fluid control is not one of my "things".
+
+A few minutes later she opens the bathroom door
+and walks out into the hallway to let me know she's ready. She is entirely
+naked except for the black latex panties. The dildoes, which are fairly
+thick, cause her to walk a bit bow-leggedly. The wires to the vibrators
+dangle to the floor. From her smile I see that she is already beginning
+to enjoy their presence in her private parts and in anticipation of what
+is to come. She ceremoniously produces a small padlock and locks me into
+my catsuit with it. She places the only key into a small rubber pouch on
+a fine golden chain around her neck. I cannot take my catsuit off until
+she unlocks it later.
+
+Even though she had been in my single-floor, ranch
+style house many times before, I remind her to explore the layout of the
+house in as much detail as possible. In particular, she needs to study
+the location of two "Welcome" mats made of thick sisal that I strategically
+place in different locations each time she has a session here. These are
+her "break" mats. I also call her attention to a larger sisal mat on the
+floor in the living room just under the big clock. This is her "Holy Grail"
+mat. The better she can remember location of these mats, the better off
+she'd be for the rest of the day. We now go to the bedroom in the back
+of my house at the opposite end from the living room (and her "Holy Grail"
+mat).
+
+I get out the large, very heavy, inflatable latex
+"mummy" bag and help her get into it. The bag is constructed of two layers
+and zipped up her back. It has a network of small tubes allowing air to
+be evacuated and inflated at various points of her body such as at her
+feet, crotch, armpits, etc. It fits her snugly and causes her arms to press
+at her sides. Her head fits neatly into the attached hood, which is equipped
+with separate zippered flaps allowing controlled access to her eyes, nose
+and mouth. For now, all of the flaps are open so she can breathe, talk
+and see freely.
+
+Before closing the waterproof main zipper entirely,
+I pour a quart of glycerin into the bag with her. I hear her groan from
+pleasure as she feels this coolish liquid finds its way down to her feet,
+covering her whole body and making it extremely slippery against the latex.
+As a final precaution, I place a piece of duct tape down the entire length
+of the main zipper to prevent any possibility of leakage.
+
+Now she is completely and helplessly encased in
+the latex mummy bag from head to foot. I then stuff her into still
+another bag. This one, however, has been fashioned from an inner tube from
+a very large tire such as a payloader or other piece of heavy construction
+equipment. It is made of extremely heavy, "industrial grade" rubber and
+seems almost "bullet proof". This bag fits around her nicely, leaving just
+enough room inside to move her arms with a little effort. I close padlocks
+through holes in this rubber at her feet to secure that end. At this point
+she is incased in two layers of latex and one layer of heavy inner tube
+rubber. They add thirty or forty pounds to her total weight. Her feet are
+completely secured with padlocks. Her eyes, nose and mouth are still accessible
+through their respective open zippered flaps and the upper part of the
+inner tube bag is still folded back. She is looking at me. I see
+pleasure in her eyes. I ask her if she is OK now-this is her last chance
+to chicken out if she wants to. Yes, she's fine and already beginning to
+enjoy her confinement.
+
+I insert the blowup gag into her mouth and close
+the zippered flap over it. It has a hard, 8 inch tube that she can breathe
+through no matter how much the gag is inflated. I slowly begin inflating
+the gag. Through pre-arranged signals of moans (and lots of experience)
+she lets me know when it is inflated to just the right size for long-term
+comfort. She is securely gagged, but not uncomfortably so. Next I
+insert two other tubes with special molded tips a short ways into her nostrils
+and fasten them securely to the latex of her hood and a special leather
+harness that surrounds here head. These fit comfortably.
+
+Like the gag tube, these are about two feet in
+length and have a rigid inner wall so that they will not kink or collapse.
+These tubes will provide her main source of breathing air and are secured
+so that no matter how much she squirms and trashes about, they will not
+be torn away from her nostrils. Safety is a primary concern. Even if these
+do fail for some reason, she'll still be able to breathe through the tube
+in the gag.
+
+Now only her eyes remain visible. Again, I ask
+her is she is OK and ready to proceed. Yes, she's still fine and anxious
+to get going. She winks at me! I zip her eye flaps closed now and pull
+up the remainder of the heavy inner tube rubber bag up over her head. I
+make certain that all her tubes and wires are clear. Then I insert padlocks
+through holes in the end of the inner tube bag to lock it closed.
+I hope she wasn't planning on going anywhere today. She's "in the bag"
+now!
+
+Now I connect the inflation tube of her mummy
+bag to a small air compressor and tell her to position her hands, etc.
+the way she would want them for the duration of her ordeal. I put the ends
+of her breathing tubes to my ears and listen for her signals. After some
+fidgeting and squirming in the bag she gives me the "OK, start inflating"
+signal. I watch the air pressure gauge on the compressor begin to rise.
+As the area in between the two layers of her latex mummy bag begin to fill
+with air, the air between her skin and the inner layer is pushed out through
+the network of evacuation tubes installed in the bag. The result is that
+the inner layer of latex is pushed against every nook and cranny of her
+body, stretching across her armpits, her face, into her ears, between her
+toes, etc. The glycerin lubrication allows her to her to move her hands
+and feet slightly, but only with great difficulty. As the outer layer expands,
+it pushes against the non-stretching, heavy inner tube rubber which prevents
+it from "ballooning" beyond it's original size.
+
+Finally, as the black, elongated shape on my floor
+begins to look like a semi-flacid balloon from the inflation. When the
+gauge on the compressor reads about 5 psi, she gives me the signal that
+the pressure is just about right for her long term comfort. I disconnect
+the compressor hose and closed off the air evacuation network tubes to
+prevent leakage of the glycerin in the nooks and crannies of her body.
+
+My final act of preparation is to connect her
+breathing and dildo inflation tubes and wires to a little black box fastened
+to the head end of the inner tube bag. This box contains batteries, pumps
+and circuitry to randomly power the anal and vaginal dildo vibrators and
+vary their inflation pressures. It also contains a microphone and flea
+power transmitter that sends any sounds she makes through her breathing
+tubes to a portable radio. This allows me to continually monitor her safety
+from anywhere in the house.
+
+Her preparations are complete. Her task, for the
+rest of the day is to wriggle and squirm her way on the floor from the
+starting point in the bedroom at one end of my house to the "Holy Grail"
+mat under the clock at the other end. The heavy inner tube outer layer
+protects the fragile inner latex from the scuffing and scraping as she
+blindly makes her way across the floor and bumping into furniture. It also
+makes it very difficult for her to sense her location. Her only navigation
+aids are the sound of the chimes of the clock on the hour and half-hour
+and her knowledge of the layout of my house. From time to time she might get other clues such as the sound of the TV in
+the den and the radio in the kitchen.
+
+It will all end at 5pm regardless, but it could
+end sooner if she finds (and identifies) the "Holy Grail" mat. This
+is her quest! If, along the way, she comes across and properly identifies
+one of the "break" mats, I will open her hood, give her food and water,
+massage her sore muscles a bit and let her take a "break" from the sensory
+deprivation for 15 minutes. Then the hood goes back on and her quest for
+the "Holy Grail" continues.
+
+It's almost 10 a.m. now and I'm sitting at my
+desk in the den. From the little radio on my desk I can hear her breathing
+and groaning as she writhes around trying to find the "Holy Grail" mat,
+or, at the very least, one of the "break" mats. I think she's in the hallway
+now. It took her close to an hour to find her way out of the bedroom. I
+think she had two orgasms, too. It's hard work. In addition to be able
+to deal with the sensory deprivation and the in ability to move her limbs
+it's obvious that this ordeal take physical stamina, too. There's times
+when it has to be downright uncomfortable, too. She always wants an 800
+mg ibruprophen when it's over.
+
+I wonder if she'll be able to do the full term
+this time. We've done this a dozen times in the past and she usually can
+only go for three or four hours before it all becomes too much for her
+and she has to give me the "safe" word. She's only found her "Holy Grail"
+once and that was just by chance. It's pretty intense-I doubt if I could
+go as long as she does.
+
+She's in the bathroom doorway now. In her inflated
+mummy bag she looks like a giant black amoeba, moving across the floor
+with a kind of cytoplasmic flow. I wonder if she knows where she
+is. There's a "break" mat in there. Maybe she'll be able to tell that it's
+the bathroom by the hardness and coolness of the tile floor. Ah! Apparently
+she has recognized it because she attempting to go in. What a struggle!
+She's trying to wiggle like a caterpillar but it doesn't quite work like
+that. She can't bend at the waist very easily because of the thickness
+of the rubber. Also, it's also so heavy-every movement requires extra muscles.
+
+She seems to be caught in the doorway-just can't
+quite get her feet past the doorsills and into the room. I hear her grunting
+as she exerts herself. There! She's finally into the bathroom. She knows
+the toilet is just inside the room-if she can just find it she can use
+it as a navigating beacon. Oooh she just hit her head against it lightly.
+That would have hurt if it had not been for all those layers of rubber
+and the ballooning between her head and the hard porcelain. Now she's found
+the corner of the thick sisal mat-I wonder if she'll recognize it as a
+"break" mat?
+
+From the radio speaker comes a cascading shrilling
+noise something like a guinea pig squealing for food. That's the signal!
+She's found a "break" mat!
+
+I go to the kitchen and grab the "break" kit of
+food, water, a timer and other items. Then I head to the bathroom and find
+her somewhat wedged between the toilet and the bathtub. I drag her out
+to the main part of the room and sit down on the floor. I open the main
+inflation valve to start letting some air out of her "balloon" so that
+she'll be able to move her arms and legs a bit. Then I unlock the padlocks
+at the head of her cocoon and peel back the heavy inner tube rubber. Now
+I unzip the eye, nose and mouth flaps of her latex bag. Her steely blue
+eyes peer out at me from the deep eyeholes of the latex balloon. Then I
+deflate the mouth gag and remove it and the nose tubes. She sighs with
+relief. I set the little kitchen timer in the kit to 15 minutes and
+flipped the switch on the black box to turn the vibrators off. .
+
+"Are we having fun yet?", I ask.
+
+She's having trouble talking yet. so I give her
+a bit of water from a squeeze bottle.
+
+"What time is it?", she asks, almost desperately.
+
+"Why, it's almost noon. You've only got five
+more hours at most. You've also found the bathroom so that means you're
+already half way to the Holy Grail spot." I reply.
+
+As the air from her balloon mummy began to evacuate
+she found she could move her arms and legs a bit more freely now.
+
+"Where
+does it hurt? I'll massage it." I asked.
+
+As I began massaging her aches and pains she began
+talking about how wonderful she was feeling and what good orgasms she'd
+had. We'd done this ordeal a dozen times already and it still felt great
+to her. Nothing she had ever done was such a complete catharsis of her
+mind, body and soul. We mused at what it would be like to do this when
+we are in our seventies. Maybe we'd have to find something a little less
+"rigorous" Although I could not actually see her facial expressions under
+her latex, a twinkle came to her eye and, with a bit of a giggle in her
+voice, she exclaimed that she had to pee. Just then the timer buzzed; fifteen
+minutes were up. Time to go back "under".
+
+Copping out of the ordeal at this point was not
+an option unless the safe word is mentioned. To help her with her resolve
+I reminded her "Remember, you've got to deal with O'Hare again tomorrow
+and all of the rest of the week! You'll need all the 'stress relief' you
+can get!" After a moment of reflection on this she decided she was ready
+to go on but this time with a much lower inflation pressure-let's try 2
+psi this time.
+
+I put new batteries in the black box and turned
+the vibrator power switch back on. She immediately groaned from that. Then,
+after making sure she was ok at each step, I re-installed the blow-up gag
+(also at lower pressure this time) and the nostril tubes. Before I zipped
+up her eye flaps, I looked deeply into her eyes for a moment and said,
+"Hurry up and find your Holy Grail, will ya! My catsuit is very hot
+and sweaty and I'm beginning to get itchy!" I winked and then zipped her
+eye flaps closed. Then I unfurled the inner tube bag around her head and
+locked it shut once again with the padlocks. Finally, I reconnected the
+compressor and re-inflated her balloon to 2 psi per her request.
+
+As the afternoon wore on she worked her way around
+the house. Sometimes she would head in the right direction. Other times
+she would regress. I could tell from her breathing over the radio that
+she was approaching physical exhaustion. She had additional orgasms with
+almost regular frequency-the vibrator dildoes were doing their job well.
+I had to admire her stamina and determination to reach her "Holy Grail".
+She never once indicated lack of resolve.
+
+As she struggled around the floor in her difficult
+amoebic movements, she wound up in the bathroom and the kitchen twice.
+Of course, the "break" mat in the bathroom could only be used once, so
+it was no help to her this time. She did find the other "break" mat eventually.
+
+While on her break she told me that the reduced
+inflation pressure in her mummy bag made it a bit easier to move around.
+Now she could position her arms where they would less interfere with her
+snaking and serpentining actions. There was also less pain in her joints
+as a result. It also seemed more erotically sensual because she was able
+to notice the slipperiness of the glycerine and latex against her skin
+more intensely. Perhaps we should consider this lower pressure during the
+next session!
+
+Eventually, at about 4:30, she finally found her
+Holy Grail mat in the living room. The signal was several moans/groans
+through her breathing tubes that was supposed to resemble a flourish of
+trumpets. She had reached the pinnacle-she had arrived. Now, all that was
+left before she would be done was the "Send Off".
+
+I grabbed the air compressor and dashed for the
+living room.. I connected the compressor tube to her mummy bag and reminded
+her to position her arms and legs to their "Send Off" position. This means
+she would straighten her arms out, placing her hands at her pussy. Then
+I pumped her balloon up to a hefty 12 psi. I could hear her groan as she
+felt the pressure building up.
+
+The heavy rubber mummy bag and the locks which
+closed each end of it strained from the pressure inside. It looked like
+my precious black amoeba was about to explode! The latex surrounding her
+entire body pressed so tightly now that she probably could not even open
+her eyelids. She was absolutely immobile. The pressure on her rib cage
+caused her breathing to become shallower and shallower. She made regular
+"I'm OK" signal noises every minute or so. I turned the knobs on the little
+black box to set the dildo vibrating and pumping action to maximum. She
+would remain that way until she has one final, "Send Off" orgasm. It would
+be one to remember.
+
+At 4:47p.m. that afternoon, a mere 13 minutes
+before 5pm, she had her Send Off. The sounds that came from the little
+radio did not seem like much because she was already quite exhausted from
+a dozen or so previous orgasm throughout the day. Yet this one involved
+the extreme immobility that she so dearly loves. She would remember this
+one above all of the others.
+
+When she was done I opened the emergency air valve
+that deflated the cocoon quickly. The air whooshed out. Her breathing in
+the radio speaker returned to normal. Her continued "I'm OK" noises reassured
+me. I unlocked the padlocks and folded back the inner tuber rubber as quickly
+as I could. Then I opened her eye, nose and mouth flaps, removing the gag
+and nostril tubes. She looked up at me-her eyes were tired but there was
+a distinct look of deep satisfaction in them. I then dragged her over
+to the bathroom and placed her in the tub. I then removed the inner tube
+cocoon and then unzipped her latex mummy bag.
+
+The bag contained a wild cocktail of glycerine,
+sweat and urine. It spoke of a long, hard ordeal. She said nothing. Despite
+the fact that she looked like she had just spent several hours in a washing
+machine there was still that unmistakable glow of deep, sexual satisfaction
+in her face. Her hair was totally bedraggled and would need shampooing
+and much care. Her skin had been abused pretty badly over the last eight
+hours and showed too much exposure to moisture. It was also red in places
+where the latex had chaffed against her. It probably would have been much
+worse without the glycerine. She was also quite limp from sheer exhaustion.
+I helped her remove the dildo panties and rinsed her whole body off with
+the hand shower. She reminded me of LeiLou in the Bruce Willis movie, 'The
+Fifth Element', after her encounter with Zorg. I offered her a jug
+of Gator Aid, ibruprophen, and some vitamins to help restore her vitality.
+She looked so pitiful yet so content. I drew her bath.
+
+Still locked into my catsuit, I watched TV for
+an hour or so while she bathed and recuperated in the bathroom. I also
+began to cook a nice big pasta dinner for us. Eventually she came out from
+the bathroom wearing the heavy bathrobe she kept here for these sessions.
+She looked somewhat refreshed but still fatigued. She smiled.
+
+"I suppose you'll be wanting to be out of your
+catsuit sometime this month, eh? How many times have you come since you
+put it on?" she asked me as she flaunted the little key pouch on the chain
+around her neck at me.
+
+"Well, I've had about four of them.", I replied.
+
+"Four! Is that all? I had eight today. Looks
+like you've got four more to go!" and with that she shoved the key pouch
+back under the heavy bathrobe. "If you want to take that thing off before
+I leave for work tomorrow morning, you'd better get started! If you need some help, we'll "turn up the heat'!"
+
+I knew this meant I'd be spending most of the night in it, too. It would be almost 24 full hours.
+
+As she recuperated from her ordeal it was going
+to be a long night for me.
+
+Oh well, I love it just as much as she does!
+And in a another month or so when the mood is just right for both of us,
+she'll search for her Holy Grail again and then I'll
+have to catch up to her orgasm count.
+
+2001

@@ -1,0 +1,120 @@
+---
+original_url: https://www.packagedstories.net/storiesek/friendslikethese.html
+subcategory: Packaged/Encasement
+title: Friends Like These
+authors:
+- Doctor Vader
+tags:
+- FF/f
+- cuffs
+- bodybelt
+- collar
+- gag
+- bond
+- captive
+- kidnap
+- casket
+- sarcophagus
+- encase
+- entomb
+- revenge
+- cons/nc
+- XX
+date: 2012-06-10 00:00:00
+---
+
+Georgia had been having a good evening with her friend Susan. Nothing special, a nice simple night in at Susan’s house after work, a few bottles of wine, some girly chat and relaxing. They had made themselves comfortable on the sofa and were idly chatting. Georgia had noticed a shinny black bag, clumsily hidden between the armchair and the sofa a short time after getting comfortable. She was intrigued and now she was itching to get a sneaky peek inside.
+
+“I think we need a refill” Susan smiled as she waved the drained wine bottle in front of her. Georgia nodded in approval.
+
+“I’ll get another from the kitchen” Susan added as she stood up and stumbled slightly towards the kitchen. Georgia didn’t hesitate for more than a second. Her intrigue had gotten the better of her. She greedily grabbed up the black bag and hurriedly pulled it open to peer inside. She stared in disbelief for a moment and then reached inside to pull out it’s contents for a better look. She examined the 4 inch wide black leather belt with steel D rings on it.
+
+“Ahem… You’re not supposed to be going through my shopping” Susan said with an almost stern tone to her voice. Georgia spun round still holding the belt, startled by her friend.
+
+“I… um… I…” She stammered, embarrassed. Susan was smiling at her.
+
+“This is a bit kinky… isn’t it” Georgia added quizzically. Susan’s smile broadened.
+
+“Yes dear it is, the rest of the cuffs that go with it are in the bag” Susan laughed and nodded to Georgia, as if in approval to keep snooping through the bag. Which she did immediately pulling out six leather cuffs and a handful of padlocks, examining it all with great interest.
+
+“Wow… I never knew you were into this sort of thing” Georgia exclaimed as she studied her friends new acquisitions.
+
+“But I don’t get why there are six cuffs” She added as she looked to see Susan grinning cheekily at her.
+
+“I’ll show you” Susan cooed as she put the fresh bottle of wine on the coffee table and took a few steps towards her friend.
+
+“Seriously, I don’t think so” Georgia blurted almost shying away from her approaching friend.
+
+“Oh come on, it’ll be a bit of fun” Susan smiled warmly. Georgia wasn’t sure, but very interested nonetheless, she’d never tried anything like it before.
+
+“Trust me, it’ll be a giggle and I promise I’ll let you go afterwards” Susan urged as she mocked a brownie salute, laughing. Maybe it was just the wine, but she was definitely thinking about it. It would just be a bit of harmless fun with her friend putting her in a bit of bondage for a bit she thought.
+
+“Ok” Georgia almost whispered shyly as she offered the bondage apparel to her friend. Susan replied with just a wry smile and took the handful of cuffs, padlocks and the belt from her and placed them on the coffee table.
+
+“Good girl” Susan winked at her as she deftly wrapped the belt around Georgia’s waist and pulled it tight as she buckled behind her.
+
+“Oh, That’s a little tight” Georgia squirmed a little as she heard the snap and click of two padlocks closing, locking the belt into place.
+
+“Well it is supposed be tight Georgia” Susan cooed as she checked the belt was positioned with the D rings on either side.
+
+“Yeah, I guess so” Georgia bit her lip. She liked it. How tight it felt around her. Susan had already taken one of Georgia’s hands in hers and had wrapped a leather cuff around her wrist, buckling it firmly and snapping a padlock into place. Georgia watched her friend intently as she effortlessly and naturally applied another cuff the other wrist and knelt to begin with the ankle cuffs. It looked to Georgia like Susan had done this hundreds of times before. The ankle cuffs were quickly and firmly buckled and then locked into place.
+
+“Ok so far?” Susan asked as she grinned at her. Georgia nodded as she examined the cuffs around her wrists. They were tight and firmly locked into place, there was no way she’d be able to slip them off. She surprised herself, she liked how tight they felt.
+
+“Ok, so what about the extra two cuffs” Georgia asked with a building sense of excitement.
+
+“Well they go here” Susan smiled as she secured a cuff just above Georgia’s elbow on each arm.
+
+“I don’t get it” Georgia asked a little puzzled as she examined the snug cuffs now locked on her upper arms.
+
+“You’ll see in a minute… When I have you all locked together” Susan replied cryptically. Georgia didn’t want to admit it but she was loving this. Her excitement was growing with every moment and she knew that Susan knew it too. Susan gently took Georgia’s hand and slowly moved her wrist down to the belt. Snap. Susan padlocked the wrist cuff to the D ring on the belt. She smiled wryly as she slowly guided Georgia’s other wrist into place and clicked the padlock locking the cuff to the D ring on the other side. Georgia’s wrists were now locked to the belt on either side of her waist. She tested her movement. She couldn’t move her hands more than an inch or so. She was utterly dependant on Susan now. She couldn’t reach a buckle or padlock even if she wanted to. Georgia was lost in her newfound sense of helplessness and had barely noticed Susan kneel before her and lock a short chain between her ankle cuffs.
+
+“That’ll stop you running off” Susan grinned as she stood up again and Georgia tried to take a few steps. The chain couldn’t have been more than five or six inches long and had reduced her ability to walk to a mere shuffle.
+
+“Now these cuffs are going to make these look fantastic” Susan whispered as she gently ran a hand across Georgia’s bust. Georgia let out a small whimper and bit her lip in anticipation as Susan moved slowly around her. Susan began to slowly pull Georgia’s arms back, pulling them closer together behind her. Her bust was thrust forward and straining against her blouse, now pulled tight across her ample bosom. Susan pulled harder, until her elbows were nearly touching. Georgia groaned. Click. The padlock locked her arms tightly together behind her.
+
+“There but I think you’re missing something” Susan said as she admired her captive, a gentle hand on Georgia’s chest, straining against her blouse, now threatening to pop a button or two. Susan smiled wryly as she produced a thick black leather collar. Georgia had no idea where it had come from nor did she care. She wanted to wear it and within a moment it was firmly around her neck, buckled and locked. Susan took a step back and looked Georgia up and down, admiring her helpless captive. Georgia loved it. She had been rendered utterly powerless by her friend. It excited her in a way she’d never experienced before.
+
+“One more thing” Susan smiled as she swayed gently towards Georgia. She was shocked at what she produced from behind her back. A penis gag. It looked big.
+
+“Oh don’t act like you’ve never had a cock in your mouth” Susan grinned as she saw Georgia look apprehensively at the gag. Georgia wasn’t quite so sure about being gagged, but she didn’t want this to stop either. She opened her mouth to accept the black rubber cock as Susan drew close. It filled her mouth and was buckled tight, uncomfortably tight as the leather straps bit into her cheeks. Click. The gag was tight and locked. Georgia tried to complain but could only manage a weak mmppff. Susan circled her captive. Georgia tried to tell her the gag was too tight. But the look on Susan’s face had changed, become stern and maybe even a little disgusted. Georgia was confused. Susan gave her a sharp shove and she toppled helplessly back onto the sofa. Georgia was stunned, confused and afraid. Susan sneered at her and pulled out her phone and dialled quickly.
+
+“The slut’s ready” Susan said into the phone staring at Georgia with what can only be described as malice. Georgia was desperate now squirming and struggling against her restraints, but it was useless. The cuffs were tight and locked firmly. Her panicking mind was racing. Who did she call, why had she done this, what was she going to do next. All Susan did was stand there arms folded, watching Georgia struggle and squirm uselessly. Maybe ten or fifteen minutes passed, Georgia had given up her futile struggles, accepting she wasn’t going to be getting out of these restraints just yet. She sat there glancing at Susan, wondering why she was doing this to her. The doorbell rang and Susan hurried to answer the door. Georgia thought about making an escape attempt, but it would’ve been futile, she wouldn’t even be able to run and with her wrists locked to the sides of her waist and her elbows locked together she would be easy prey.
+
+“Yeah, it was too easy really, she went straight for the bag first chance she got” Susan’s voice came from the hallway, on her way back to her captive.
+
+“Perfect, I just can’t wait to give the pathetic bitch what she deserves” Came another voice from the hallway. A voice Georgia recognised. Georgia’s eye’s widened as her fears were confirmed.
+
+“There’s my fat titted bitch” Melissa smiled wickedly as she came towards her. Susan chuckled. Georgia’s boyfriend was her ex-husband and Melissa always blamed her for him leaving her.
+
+“Oh, I love how you’ve got those tits to really thrust out like that… and lets face it that’s all this bitch ever had going for her” Melissa smiled to Susan with a breast in each hand, giving them a painful squeeze. Georgia winched as Melissa squeezed her hard.
+
+“I could play with these all day… But you’ve got a bit of a journey ahead of you yet” Melissa grinned as she yanked Georgia up to her feet.
+
+She could only wonder what she meant, where were they going to take her, what sort of revenge did Melissa have planned for her. With Susan on one side and Melissa on the other, an arm firmly grabbed by each, she was lead towards the front door, shuffling as best she could to keep pace. They were quickly outside and Georgia struggled and squirmed and mmppffed into her gag, hopeful someone would see her, but it was late. The street was deserted and the van she was obviously going to be bundled in was close to Susan’s front door. It’s doors already open to accept her. In a moment she was unceremoniously shoved inside and the doors slammed shut behind her. Swiftly Susan and Melissa were in the front of the van, the engine started and the van began to move quickly.
+
+Georgia struggled hard against her bonds, desperately afraid of Melissa’s intentions for her, but she had been expertly secured by Susan. She searched the back of the van for any tool or object that may help her escape, but there was nothing. The back of the van was completely empty. As the van drove on longer and longer, Georgia’s futile struggles became less and less. She wondered how long the van had been moving. She couldn’t tell if it had been minutes or hours even but it seemed like a long time. She could only speculate what humiliation or cruelty she was about to endure at Melissa’s hands. The van stopped. Wherever Melissa wanted her to be, it seemed they were there. Georgia waited for the van doors to open so she could at least get some sort of clue as to where she maybe. What see saw when the doors popped open filled her with dread.
+
+“Welcome to your new home slut” Melissa laughed as she gestured Georgia to look upon the derelict graveyard before her. Georgia was stunned as she gazed at the graveyard. Dawn was coming and the eerie half light made the graveyard look like it hadn’t been used in a hundred years. What on earth was Melissa going to do to her here. Georgia tried to kick and struggle as they reached into the back of the van to haul her out. It was pointless, she was easily overpowered and deftly hauled to her feet. Susan and Melissa dragged Georgia through the broken down graveyard, she put up as much resistance as she could but to no avail. Her mind was racing, she couldn’t make any sense of any of this. Where were they taking her. Then she saw it. A mausoleum. She frenziedly struggled, but they relentlessly dragged her onwards. Towards the mausoleum, it’s heavy door open.
+
+“I think our fat titted slut looks tired” Melissa smiled at Susan as they drew close to the open door.
+
+“I think she could do with a nice **long** rest” She laughed as Susan smiled back at her. Georgia was no less horrified as she was hauled inside the mausoleum. She could see the large stone sarcophagus in the centre of the small room, it’s heavy stone lid open and pushed to one side. Inside see could see the open casket. Surely they weren’t going to put her in there, but in a flash she had been hauled her off her feet. Georgia had the wind knocked out of her as she was unsympathetically dropped into the waiting casket. Melissa had prepared the coffin for it’s new occupant, fitting straps inside which she hastily pulled tight and buckled across her neck, waist and ankles. Georgia was helplessly pinned to the bottom of the casket. She looked up at Melissa as she grinned inappropriately sweetly at her.
+
+“There now you can have all the rest you need” She smiled. Georgia was frantic, panic stricken.
+
+“And don’t worry, you won’t be disturbed, nobody’s been here in nearly fifty years” She added gleefully.
+
+“Now if you tell me that you’re a worthless cock hungry whore… I’ll give you the keys to your bondage… and when you’ve had enough rest you can unlock yourself and make your way home” Melissa smiled warmly into the casket. Georgia nodded frantically and Melissa slowly reached in and unlocked and unbuckled the tight gag.
+
+“Please let me go. Please don’t do this to me” Georgia begged. Melissa lifted a finger to her lips and shushed her.
+
+“Tell me” She said sternly.
+
+“I’m a worthless cock hungry whore, I am, I am a worthless…mmppff” Georgia blurted out, and was cut off as Melissa jammed the gag back into place, buckling just as tight as before.
+
+“Good I’ve always known, but I wanted to hear you say it” Melissa sneered as she threw the keys to padlocks down into the foot of casket. Georgia shook her head furiously. She had no way to reach the keys at her feet. Melissa began to slowly lower the lid. Glaring at Georgia inside for as long as she could.
+
+“Goodbye my fat titted slut” She spat as she finally lowered the coffin lid completely, sealing Georgia helpless inside. Susan and Melissa quickly turned the locking screws, securing the casket lid firmly shut. Georgia could only lay there she had no idea what she could do. Trapped, pinned tightly into place in the casket. They keys she needed so desperately, cruelly thrown down around her feet, hopelessly out of reach. Then as if to strike a note of finality to her predicament, she could hear the slow, heavy scraping of the stone sarcophagus being manoeuvred above her. The scraping sound of the stone closing over her, closing over her casket. Sealing her away.
+
+Outside, Melissa and Susan had closed the heavy mausoleum door and locked it up tight. The graveyard was deserted, just as it had been for the past fifty years. It’s only new occupant hidden away. Cruelly bound and gagged. Strapped tightly into a casket. Closed inside a heavy stone sarcophagus. Sealed away inside an unassuming mausoleum. And mercilessly left. Georgia was utterly helpless. Sealed away.

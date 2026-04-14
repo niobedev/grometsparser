@@ -1,0 +1,147 @@
+---
+original_url: https://www.packagedstories.net/storiessz/veryspecialdelivery.html
+subcategory: Packaged/Encasement
+title: A Very Special Delivery
+authors:
+- Snap
+tags:
+- MF
+- Solo-F
+- M/f
+- leather
+- halter
+- boots
+- cuffs
+- collar
+- ponytail
+- insert
+- ponygirl
+- crate
+- breast
+- torment
+- delivery
+- bond
+- susp
+- depilatory
+- piercing
+- enslave
+- cons/reluct
+- X
+date: 2015-04-29 00:00:00
+---
+
+Patricia had been nagging her boyfriend for months. He had brought a porn video over one evening and they had proceeded to watch it together. They had only been dating for a few months, but James had been able to key in on her latent kinkiness, and seemed to know every trick in the book on how to exploit that knowledge.
+
+Twenty-eight year old Patricia on the other hand had always been somewhat conservative sexually, but upon realizing what pleasures her new boyfriend was willing to expose her to she had slowly but surely loosened up.
+
+When they met at the library where she worked, she had habitually worn understated and rather plain clothing with undergarments that would have been at home in her grandmother's closet. Her choice of drab attire did everything possible to hide her considerable figure.
+
+She was about 5'-10" tall, and possessed a magnificent pair of 38DD's. Unlike many women, hers had stayed perky, and the rest of her figure complimented her bust size. Her auburn hair, though reaching her waist, was always coifed into a tight bun, and makeup was not something she wasted time with.
+
+Her social life was non-existent, and to suddenly have a man, much less a handsome man, pay her attention had been a strange, new - and thrilling - experience. Over the intervening months, she had begun to pay more attention to her appearance, and had even begun to invest in more feminine lingerie.
+
+The porn movie he had brought over that night had been about something called "pony girls". As she watched the images of bound and subservient women prancing around like beasts of burden, the expressions of fear and humiliation on the pony girls' faces etched themselves into her memory and she felt her panties getting moist just from the thought of it. Wriggling closer to James, she had whispered something to effect that it looked like fun. He had just grinned at her and let her snuggle closer, but did not respond.
+
+This reaction served only to heighten her interest further. The fact that he had been eager to explore so many other fantasies, yet not even respond to this one had intrigued her and now it was all she could think about. At first she only mentioned it every couple of weeks. Then, as he continued to ignore the hints, she began to suggest it more and more often until she was bringing it up every time they got together. Finally, one night after a bout of sex, she brought it up again. She needed additional stimulation. She bluntly told James of this, finally getting a response from him when she threatened to cut him off sexually until he satisfied this one fantasy of hers.
+
+His response was to stare quietly at her for a full minute, not saying a word. Then he smiled darkly. "OK. Have it your way. You want to be a pony girl then I will make you into a pony girl. Satisfied?"
+
+Patricia had been thrilled. He was finally going to cooperate! She suggested that they go to a local fetish shop and get the appropriate gear, when he interrupted her.
+
+"If we are going to do this, then we're going to do it right. I'm out of town for the week, but will be back Friday. You take Friday off from work."
+
+"Why?" she asked. Couldn't they start Friday night? They would then have all weekend. She hated to give up vacation time for a weekend fantasy. But he persisted and she finally agreed. He then told her that a package would be on her doorstep Thursday evening with complete and detailed instructions inside. If she wanted to indulge this fantasy of hers, then she would have to do exactly as the instructions stated.
+
+-0-
+
+On Thursday, she arrived home from work to find a metal box on her doorstep. It was the size of an old steamer trunk, and was of welded aluminum construction. Metal handles were mounted on either end, and a set of wheels were mounted on the bottom side, somewhat like carry-on luggage that you can roll through the airport. The lid contained a very simple yet secure locking mechanism. A label was affixed to the lid, with her address on it.
+
+Reading the label, she realized that it was from a courier service her own employer used sometimes. They guaranteed pickup and delivery at exact times, and enjoyed a thriving business. The label indicated that the box had been picked up from the same fetish shop she had wanted to visit only an hour before she had gotten home, and was already delivered to her doorstep. Thoroughly taped to the lid was an envelope, behind clear packing tape. Letting herself into her condo, she lugged the box in behind her. It was surprisingly light given its size.
+
+Patricia looked down at the box suspiciously. Finally, she ripped the tape away from the envelope and opened it to find a key and a short letter. The key was obviously to open the box. The letter of course contained detailed instructions. Opening the box, she found a soft leather outfit exactly like the ones the pony girls in the movie wore, complete down to the hooved shoes and tail. The inside of the box was a form fitting arrangement of cushions and supports, all lined in leather.
+
+Running her hands slowly over the various accoutrements, she felt herself getting excited again. Not willing to resist, and knowing that James would not be back until the following day, Patricia slipped her fingers into the top elastic of her panties and began to rub her clitoris, first softly then more and more vigorously.
+
+She envisioned herself wearing the outfit, being treated as a common pack animal, her fate no longer her own. After only a few moments, she orgasmed more explosively than she had in weeks. With a satisfied sigh, she laid back on her sofa and composed herself. Afterwards, she enjoyed a long luxurious bath. Unable to control her impulses, she came again in the tub. Finally, she climbed out and dried off.
+
+Walking nude back into the living room, her hair cascading down from a pony tail to the top of her buttocks, she pulled the leather halter out and tried it on. It required minimum adjustment, and seemed to fit perfectly. Next to go on were the hooved shoes. She found them both heavy and awkward at first, but surprisingly comfortable on her feet. She realized they were going to be similar to when she started wearing stilleto heels at James insistence. It was simply going to take a little while to get used to.
+
+Cuffs went on at her wrists and elbows then, along with a stiff felt lined leather collar that forced her head back. Pausing a moment to consider her appearance, she then slipped the bit into her mouth and fastened it in place. Last but not least, she studied the tail long and hard. Then, taking a deep breath around the bit, she lubed it carefully and inserted it into her anus. Forcing herself not to clinch, she worked it slowly until it was completely inside her.
+
+Catching her breath, she turned her arms up behind her back and hooked her thumbs into the metal rings on the cuffs at her elbows. Clumping back into the bathroom, she surveyed her reflection in the mirror for a few minutes, turning various ways to see herself from different angles. Even though the outfit was constricting, and the pony tail was definitely uncomfortable in her rectum, she still felt herself getting horny all over again.
+
+Her large breasts jutted out prominently, and the thought of James' hands on them while her own arms were bound so excited her even more. Moments later she was writhing in her bed, having another orgasm. She had not even bothered to remove the pony tail first. After recovering, she removed everything, cleaned the plug of the pony tail, and put everything out on the sofa for the following day. She took a quick shower and went to bed early, setting her alarm clock for 4:00AM.
+
+The directions had been explicit. She got up at the appointed time, and took yet another shower. Carefully powdering and perfuming herself, she proceeded as instructed. She dressed herself yet again in the pony girl outfit, only this time no adjustment was needed. Even the plug of the pony tail slipped in easier this time.
+
+Carefully wiping away excess lubricant from her anus, she then wiped her hands and called the courier service. She informed them that she had a package to be picked up at 6:00 AM and she wanted it delivered within an hour. Last to go on was the bit. Now no communication beyond a mumble was possible.
+
+Peeking out of the door, she saw that the sun was not yet up and that most of her neighbors were still in bed. Only an occasional car was heard in the distance. She fastened the pre-printed address label onto the lid of the box, covering the original label entirely.
+
+Turning off the lights of her condo, she pulled the box outside onto her front step. She then hesitated a moment. What if someone saw her? Should she really do this? She then remembered how much effort it had taken to get James to agree to this. There was no way she could back down now. Shaking her head slowly, she locked the door and pulled it closed behind her. Without her keys, there was no way for her to get back inside now without someone noticing the commotion.
+
+Stepping quickly into the metal box, she found that the section designed for her legs from the hoofed shoes to the knees was a perfect fit. A short padded leather dividing wall was centered the length of the box. A protrusion at one end looked suspiciously like the end of a dildo, only shorter. Just behind this protrusion was another. This one extended up in a curved configuration, and had an approximately 3" wide knob shaped end. Kneeling down with one leg on either side of the divider, she realized that when she laid face down as instructed, the short protrusion was centered perfectly at her vagina. Slipping her hands back, she carefully combed the hairs of her tail out of the way and slid down onto the small protrusion.
+
+As she slipped further down, she found that the second curved protrusion worked its way up between her butt cheeks to rest on the plug of her pony tail. She waited a moment and then pushed herself onto both protrusions for a moment, enjoying the delicious sensations they produced on her body.
+
+Laying her torso down, she found that her considerably sized breasts fell onto either side of the padded divider. A loop of somewhat stiff leather strapping was arranged on either side of the divider, and obviously situated for her breasts to fall within. Making sure her breasts were arranged correctly, she then laid her chin down onto the rest so thoughtfully provided.
+
+Slipping her hair down to one side, she slipped her hands down into recesses in the bottom of the box. At the bottom of the recesses she found a pair of buttons. As instructed, she pushed both simultaneously. With a soft swish, the lid closed over her, slightly touching her shoulders, back, and buttocks, and locking with an audible click that cut off all light. Immersed in total darkness, she felt a moment of panic before regaining her composure. After all, the courier service was well known for its punctuality. A low melody began to play from some small hidden speaker inside the box and she found it comforting. It was now 5:15 AM.
+
+When the sun finally rose at 6:15AM, she was still inside the box on her doorstep. Her neighbors were up and about, and the first joggers were already doing laps around the neighborhood. Patricia, with no sense of time in the complete darkness inside the box, was forcing herself to remain calm. The small dildo which at first had been so enjoyable, was now a persistent presence in her vagina. The second protrusion was pressing irritatingly on her butt plug, and was beginning to cause discomfort. Yet, Patricia was not yet worried. But the tune was really beginning to get on her nerves. It simply looped over and over again, and her ears were ringing from it.
+
+By 7:30AM, her neighbors were now well on their way to work and the sun was high enough to shine down onto her front door. Patricia was beginning to notice the heat, and had by now convinced herself that it was well past the appointed pick up time. Still, she tried to be patient. They had to show up soon! She also wished that damn music would stop.
+
+By 9:00AM, she was getting frantic. Where were the delivery people? What if James were late flying in that day? Only then did Patricia begin to realize the enormity of her predicament. The box was beginning to warm up considerably in the early morning sun, and she felt beads of perspiration dripping down her body. The hair on her head, as well as her tail, were matted messes. Her limbs had gone numb hours before. She kept trying to at least flex her fingers, but in the confines of the box, there was little to no room at all. Any other movement was impossible.
+
+The small dildo had by now worked itself excruciatingly far into her vagina. No longer pleasurable, or even uncomfortable, it had instilled an insistent painful throbbing in her cunt from the pressure. The butt plug of her pony tail felt like it was being forced deeper into her rectum with every breath, and she was sure that by now it was halfway to her stomach. Her mind was growing numb as well from the same tune played over and over and over again. It was getting extremely difficult to think coherently.
+
+Finally, she lost control and began to push up with her arms against the lid of the box. The movement was futile as far as getting free and after a few minutes she gave up. Immediately afterwards, she heard small electric motors whirling and felt the leather straps encompassing her breasts tightening.
+
+A muffled cry escaped her as she felt her breasts pressed tight against the divider wall, and the leather straps bit into her flesh on the outside curvature of her breasts. She felt as if her breasts were going to explode from the pressure!
+
+The small dildo seemed to begin to extend, further stretching her vagina. She could not see, but could rather feel, and realized that the small tip she had settled down on was only the tip end of a much longer and thicker dildo that was now burrowing its way up inside her. The protrusion at her anus applied even more pressure. Finally, everything stopped tightening and she realized that if she tried that move again, she would be pulling at her own breasts in the effort.
+
+The only thing that did not change was the monotonous music playing in her ears. The malicious cleverness of the contraption overwhelmed her then, and all she could do was sob uncontrollably for what seemed like hours. All cried out, she settled down into a dull stupor, unable to alter her fate.
+
+By 12:30PM, the courier arrived. Checking his schedule against the address, he noted that the home office had received two calls that morning, with two different pickup times and two different delivery addresses. The initial address was only a few miles away. The second address was at least a half hour out of town in the country. Glancing up at the hot sun he hoped there was nothing inside the box that was going to spoil. Stepping quickly up to the package, he grabbed the metal handle on one end and trundled it down the steps, bouncing on every single step as he went.
+
+The sudden movement jolted Patricia out of the stupor she was in. She was still unable to comprehend very much after her enforced constrictions, but she realized that at least now she was moving. All she could do was hope the short trip did not take too long. Then she realized that box she was in was being tilted. The movement caused her weight to shift toward one end, and she found that all of her weight was now resting on the dildo and the protrusion at her rectum. She felt as if she were literally hanging from the straps wrapping around her breasts, and did not think she could take any more of this pressure. However, the box was so well insulated for sound that the courier did not hear her anguished screams. Humming to himself contentedly, he swung the box up into the back of his van and shoved it into one corner, blissfully unaware that a tortured screaming woman was being drilled by a dildo with every movement of the box.
+
+Patricia did not know how long the drive was. She only knew that it was a lot farther and longer than the few miles to James place. She began to wonder if the address was read incorrectly. Then she wondered what the reaction would be of the individual who inadvertently received her as a special delivery. At one time the thought would have been enticing to her, now it was barely on the level of coherent thinking. All she could do was continue to endure the throbbing dildo buried to the hilt in her cunt. She was certain the butt plug was completely inside her rectum now and only the hairs of her tail were hanging out. Her breasts were almost numb from constriction. And still that damn music did not stop. She only prayed that her ordeal would end soon.
+
+Feeling the vehicle stop again, she felt herself being slid along the floor of the van. Then bit down hard on the bit as the box was swung onto the ground, wheels first, driving both the dildo and the butt plug even deeper into her body. There was nothing to grip to, so she could not take the weight off of the loops around her breasts. She had thought they were beyond feeling, but was now realizing that they were still quite capable of feeling intense pain.
+
+The courier rolled the box to the door of the house and stood it on end. Again, he was oblivious to the pain he was inflicting on the woman inside the box, with all of her weight once again working against her to drive the dildo deeper and deeper into her cunt. Ringing the door bell, the occupant opened the door and signed. The recipient was an old man who walked with a slight limp. Glancing at the box sitting on end, Olaf smiled slightly, shook his head, and handed the clipboard back to the courier. As the delivery man walked away, the old man shut the door and walked back inside to finish his lunch, the box once again left in the sun, only this time sitting on its end. Patricia began to bake once again insider her small confined hell.
+
+-0-
+
+After lunch, the old man rolled the box out to the stable. Setting it down in the center aisle, he pulled a key from his pocket and opened the lid. Patricia, numb from almost 7 hours of absolutely no movement, further restrained by the loops of leather biting into her breasts, could not move even though the lid was now off. She rolled her head to one side to get a look at her recipient, then wailed as she realized it was not James. Olaf laughed, then reaching in he clipped a small chain to the cuff of first one elbow, then the other. Reaching past her head, he pressed a small red button and Patricia felt the straps loosen around her abused breasts. It dawned on her that even though the means of escape had been within inches of her nose, she would still not have been able to use it, so constricted was her movement. Pressing a switch on the wall, the chains began to pull Patricia upwards, towards the ceiling.
+
+As her arms came free of the box, the blood began to rush back into the various parts of her body like scalding fire. Her groans of anguish again only brought a chuckle from Olaf. Finally, her body was stretched out and she began to be pulled off of the dildo. With a plop, she was free of it at last. She clutched her knees together instinctively, immensely glad that the invader was finally withdrawn.
+
+In the end, she was hanging a good six inches off the dirt floor of the stables, her weight completely supported by the cuffs at her elbows. Still, all she could do was swing as she had no feeling except that of pain in most of her body. Olaf could do with her as he wished.
+
+The first thing he did was attach additional chains to her ankles. Pushing another button, Patricia found her legs being spread wide as the chains tightened. Her protestations were completely ignored as Olaf knelt to examine her reddened, bruised, and abused pussy. Nodding to himself, he limped over to a cabinet and returned with a small jar.
+
+Scooping up a glob of goo from it, he smeared it over the fine hairs of her vagina. Then he applied a section of white gauze. When he ripped it away, it took the hair with it and left Patricia contorting and twisting in agony, her gagged screams echoing throughout the stables. This he did several times until Patricia's pussy was as clean and bare as the day she was born.
+
+Next, Olaf produced a long needle and a box of golden rings. Patricia, thinking before that she had no strength left, found that she could still struggle as he came towards her nipples with the needle. Again her screams echoed through the building. This Olaf did seven times. Each nipple was pierced, along with her septum, then her belly button, her clitoral hood, then each lip of her vagina. Patricia was a whimpering mess when it was over with, and only hung limply in the shackles.
+
+Noticing a shadow approaching down the aisle, she looked up to see James approaching! Muffled calls for help were unheeded however, as Olaf turned to the new visitor.
+
+"Well, what do you think? Can you work with her?" asked James.
+
+"Hmm, she is somewhat old to just be starting training, but if we apply more than usual force in behaviour modification I'm sure we will get results of some sort." Olaf responded.
+
+"You're the expert. Let me know when she is ready for me. I gotta go back out of town again, and won't return for at least a month. See what you can do in the meantime, ok?" James turned to walk away then without so much as a glance back. Patricia could not believe it. All of this time and he was going to walk away and leave her with this crippled troll?!?
+
+"Oh, by the way, congratulations James on your engagement." Olaf shouted at his back.
+
+James turned, smiling. "Thanks. We're getting married next week, which is why I won't be able to come back and pick up my property til then. You did amazing things with Sonya! She is the perfect little slave, and will make the perfect trophy wife. She will do anything to advance my career!"
+
+Patricia watched James walk away then. An entire month! She had only wanted a weekend fantasy, but it turns out she got more than she ever bargained for, and would spend the rest of her life as a pony girl. She did not notice Olaf moving up behind her until she felt his hands on her hips. James was out of sight as Olaf pulled the tail plug out of her ass.
+
+"Time for a little personal pleasure slut!" he said.
+
+Patricia could only buck a little as she felt his hard cock pressing insistently at her rear. This was going to be a very long month...

@@ -1,0 +1,291 @@
+---
+original_url: https://www.maidbots.net/storiesek/familymaid3.html
+subcategory: Pony & Pet Girl
+title: The Family Maid
+authors:
+- Gromet
+tags:
+- F/f
+- M+/f
+- machine/f
+- latex
+- uniform
+- maid-bots
+- mind-control
+- program
+- transform
+- F2maidbot
+- computer
+- recharge
+- tech-bots
+- diagnose
+- transport
+- factory
+- pod
+- tubes
+- insert
+- nanobots
+- bodymod
+- mindwipe
+- android
+- mistake
+- coverup
+- delivery
+- sold
+- cons
+- X
+date: 2017-10-30 00:00:00
+---
+
+story continued from [part two](familymaid2.html)
+
+**Part 3: Back to the Factory** - the darker ending
+*There is now a nicer ending for this story [**part 3a: Back to the Factory - the nice ending**](familymaid3alt.html)*
+
+Morning came and the usual routine started as Stacy awoke, got dressed and received orders to report to the kitchen to prepare breakfast for several of the guests. Stacy whizzed though her assigned tasks and was directed by the system to carry a tray upstairs to one of the rooms. Upon knocking and allowed entry, she found her sister Liz still in bed with Louise; they were kissing each other as she walked in the room, Liz hoping to embarrass her with what she was doing.
+
+“Morning Mistress’s, I have the breakfast as ordered, where may I serve you?” Stacy responded impassively.
+
+Liz annoyed that her little plan didn’t seem to be working, briskly ordered her to serve them both in bed; they sat there with their naked breasts on display trying again to humiliate Stacy. The maid just continued to serve them as if nothing was out of the ordinary, their nakedness no concern of hers, she was just here to serve them both before returning to her duties.
+
+Louise reached out her hand as Stacy placed the breakfast tray on her lap, grabbing hold of Stacy’s wrist, “You little bitch, I’m still sore from last night!”
+
+“I’m sorry Mistress to hear that, would you like me to fetch you some ointment?” Stacy asked.
+
+“No fucking way you’re getting anywhere near my pussy again!” Louise spat out.
+
+“Leave her be,” Liz said, “Maid return to your duties.”
+
+Stacy curtseyed and departed the room, happy that she was no longer in such a confrontational situation, ‘well if you didn’t give me concise instructions, what do you think I would do.’ thought Stacy.
+
+Several of the guest only required a light breakfast, some wanted a ‘hair of the dog’, luckily the system caught what that meant before some poor pooch was shaved bald.
+
+Stacy continued in her duties the rest of the day, there were several bedrooms to clean after the party last night, all the beds were stripped, sheets washed, dried and ironed. The beds remade and the floors vacuumed of all debris, window cleaned and polished. The maid-bots were kept very busy the rest of the day. Indeed several of them ran out of juice before they could get back to be recharged, causing the system to send out an S.O.S to the main computer at RobotMaids, Inc.
+
+Technician bots were quickly dispatched from the local office, their vehicle soon reached the residence where they found a couple of the maid-bots fully discharged. Plugging them into portable packs they moved the maid-bots back to their charging stations. Checking over each one for any damages, replacing batteries that needed changing, and running several protocols through each maid-bot.
+
+Louise made it downstairs and saw the tech-bots at work on the maids; she said to one of the tech-bots, “That Stacy-bot model is faulty, she needs to be taken back to the factory for a total reprogramming, she bit me last night, isn’t that against your directives?”
+
+The tech-bot responded to Louise, “Yes Mistress, it is against directives to injure a human.”
+
+He then spoke to the house main frame, “Call Stacy-bot to the Charging Station.”
+
+Stacy was busy elsewhere, her mind on doing the laundry and making beds when she received the command to report to her station. Her body moved of its own accord as the system took control away from her, she could do nothing except follow her commands. She walked from the laundry towards the maids’ room; there she found the tech-bot looking at a tablet in its hand.
+
+“Stacy-bot MB-090-7641, you have gone against a directive and injured this human female.” It said. Louise looking very smug with herself, “Yeah, you bit me bitch!”
+
+“I cannot recall that,” Stacy said, “please check with my files on the main frame where my memories are stored.”
+
+The Tech-bot connected to the main frame and began going through her memory files, finding the correct memory it stated, “You injured this female by biting her genitals. It seems that you were following instructions but we need you to return to the factory for more analysis.”
+
+“Damn right, take the bitch and fry her memory!” Louise spat out.
+
+“Please follow me out to the vehicle Stacy-bot MB-090-7641; we will escort you back to the factory for reprocessing.”
+
+“By your command.” Was all Stacy could say, but inside she was afraid of what they would do to her. Stacy followed the Tech-bot out to the vehicle, the other tech-bots now finished joined them and they set off to the factory.
+
+Closing the door behind them Louise said, “That’ll teach the bitch!”
+
+\*\*\*
+
+Stacy was very afraid by the time she reached the factory, the vehicle pulled up to a loading dock and the tech-bots all disembarked, Stacy followed behind, reluctant to be here but still under control she could do nothing but follow the tech-bot. She was taken into a workshop and the tech-bot began to scan her systems, checking her thoroughly they discovered that she was not like the other androids here, her system didn’t configure to the tech-bots programming.
+
+The main computer told the tech-bot to put Stacy-bot into storage until one of the human technicians could evaluate what she required before being rebooted. Stacy was led over to a large charging pod in one corner of the workshop, the tech-bot instructed Stacy to step inside, this wasn’t like any she’d seem at home, and this had more lights, buttons and looked way more intense.
+
+Stacy stepped inside, her mind automatically went into shutdown mode, and several connections were made to her body, each one sending small amounts of electricity through her body, luckily for her she was switched off, her mind blank. The door closed sealing her inside, just another maid-bot here to be reprogrammed, her mind to be wiped and all original functions restored.
+
+Also this machine had nano-technology, several tubes snaked down and entered her body, nanobots entering her and seeking out what needed to be changed to improve this maid-bot.
+
+\*\*\*
+
+Meanwhile back at her home, Liz had finally deemed to come down from her bedroom; she joined Jill & Louise by the pool. “Great night hey?” she asked.
+
+“Yes had a great time.” said Jill.
+
+“Me too, except that bitch bitting me!” said Louise, still sore.
+
+Jill looked at her, “Who bit you?”
+
+“That fucking maid-bot Stacy!” she replied.
+
+“What was she doing down there?” Jill exclaimed.
+
+“I was trying to get the little bitch to blow me off!” Louise said, “but instead she bit me!”
+
+Jill fell about laughing, “You’ve never had a maid-bot before have you?”
+
+“No my parents didn’t believe in them, they had real maids.”
+
+“Well if you’d have; you would have known that they only follow commands. You have to give them the correct command to go down on you, lick you out and bring you to orgasm.” Jill said.
+
+“I told her that too!” said Liz. “but I eased her tension afterwards anyway!”
+
+“Yes you soothed my little button nicely,” said Louise. “Thanks”
+
+“My pleasure.” Said Liz.
+
+“Hers’ too by the sound of things.” Jill laughed.
+
+They settled in and sat around the pool, taking the occasional swim. The events of last night now long over, they just enjoyed the sunshine and the refreshing drinks brought out by the maid-bots.
+
+\*\*\*
+
+“Where is the Stacy-bot?” Liz asked when she realised that she hadn’t seen her in a while.
+
+“Where the bitch belongs!” spat Louise, “back at the factory for reprogramming.”
+
+“What! When did this happen?” Liz asked.
+
+“When those Tech-bot turned up here this morning, to repair the maid-bots that had broken down.” Louise replied.
+
+“What?” Liz exclaimed, “they’ve taken Stacy back to their factory!”
+
+“Well you did say she was just another maid-bot after all.” Louise said. “She needed to be fixed.”
+
+“Oh my god! What have you done?” Liz screamed, jumping up and running inside.
+
+“Looks like you fucked up again!” Jill said.
+
+“How was I supposed to know…” Louise said.
+
+“We best get out of here…” Jill said, with Louise agreeing, they made for Jill’s car and drove away.
+
+Meanwhile Liz had finally found Andrea, “My sister, where is she?”
+
+Andrea had been programmed to respond to this question by answering that’s Stacy was still away at college.
+
+“Where is Stacy-bot?” Liz frustrated by the response.
+
+“Stacy-bot MB-090-7641 has been taken back to the factory this morning for reprocessing.” Andrea stated.
+
+“Reprocessing, what is that?”
+
+“The maid-bot unit Stacy was found to be faulty, it has been taken back to the factory to be restored back to its original maid-bot programming as specified by RobotMaids, Inc.”
+
+“But she’s my sister!” Liz wailed.
+
+“Stacy-bot MB-090-7641 is the property of RobotMaids, Inc. and also the Master & Mistress of the house.” Andrea stated.
+
+“Property…” Liz’s voice trailed off.
+
+“All maid-bots in this house are property of RobotMaids, Inc.”
+
+“And Master & Mistress…” replied Liz.
+
+“Yes Mistress Liz, now you understand.” Andrea said.
+
+The penny finally sank in, “I’d better call Mum.” Liz responded.
+
+“Unless you need me for anything else I’ll return to my duties.” Andrea said.
+
+Liz by now was franticly trying to call her Mother, she tried several times but each time she could only leave a message, the phone must still be out of reach Liz assumed.
+
+“What can I do?” Liz said to herself, “I’ll call the factory.”
+
+She managed to find the number for the 24 hour service line, this was an automated system that asked her if she wanted to report a fault with her bots, if she wanted to purchase or rent extra bots. The questions never seem to give her an answer that she could speak with someone at the factory, just automated questions with a number to press should she require that service.
+
+“Damn, bloody voice systems,” Liz slammed down the phone in disgust. “I’d better drive over there and see if I can get someone there.” And headed off to find Jill, who was the only one who had bothered to learn to drive, and also had the only car.
+
+“Jill? Where are you? Jill.” Liz called out and searched the house.
+
+Andrea walked past, “Mistress, she has left the building.”
+
+“Damn you Jill, why couldn’t you wait.” Liz cursed.
+
+“Andrea is there anyone at the factory that I can speak to about Stacy-bot?” Liz asked.
+
+“No Mistress, the factory is totally automated and run by tech-bots until Monday.”
+
+Liz didn’t know what to do, so she sat by the pool she at least knew how to do that, her upbringing and her education had not prepared her for handling such difficult situations, she a just another spoilt rich kid as far as everyone else was concerned, so no one bothered her with any sort of life skills other than partying and playing, that all she ever needed.
+
+\*\*\*
+
+Monday rolled around, Liz woke up late as usual around midday, she still hadn’t heard from her parents, and wondered what they were doing, she needed desperately to talk to her as she’d know what to do about Stacy in an instant. It wasn’t until later that day that the police showed up at the door; Andrea opened the door and bade them follow her to the pool where Liz was sunbaking as usual. Liz sat up when she saw the police, thinking that they’d come to arrest her for sending her younger sister away to the factory for reprocessing.
+
+Sadly, that was not what they were here for it seems by the look on their faces. It seems that the yacht they were travelling on struck a reef during the night and all occupants were lost at sea. It took a while for the information to sink into Liz’s brain, but when she realised that her parents were gone she burst into tears. A doctor was summoned and she was sedated, such was her reaction to the trauma.
+
+\*\*\*
+
+Stacy on the other hand was totally unaware of what had happened after she arrived at the factory, she’d been locked away in the charging & reprogramming pod the rest of the weekend. Her body had been subject to several small electrical charges, and the nanobots had been busy inside her body, converting muscle and bone into servers and a metal frame, her body had undergone extreme changes as the system tried to make her just like the other maid-bots that it had to reprocess.
+
+Not knowing that she was in fact human, and only her mind was under the control of the main frame. All memories of her previous life had been wiped, including those on the main frame computer back at her parents’ home. Her whole system had been rebooted, the system not finding any corresponding data about her body had decided to change her to match the specifications that every other maid-bot had when they left the factory.
+
+It wasn’t until a human technician came into work that he discovered what had happened to Stacy. He checked that Stacy was still alive, she was but now she was more machine than human. Her body had undergone a radical change that would enable her to function more like the maid-bots that the factory turned out.
+
+Thinking that his job was on the line, he contacted his supervisor to let him know what had happened. His Supervisor fearing for his job flicked it to his manager, who passed the buck to the CEO. They all came down to the reprogramming booth that contained Stacy. They all stood there not knowing what to do.
+
+“You say she was delivered here over the weekend?” the boss asked.
+
+“Yes, the tech-bots dropped her off.” Replied the tech.
+
+“And she is registered in our system as Stacy-bot MB-090-7641?” he asked.
+
+“Yes, most unusual but it seems that way.” The tech said.
+
+“So she is technically our property.”
+
+“Technically yes, she’s registered as one of our maid-bots.” The tech replied.
+
+“So we’re free to do what we want to her then.” The CEO stated, the fear of being sued subsiding with each statement.
+
+“Well if she’s our property, then yes.” Tech guy said.
+
+“Her body has been heavily modified, her mind wiped and her functions reprogrammed.” The CEO stated knowing the answer. “Who’s her owner?”
+
+“Mr & Mrs Huntley, out at Palms Meadows.” The tech responded.
+
+“Didn’t they go missing this weekend; it was all over the news.” The CEO asked.
+
+“Why yes I think you’re right.” The Manager stepped in. “So if I’m right thinking that her owners are no longer around, then we are effectively her only owners.”
+
+“Isn’t there a daughter?” asked the tech.
+
+“Well yes she’s here in front of us.” The manager responded.
+
+“No, there’s another daughter.” The tech said.
+
+“Oh, damn. That changes things.” The manager said.
+
+“Not really, we have fulfilled our end of the bargain, she was sent here this weekend to be reprogrammed, which we’ve done and now she’s ready to be shipped back.” The CEO mused, “Why don’t we just get her back there and see what happens. After all we followed the customers’ instructions to the letter.” Turning to the tech guy, “You’d better see to it that the paperwork does say that!”
+
+Happy with their solution to the problem, also relieved that none of them would be fired today, they headed back to their respective offices.
+
+The tech guy meanwhile completed all of the paperwork showing what the customer had requested, even changing the files on the tech-bots that brought her in and then sending those bots off to recycling. Tech guy moves over to the pod containing Stacy, still out and unable to understand what had gone on beforehand. He checks that all the modifications have been completed; she would of course need a new pod to be delivered to replace the organic one she’d been using, as she can now run on a single overnight charge.
+
+“Okay, time to wake up Stacy-bot.” he said.
+
+The system kicked into gear, waking up Stacy from her very deep sleep, feeling very refreshed she looked around but didn’t recognise where she was.
+
+“Okay bot state your designation.”
+
+“Stacy-bot MB-090-7641, sir” Stacy replied.
+
+“Okay Stacy-bot, you’ve been upgraded as per your owners request; all functions have been reset, your memory wiped and your programming updated to the latest spec. Run diagnostics”
+
+“Stacy-bot MB-090-7641, confirms…”
+
+The tech turned to see to other things whilst Stacy ran through her programming.
+
+“Stacy-bot MB-090-7641 has finished her diagnostics; Stacy-bot can find no errors.”
+
+“Good Stacy-bot, but since you’ve been upgraded your new designation is Mandy-bot MBC-098-43501, confirm.”
+
+“Stacy-bot MB-090-7641 is now Mandy-bot MBC-098-43501, confirmed.”
+
+“Good now shut down your systems for delivery.” Tech guy commanded.
+
+Stacy, now Mandy turned herself off, her mind again switched off, her body relaxed. She was picked up by a couple of tech-bots and taken to processing, there she was packaged and shipped out back to her old address. Along with a new upgraded charging station.
+
+Mandy-bot was soon put to work by Andrea and the main-frame system that controlled the house, Stacy, now Mandy was happy inside now that she was really another maid-bot in the house, before she had been pretending she thought, now she was really just another maid-bot, ready to serve her Owners.
+
+Liz, many weeks after the funeral had finally spotted her working about the house, her mind still a fog from all of the pills she had been given by her Doctor and the new Nurse-bot that had been sent in. “Stacy!” she called out.
+
+But the maid didn’t respond, she called again, “Stacy, it’s me your sister.”
+
+She eventually caught up to the maid, looking in the maids eyes she could see a vacant stare, “Stacy, what have I done?”
+
+“Mandy-bot MBC-098-43501 at your service madam, how may I serve you?”
+
+The wail that Liz made could be heard many miles away, Liz’s mind couldn’t cope with what she’d done and was soon hospitalised for her own safety. She never saw Stacy or the house again. The lawyers moved in and not finding the younger sister, who seemed to have vanished off the face of the earth put the house up for sale, including all the maid-bots needed to run the house.
+
+It was soon purchased by the CEO of RobotMaids, Inc. Who was happy with the way things worked out after all. Mandy-bot soon became his own personal maid and was upgraded several times to supply other services other than being a maid-bot.

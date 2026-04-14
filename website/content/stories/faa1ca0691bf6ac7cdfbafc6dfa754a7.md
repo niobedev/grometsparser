@@ -1,0 +1,324 @@
+---
+original_url: https://www.latexstories.net/storieslr/lettersfromkaylin5.html
+subcategory: Latex Stories
+title: 'Letters From Kaylin Chapter 2: Journeys Part 3'
+authors:
+- RbrBill
+tags:
+- Solo-mf
+- F/m
+- latex
+- catsuits
+- gasmask
+- boots
+- corset
+- hood
+- cuffs
+- timer
+- toys
+- stuck
+- mast
+- climax
+- sex
+- rom
+- reluct/cons
+- X
+date: 2012-10-17 00:00:00
+---
+
+I have consolidated all of my stories to date on a Yahoo Adult Group. The Group has the stories and loads of free heavy rubber photo finds that I've compiled over the years. There are even a couple of photos of me enjoying my favorite material. <http://groups.yahoo.com/group/rbrbill_fans/> - Story continues from [Ch2: Journeys Part Two](lettersfromkaylin4.html)
+
+**Chapter 2 - Journeys**
+
+**Part 3**
+
+Jason woke to the pulsing of his cock inside the sheath. As he slowly came to awareness, there was Kaylin sitting on his chest rocking in ecstasy. She rode his sheathed manhood as he watched with a detached fascination. Despite his distaste for the rubber, the sheath raped his body until he had no choice but to follow the building heat of his animal side to aroused explosion. The physical pleasure of release was real but the emotional requirement remained. He reached for Kaylin and pulled her to him in a tight embrace and her immediate response was another rocking explosion as he sucked her tongue and tried to be one with her passion.
+
+He disengaged long enough to say, “I love you but…”
+
+“No but. I know you still have doubts. Not now Jason,” she said as she pressed her lips hard to his again.
+
+The kisses stirred him again. This time she let him pull off the leggings and the sheath-briefs. Stale cum and sweat flooded his sheets as he finally pushed his naked shaft into her waiting flower and let her sweet body carry him to a slow and satisfying release. She held his rubberized chest tightly as she also rode to another climax.
+
+She pulled away and he fell back exhausted. Between rubber and this final “normal” encounter, he was totally spent.
+
+“I owe you breakfast,” she said lightly and got up from the bed, closed the crotch of her suit and headed for the kitchen.
+
+Jason fell back on the bed and immediately felt the damp spot where he had so recently spent his seed in hard and raunchy sex. The thought grossed him out and he quickly jumped up to remove the incriminating evidence. Then he looked at the pile of black rubber on the floor. He peeled the shirt off and added it to the pile.
+
+He realized he had to rinse the stuff out and do some level of maintenance on it. He picked up the pile and carried it to the shower where he tossed it in, turned on the water and when the shower was a nice hot steamy caldron, he stepped in with the offensive rubber and began to cleanse his soul of the stuff. He picked up the various rubber items, rinsed and soaped each and hung them on the door. He looked at the suit, the leggings, the shirt and the brief and realized the odd feeling was not so much distaste as bewilderment and maybe a level of fear that the stuff was gaining a hold on his emotions. After washing off the soap he dried himself then found hangers that he could use to drip dry the rubber. He put towels under the dripping stuff to soak up the excess water.
+
+He pulled on a robe and went out to the front room. Kaylin was there flitting between the kitchen area and the dining table. She was setting a breakfast of scrambled eggs, toast, fruit and coffee. She moved easily in her rubber suit. The sun glinted off the surface in a most delightful way as she moved between the two spaces. She ignored the sliding door that opened to the small ground-level patio. Anyone coming along the back path, they and looking at the right time would be greeted to the vision of a shiny black form moving around inside the semi-dark apartment. Kaylin didn’t seem to care a whit about that.
+
+“Where’s your rubber?” she asked.
+
+“I cleaned it and hung it to dry,” he said.
+
+Kaylin seemed a little disappointed that he hadn’t put it back on for breakfast.
+
+“We have all day and most of tomorrow together, dear. I plan to make the most of the time.”
+
+“How do you plan to do that?” he asked.
+
+“Well, I have to run up to Maria’s place and get some things. Then I’ll show you.”
+
+“You need a coat or something?” he asked.
+
+“No, I’m fine. Be right back.”
+
+She trotted to the door, opened it and peeked out, then ran out and closed it behind her. Jason never ceased to be amazed at how casually she ran around in the rubber suit and sat to wait her return. To begin eating would be rude.
+
+He waited ten minutes before there was a knock at the door. He went to it and opened the door. Kaylin ran in with a suitcase and another unopened box.
+
+“I’m starved, let’s eat!” she said.
+
+“This is good,” Jason said between mouthfuls.
+
+“Thanks. It’s a secret ingredient. I’ll make sure to add it tomorrow too.”
+
+“Secret ingredient?”
+
+“I’ll tell you about it some time, but just enjoy for now. By the way, I hope you weren’t planning anything big today.”
+
+“Nothing much, just a drive out to the Snoqualmie Trailhead and a little hike with Tom.”
+
+“I’ll let him know that I can’t make it. I’d rather be with you any time.”
+
+Jason and Kaylin ate in silence.
+
+“Are you beginning to understand latex, dear?” Kaylin asked.
+
+“What’s to understand? It’s rubber. It obviously has some sort of hold on you that sexually. I still have a hard time getting past the cold clammy part of it. It looks sexy on you but I don’t feel sexy when I’m in it. I feel like I’m ready to go into a hazardous material site.”
+
+“At least you didn’t say ‘freak’. When it gets warm and molds to you, don’t you feel something more?”
+
+“Yeah, hot and sweaty. And it’s not sexually ‘hot’.”
+
+“You need to get past the basic literal senses and reach beyond. Can’t you feel the rubber becoming alive around your body? I mean it becomes part of you and it moves with you and it massages you sensually.”
+
+“It does?”
+
+“It does to me.”
+“It amplifies the touch. A light touch on a rubbery leg spreads beyond the point of contact. It gives more feel. It lets heat from your partner right into you adding to your own heat.”
+
+“And generates even more sweat.”
+
+“Which allows the latex to slip and slide even more deliciously over the body, adding to the massage and the sensuality of the material.”
+
+“I hear your words Kaylin and I know you love the stuff but I just have a hard time including love with something made from tree sap.”
+
+“Even when I’m inside it?”
+
+“I love you, yes. I don’t love rubber,” Jason said bluntly.
+
+“I don’t love rubber. Rubber enhances my love. Rubber makes the physical pleasure better. It enhances the physical response of sex.”
+
+“No, Kaylin. You love the stuff. Listen to your words. I can’t love it that way… at least I can’t now. It’s still too kinky and foreign for me to fathom… to make such a leap to the emotional attachment to the stuff you show.”
+
+“So this is the end? Is that what you’re saying?”
+
+“I honestly don’t know. I still have strong feelings and desire for you, to be with you and to even love you occasionally in rubber; but I don’t see rubber as such a central part of our lives together as you are making it.”
+
+“Let’s do something without rubber then. I planned a rubber day but since you feel this way, we can do something else. Maybe we can go to a ball game and then a regular dinner after.”
+
+“Sure we can do that.”
+
+“Just one thing… if the Mariners win, then we do it in rubber before I go back to Denver.”
+
+“And if they lose?”
+
+“I won’t ask you to wear rubber again.”
+
+“That’s it?”
+
+“The game’s at one. We have to leave for Safeco by eleven to be sure of getting a seat.”
+
+“I’ll put this box away until later… if they win, you can try the contents out. Meantime, let’s get ready for that date.”
+
+Jason really didn’t expect the M’s to win the game. King Felix wasn’t pitching and the team had a dismal record. They just didn’t score runs.
+
+The problem with latex is taking it off is almost as time consuming as putting latex on, especially if it’s been on for hours. Kaylin had to remove the suit, wash it out, shower, dry the suit and herself, powder the suit and put it away and get dressed in her regular clothes. She finally knocked on his door a little before eleven… over two hours after she had left to change.
+
+“You’re lucky I understand latex care enough to know it takes time,” Jason said as she came into the apartment.
+
+“You like?” Kaylin asked.
+
+She was wearing leg hugging blue jeans and a tight cotton tee with a Mariners logo. She was almost as exposed as she would be in one of her rubber suits.
+
+“Wow, the rubber is almost conservative compared to this!”
+
+“I can change in a minute.”
+
+“No. This kinda limits places for dinner after the game. I mean the Four Seasons is out.”
+
+“I figured Ivar’s on the pier would work,” Kaylin said. “I miss the good seafood here.”
+
+“Works for me.”
+
+Safeco Field on a Saturday afternoon. It was one of those first cloudless Pacific NW days that occasionally bless Memorial Day weekend. The temperature was a perfect 74. Puget Sound with the Olympic Mountains in the distance sparkled in blue and silver as the sun reflected off the little ripples. Plenty of boats were on the water and the occasional white and green Washington State ferry plowed through the deep blue water between Bainbridge and Seattle.
+
+There was something working against Jason and his plan for a rubber-free evening. First, Kaylin wasn’t really interested in such an event. And second, the mariners of 2011 weren’t the same anemic hitting and scoring team of 2010. Jason wasn’t really a baseball fan and he pretty much kept in his little geek world of biochemistry.
+
+Fister was the starting pitcher so maybe Jason had a chance… maybe. Fister had been very good of late but he did occasionally “blow up” on the mound.
+
+The game began and proceeded in the boring succession of outs and minor threats and more outs until the sixth inning. The Mariners got to the other starter and before there was time to get someone warmed up, they had first and third and only one out. Jason felt confident the 2010 Mariners he remembered would either hit to a DP or a strike out then a routine groundout… inning over
+
+Cust was batting. After two quick strikes, Cust laid off a low and outside breaking ball. The next pitch was a fastball and Cust fouled it off. The fifth pitch was a slider and Cust crushed it into right field for a double. Both runners scored.
+
+After Cust, Kennedy hit a single bringing in Cust. The pitching change finally came but the damage was done. The scoring was done and the game ended as a 3-0 shutout with Fister getting the win and League the save.
+
+“I think the bet had something to do with wearing or not wearing rubber tonight, right,” Kaylin said.
+
+“Yeah, I guess you get to play in rubber tonight.”
+
+“You too, honey,” Kaylin said.
+
+“I’m not really up to it, Kaylin. I mean rubber is your thing, not mine.”
+
+“I see…Well if that’s it then we might as well go back to your place. I’ll pick up the stuff and go back to Maria’s place and get some sleep before heading back to Denver.”
+
+“I’m sorry, Kaylin,” Jason said quietly. “I just can’t get into rubber the way you do.”
+
+“It happens, Jason. I thought we had something more than just rubber and sex. I thought we were getting along in other ways too.”
+
+“Maybe we were but then rubber always seemed to get in the way.”
+
+The ride to Everett was quiet. Jason was lost in his thoughts of how much he really did like Kaylin. It was just the kink was too big to get around. His Internet research indicated that rubber could be a real love/hate thing. If someone loved it, it was usually so addictive that it had no way to put it out of one’s life. The hate side was almost as strong. He didn’t exactly hate the stuff but he did have a feeling it was wrong and he couldn’t shake the feeling.
+
+As they got off the bus Jason reached for Kaylin’s hand.
+
+“Let’s try to make something work,” he said.
+
+“I’d love to but you know me pretty well. I’m not sure I can change after so many years.”
+
+“Well we can still do a nice dinner tonight before you go back to Denver.”
+
+“No, I think it best we leave it this way. I’ll get the stuff in your apartment.”
+
+“Well, okay.”
+
+“That’s it? You’re not going to try to push back?”
+
+“No point that I can see. Maybe we can keep in touch and if things ever change, you know where I am.”
+
+“Yes, Jason. And if you ever decide to try something more, you know where I am..”
+
+Kaylin gathered up her gear and the unopened box and went to the door.
+
+“I guess I’ll be sending this back to the company. I’m sorry for you, Jason. You had me and blew it. Good Bye.”
+
+“Kaylin!”
+
+Jason was talking to a closed door.
+
+He stood for a moment then went back to his room. The box of rubber she had given him earlier sat in all its guilty glory in a corner of the room. The rest of the gear was laying around his room. The new box he would return to the company for a refund since it was unopened. Maybe he could sell the other stuff on E-Bay since it was used so little and in perfect condition.
+
+\* \* \*
+
+Kaylin studied her slender body as she prepared lose herself inside her rubber suit. She contemplated her inner core feelings as she slowly drew her hands over her smooth curves. Her mind wandered to the dark recess of her mind pulling up images of her body writhing in carnal ecstasy as she let the rubber skin massage her with thousands of tiny fingers and the toy inside bring her to incredible peaks of passionate release. She could feel the little vibrating egg in her gloved hand rubbing through her rubber skin to touch her sweet spot just above her filled flower and the arousal rushing her bodily forward to rapturous lust again and again and again. It was an out-of-body dream as her soul watched the writhing body in its animal contortions as she fulfilled her very desire. Yet the fulfillment was only physical. She would sleep a deep exhausted slumber in her suit once the session was done but her spirit would be denied its reward.
+
+She slowly pulled the legs of the suit over her skin, first the right leg then the left leg. She felt the tight rubber encasing her skin and the thrilling tingle of the gentle massage stirred her being. She felt the building submission to latex that always accompanied her journey into the dark latex world.
+
+She slipped a pussy toy inside her and pulled the suit over her hips. Slipping her arms into the sleeves of the suit she pulled the rubber into place. She made sure her petite mounds were snuggly encased in the suit cups and pulled the zipper up her back. She lightly stroked her body curves as she moved sensually in the mirror. Her private show gave her a little thrill inside and a slight shudder of her body was visibly reflected in the glass.
+
+Next Kaylin pulled on her heavy latex thigh-high ballet boots. These boots actually reached to her crotch because of her short stature and the tops bit into her tender skin, teasing her mons. The boots had laces that were tightened and tied the first time she put them on and assured a very tight encasement of the legs. The boots had zips up the back that were the normal method of closure once the laces were properly sized for the wearer. She closed the zips and felt the tight thick latex seizing her legs in a vice-like grip. Now she could hardly stand without deep concentration and her knees could barely bend inside their thick rubber encasement. She eased on a pair of latex gloves and took up the heavy corset she wore that Karaoke night so long ago.
+
+She slipped it around her waist and zipped the front. Then she deliberately buckled the seven ornamental buckles of the vest. It was tedious work with her glove-clad fingers fumbling with each buckle. She thought that putting the thing on before the gloves would have made sense but the thrill of the fumbling and slow progress actually added to the excitement.
+
+As she dressed she wondered at her chances of finding some appreciative partner to share her thrill for the embrace of tight rubber. Jason slipped into her thoughts and she weighed her chances of getting him to ever come to appreciate her rubber passion.
+
+She slipped her hand along the stiff rubber encasing her waist. Her fingers wandered to the heaving rubbery mounds above the crushing corset bodice. She pinched and rubbed the hard nipples poking against the latex and her breathing faltered. Her left hand dropped to her tight curved cheek below the corset and the squeaking of the glove against the rubbery skin thrilled her. Her breath was hard panting now and in her arousal the toy inside was sliding easily within her warmth. Jason’s sheathed cock was better but the toy came very close to completing her building desire.
+
+Kaylin stumbled to the love seat and pressed a little pink vibrating egg to her sweet spot. She immediately came to writhing ecstasy as the hair-trigger arousal from dressing in the costume drove her to an instant explosion. She fought the immediate suffocating feeling of pressing rubber that comes after orgasm as she knew she would need more than one to calm her passions if expected to achieve any sleep.
+
+As she came off the initial explosive peak and her body settled into a steady plateau of expectation, she suddenly had a new thought. This new thought would be more extreme. She realized it might be the exquisite need to forget Jason.
+
+Kaylin put foam rubber ear plugs into each opening. She felt the foam expand to cut off most of the outside sound. She pulled on a full hood. The hood had added foam padding that pushed against the ear plugs gently and now cut off over ninety-five percent of the outside sound. She could hear the rush of blood as her focus turned inside her body. With difficulty, she tucked its neck into her cat-suit. Then she put on her wide neck corset. Now her head was comfortable immobilized and to see to either side required her to move her entire body.
+
+Kaylin strapped a wide belt with attached industrial grade gauntlets. These gloves were from England and a medium grade rubber that she could easily slip her hands in. The secret to them were the two built-in steel bands in the wrist. These cuffs were open with a spring locking system and a release pin that was activated by pressing the wrist against the thigh. Electromagnetic locks in the cuff rings placed a high level of force keeping the bands closed until the electrical power was turned off by means of a timer built into the belt. The belt was designed for self-bondage. She would set the timer before settling into the resultant bondage. The timer was built into the belt buckle but once the cuffs snapped shut, it couldn’t be reached to reset.
+
+She could just reach her calves if she sat on the bed and used all of her wiry strength to push against the stiff rubber encasing her waist and legs. With an effort she was able to lock a spreader bar below her knees. She pulled her legs open and heard the clicking of the locking button each time it passed the latching holes in the bar. Years before she had filed down the outer side of the latch buttons into a smooth slanting wedge that allowed the bar to be pulled open by simply opening the legs. Closing the bar was something else again. To close it, the release buttons had to be pushed in much like the buttons on a height adjustable cane.
+
+She opened her legs to a fairly extreme spread. Next she swung her body awkwardly into the bed. The bed was covered with latex sheets. The rustle and squeak of rubber on rubber was quite soothing to her heated and aroused body. Her senses were building to overload and her thoughts were a blur as she worked on setting the timer.
+
+Before the timer she had one last little device to include in her bondage. She struggled to open the convenience zip of the cat-suit and slipped the vibrating egg into a nice spot against her swollen bud. She closed the zip securing the thing in place.
+
+She couldn’t see too well with the various restrictive devices she wore. In fact she held a small hand mirror in a trembling hand as she tried to focus on the timer setting console. It was basically an alarm clock. It could be set for a time or for a length. She figured three hours would be just about right for this bondage session.
+
+Kaylin fumbled with the timer buttons and got the three in the hour showing in the mirror. She pushed the set button and the safety system asked the question if the amount of time was correct. This safety activated any time the setting exceeded one hour. She tried to push the confirm button but her fingers fumbled and slipped as she was pressing it. She didn’t notice the hour setting spun forward another eight hours. The system asked the question again because of the reset. By now Kaylin was getting pretty hot, horny and frustrated so she jabbed at the confirm button before really looking at the setting through her mirror.
+
+She pulled on her gas mask and made sure her breathing was smooth and clear. She fit the drinking tube of the mask between her teeth and wrapped her lips around the snorkel mouthpiece she had added to the tube to assure the thing would stay in place during her physical contortions. The tube connected to a camelback filled with sports drink. Even though she planned on three hours bondage, she understood the needs for fluids under the expected duress of the session. Then she slid her arms into the gauntlets and pressed her wrists to her thighs. She felt the satisfactory locking of the wrist cuffs. She was locked in this extreme bondage of sexual arousal for the next three hours… or so she thought.
+
+Kaylin was bathed in sweat from the exertion required to complete the ritual of sealing her willing body in rubber encasement. Even in her exhausted state her body surged toward orgasmic release as the egg buzzed under her rubbery skin and her thrusts caused the toy inside her hot pussy to shift deliciously against her hungry inner recesses. The hunger for physical release and carnal satisfaction was all consuming as she thrust and pulled against her bonds. The massaging rubber skin surrounded her with its tight embrace. The heavy popping of mask valves and the whoosh of her rapid breath in the mask filled her ears. The sweet raw odor of hot latex filled her nose and left a taste on her tongue as she sucked hard against the resistance from the mask to pull in enough air to satisfy her aroused condition. With each breath the mask seals collapsed deliciously to her face.
+
+Living rubber was consuming her very soul and she was the willing victim of the assault as her body quickly built to the inevitable release of rubbery lust and passion. A true rubber orgasm is a thing of stages. The multiple assaults on the senses overpower the mind so completely that no thought save the absolute pressing need to reach ecstasy in blissful orgasmic relief filled Kaylin’s being and soul. Her body thrusts and her fight against her bonds were singular in purpose… to achieve the elusive goal of explosive animal lust. She was completely stripped of sanity and rational thought as she writhed in her bondage. The complete loss of her reasoning and surrender to the rubbery prison was complete. This carnal desire thrusting basic instinct of the species to fulfill the precious gift of total sexual relief became her singular focus.
+
+She wanted nothing but the immediate moment and the building rush of lust inside her core reached the point of no return and blasted out from her inner flower in a fiery flood of passionate hot magma blasting from the Earth’s core to spread over the land in rebirth. The old world is buried under the flow and the future will spring from the ashes. So it was with Kaylin’s spirit as that first explosive release in the bondage flooded over her being and left her in the inevitable tight exhausted state that follows.
+
+Her desire to rip the clothes off was extreme and she writhed in the afterglow ecstasy knowing that she couldn’t release her body and her passion would build to another explosive release. As the first claustrophobic panic wave passed she sucked greedily at the cool liquid from the camelback. She smiled under the mask and let her desires work through the cycle of whirling feeling that filled her consciousness.
+
+As her first explosion subsided inside her heated body she thought, “To hell with Jason!”
+
+Kaylin turned her attention inward. She could feel her blood coursing through her veins as her heart slowly returned to a state of only mere arousal. Each beat drummed in her head. The rush of her breath passed through her inner cavities to her ears. Her moans of ecstasy subsided as muscles eased tension and a level of relaxation set in. She tried to turn even a little but the spread legs and heavy corset prevented movement. She looked at the ceiling through the lenses of the gas mask. The light mist from her heated ordeal slowly evaporated as the nose-cup handled all of her slower breathing and exhausted it to the outside without any over-spill into the outer part of the mask.
+
+She tried to count the time but of course it was useless. Her experiences in similar bondage usually resulted in a second arousal and orgasmic release in about fifteen minutes, especially if she’d cum prior to placing herself in bondage.
+
+The claustrophobic terror passed and she was even a little bored as she counted breaths, then heart beats then breaths again. She swilled more drink from the camelback and tried to relax as best as she could. She even drifted a little and snorted into the mask in an abbreviated snore.
+
+Jason was back in her thoughts. She wondered what he was doing two floors below. She wondered if he was beginning to realize his loss. This was unproductive thinking so she turned her thoughts inward again. This time she visualized her blood coursing through the veins. She saw the individual cells floating in the clear plasma. She was floating among the cells in a white dive suit. Oh gawd now she was thinking of that goofy sixty’s movie, Fantastic Voyage. Sure she always wanted to fill out a suit like Raquel could but she was pretty happy with her body as it was.
+
+She drifted deeper into her rubber-induced bliss. She was falling deeper into the pit of rubbery tar. Like quicksand only more sensual and more loving as it swallowed her in its embrace. The malevolent evil that took Lieutenant Yar in Star Trek came to mind, only this wasn’t malevolent and Kaylin reached to embrace it completely. The buzzing toys were milling around the edge of her thoughts. It was ten minutes since her first bond cum and those toys were vying for notice in her thoughts. Her body went through its soothing reset and the toys were saddening there, taking command and driving her toward her next climax.
+
+She began to ungulate in her bonds, a slow movement up and down that allowed the tight rubber to slide on her slippery sweat-drenched skin. Her breathing slowly quickened and she felt the pounding heart and rushing blood as she looked inward. This was going to be a slow one. She felt the signs as the toys brought her close then her exhausted body pulled away for seconds. She thrust hard at the egg against her bud. She looked over the abyss into the deep recess of carnal completion. But this one was a rolling one. As she went over the edge, the ground rushed to hold her and she rode the sensation like a wave, flowing, ebbing and flowing again as she came in a long satisfying event. This was one thing that the male of the species couldn’t do; at least not for her… carry her on a long sensuous pleasure ride of total ecstatic lust.
+
+Now the press of the suit and the encasing boots, corsets and mask was almost too much to take. She pulled hard at the cuffed, gauntlet-entombed hands trying to desperately (and futilely) to gain release from the rubbery prison. After several seconds dragged into minutes she calmed down and again found that peaceful corner of rubbery contentment.
+
+This time her mind went blank and she drifted into a light sleep. She was sure her ordeal was into its second hour. From experience she knew she would doze about an hour before one final arousal cycle would slowly slip into her hot body. The release of her hands would come soon after the final pulsating orgasm. She knew she would be ready to strip out of the tight bonds, and collapse into a deep sleep while still in the cat-suit. When she woke she would clean up before heading back to Denver.
+
+Awareness slowly returned to Kaylin. The tights bindings pressed against her body and the teasing toys set the arousal cycle into motion. She strained against the bonds. Her breathing increased as building lust consumed her body. Her rapid panting was all she heard as the internal ears focused on her demand for sexual fulfillment. Her straining muscles ached now in from the continuous bondage and the need for relief. The delicious pain of lust surged forth to wash her in animal desire. She thrust at the bonds. She pulled at the gauntlets holding her arms. She lifted her legs in the spreader and squirmed as best she could inside the thick rubber corsetry and boots. Her head moved back and forth within the limit of the confining neck corset. Her gas mask lenses fogged over and she was completely isolated in the rubbery bondage world… alone with her lust, alone with her desire, alone with her need to fulfill total and complete depraved sexual thirst. She swilled from the camelback as this thought of thirst sent a wave of need through her parched throat. The cool liquid coursing down her throat sent a shiver of unfulfilled desire through her body. A shiver that rose quickly to a demanding need for a massive explosion filled her entire being.
+
+She thrust and pulled at her bonds. She willed her body to climb the mountain above the clouds and see the reward. It was Shangri La, Valhalla, and Paradise she sought in total and complete rubber submission. Sweat poured into her suit. She writhed in agony of aching muscles and stiff bones yet the pain/pleasure only propelled her that much faster to her wondrous reward.
+
+She exploded. This time the explosion filled her with hot magma, subsided then rose again with a second long flowing surge of triumph. Her tense body thrust one last time then relaxation and the tight claustrophobia set in. This time it didn’t subside but continued as she anticipated the click of the locking device releasing her wrists. She waited… and waited.
+
+Her timing couldn’t be that off. The locks always released within ten minutes of the final planned explosion. This time the slow suffocation actually began to subside again. It must have been at least fifteen minutes, maybe longer for that to occur.
+
+The timer… ohmygosh… maybe she hit the set button by mistake when she fumbled for the confirm button. She tried to think back through the last hours of lust to remember just what happened. Yes, the thing had asked her to confirm a second time. She must have changed the setting accidentally. Now how long was it set? She knew it was less than twelve hours. Over twelve hours forced a second confirmation along with a warning tone that even her plugged ears would have heard. So she was locked for another one to nine hours and she had no idea which it was. She pulled hard at the wrist restraint… a futile gesture.
+
+Kaylin swilled more drink and the urge to pee added to the discomfort. She held back her bladder and the ache grew as she squirmed. This was no good. She’d not only get no rest but the discomfort would only get worse. She was really a prisoner inside her rubbery confinement. The thought surged through her tortured body and despite her predicament… maybe because of it… arousal rushed forth to fill her mind.
+
+This sudden rush of desire brought a peaceful comfort and an inner voice told her to let go. She pissed and felt her hot fluid gush and spread over her lower body and around to her back. This loss of control to her rubber master opened a new door inside her heated mind and she shuddered as the building rapture slowly overtook the panic and she let the rubbery encasement rock her in a fourth slow cum. This one washed over her and in her mind cleared the final hurdle to her destiny as a rubber whore. She let go in those fateful hours before the timer released. She finished the sports drink but her appetite for lust just built as she writhed in the bonds and reveled in the complete surrender to pure animal desire.
+
+She was spent when the timer clicked. Her arms ached and her legs were stiff. She lay in her bonds… not held but refusing to climb out of the dark hole in which she found herself. She lay there in a drifting half-sleep but reality finally took hold and she realized she had to get back home. With reluctance she pulled herself together and began the ritual of cleaning up. This one took a very long time.
+
+Fortunately what pee and sweat had gotten out of the enclosing rubber was safely contained on the rubber sheet. She was able to keep most of it on the sheet as she slipped off the bed, bundled all the evidence up and carried it to the shower. Three hours later she was all packed and ready to go. Jason never entered her thoughts.
+
+Kaylin made a quick check of the apartment to make sure nothing was left. She hauled her gear down to the car. She went back up to the apartment to make a final sweep. Ah the plans she had for tomorrow that were not to be, she thought as she checked again before turning out the lights.
+
+She looked at her cell phone for the first time since the timer released her. She had four missed calls from Jason. They seemed to start about two in the morning… strange. The last one was at four. Of course she was locked in her bondage until nine so she hadn’t been able to answer. Now she had to decide if she should call him or not. She deleted the calls.
+
+\* \* \*
+
+Jason’s night was a nightmare. He didn’t sleep a wink but not because he was sealed in tight rubber. The realization that the first woman he really liked enough to love was further away from him than ever. Sure she was just upstairs but she was unreachable as long as he couldn’t destroy his aversion to kinky sex or get her to give up her kink. It was a dilemma with no immediate answer. He either had to bend and reach for her as she was or give her up. He knew she wouldn’t give up rubber so he was the one who had to move.
+
+He once read that a lover finds out what key turns on the partner and makes sure that key is turned every time they are together. Kaylin’s key was rubber. And Jason saw no way past the block in his brain. Did he want Kaylin enough to yield to rubber? Would she give it up, at least occasionally for him?
+
+So far he had not seen any real movement on her part. Even their most normal love making usually happened after a romp in rubber. In fact he was almost always clad in part of his suit each time as was Kaylin.
+
+He knew Kaylin was upstairs. She was probably… certainly… in her rubber now. He pictured her in the suit and the corset he first saw that night at the China Doll. She sure looked hot in that gear but his desire was to see the hot girl inside and the rubber encasement as an invitation to peel off the latex to reach the fruit inside. This was the big problem that he never could get Kaylin to understand. He saw the rubber costumes as foreplay to a more “normal” mutual intimacy.
+
+He tossed and turned. He went to his computer and looked at some of the fetish sites again… for the how many times. The sites didn’t really do Kaylin’s or his situation justice. They were definitely geared to porno. Some were more sensual in content but those were few. He found Deviant Art was one that looked at fetish more artistically. That was close to what he had with Kaylin.
+
+He found a couple of forum sites that had writings from various “rubberists” he had read these and went back to view them again. Maybe there was something hidden in the words that would reveal the truth to this fetish. Kaylin was obviously a deep into it person. She loved total enclosure. She loved the sensory deprivation of sightlessness, and hearing loss. But she loved the intensity of the touch of latex and the smell to counter the loss of the two primary senses.
+
+He found the writings of “rbrbill” and read many of his stories. He never was sure what was fantasy or fact in the tales. One series in particular, Tales of the Spring, gave romance to the fetish and the road taken by two lovers into the rubbery world. Many of rbrbill’s stories were obviously pure fiction. The permanent enclosure in rubber could not be real. Still there were some mentally challenging questions posed in the stories.
+
+He slipped into the sheath briefs and slowly thought of Kaylin. It was two AM by now and he was sure she was done with her solo games. He tried her cell. It went to the voice mail. He left a message asking her to drop by before she left.
+
+He couldn’t sleep in the briefs. He couldn’t sleep in his normal bedclothes. He couldn’t sleep. Then he had the idea to put on the cat-suit and masturbate to exhaustion. Sure the suit was a crazy idea. He was so adverse to it with Kaylin yet he most recent erotic experiences were in the suit. He pulled the rubber gear on over the briefs. He only put on the suit. All that inner stuff was just too much for him to handle. He quickly figured out that the hood had to go as soon as he had his first spurting explosion into the sheath. He kept the suit on and the hood close. Sure enough he soon became aroused again as he stroked at the rubber skin. He pulled the hood on and rubbed himself to his second rubbery pleasure as he conjured images of a shiny Kaylin sitting with a triumphant grin on his stomach. He finally fell into a light sleep after taking the hood off again.
+
+He woke about thirty minutes later to another hard cock. He called Kaylin again, hoping she would answer and maybe join him in his journey. He pleasured himself and fell asleep again. The next time he woke at about six. He tried Kaylin a third time and then rolled from bed to remove the suit. He left it on the bathroom floor and flopped on the bed falling asleep. He woke again around eight and tried the phone one final time.
+
+Jason cleaned the sheath brief and dried it off. He put the brief and the heavy suit into a box along with the other latex clothes that were strewn around his bedroom. He closed the box with finality and put the box on a shelf in his closet. He put the unopened box on the shelf as well. He looked at the two boxes and thought of getting rid of them as soon as possible. He would set up the E-Bay sale in a few days.
+
+](https://forum.grometsplaza.net/index.php?topic=155.0)

@@ -1,0 +1,428 @@
+---
+original_url: https://www.boundstories.net/storieslr/the_reluctant_slave.html
+subcategory: Bound Stories
+title: The Reluctant Slave
+authors:
+- MasterKGray
+tags:
+- M/f
+- FF
+- slave
+- training
+- cuffs
+- toys
+- first
+- bond
+- gag
+- dungeon
+- naked
+- clamps
+- sex
+- pain
+- reluct
+- cons
+- XX
+date: 2021-01-20 00:00:00
+---
+
+Hi, I’m Erin, I’ve always been a little taller than most other girls, by the time I was fourteen I was as tall as I am now, standing five foot eight inches. I was terribly thin back then and everyone made fun of the tall skinny girl with jet black hair and pale as snow skin with the haunting green eyes. I’m still self-conscious about my height around other women, but most guys are taller than me, and I don’t often wear heels because it makes me that much taller and then some guys are intimidated by that. I didn’t date much in high school, I was still really lanky with not much meat on my bones and most guys just weren’t that attracted to me. I think my face is pretty, and my emerald green eyes catch men’s glances, but I only dated a few guys and one seriously, he was a nerd, but he treated me like a queen. Unfortunately, he was only an inch taller than me and if I wore anything other than flats I looked a little taller and he hated that. He tried wearing lifts in his shoes but they were uncomfortable.
+
+I lost my virginity in the back of Jeremy’s car one night just after I turned eighteen. I know, that’s pretty late but when you look like a tall skinny goth, even though you’re not trying to, the prospects aren’t good. Jeremy was his typical nerd self and didn’t know how to put on the condom and I didn’t even come close to an orgasm. I didn’t find out what that was until college. Yes, I know, my parents were pretty strict and I was afraid of disappointing them so I was quite the recluse until after I turned eighteen and my body started to change again. I had grown tall so young and then stopped, yet my pubic hair was thin and sparse. After eighteen my breasts (barely A cups) had started to grow and my hips started to spread and suddenly boys other than Jeremy started to notice me. By the time I graduated high school I was a C cup and my ass had bubbled out a bit. I went from being an outcast to getting asked out a lot. I went out a few times and politely turned them down when they asked for sex, though I did let a couple of them into my bra after a few dates.
+
+By the time I went off to college in the fall I was a full D cup and seemingly still growing. With all new clothes and a bubble butt to match, I was fighting them off with a stick at college. Every guy taller than me wanted in my pants as soon as possible. My sparse pubic hair was a full grown black bush to match my thick black hair. I started trimming it to keep it from tickling my clit and labia, the thick hairs would sometimes curl into me at the most inopportune times. I eventually just shaved it all off and kept it that way, thinking of getting depilated at some point just so I didn’t have to deal with it nearly every day. If I didn’t shave everyday it got itchy and would sometimes catch in my panties. I don’t know why it grows so fast but it’s like a man’s beard in my panties. In college I would shave a second time before a date and finally had my first orgasm when one of the football players fucked me with his huge cock. As soon as he got in my pants he dumped me and I cried like a child while my roommate tried to console me.
+
+The next day my roommate, Ashley, talked to me about guys, since I had no real experience. I found out that most guys just want to dip their wick and then split. She said their philosophy is ‘hit it and quit it’, which made me cry again but she continued and asked if I had enjoyed fucking him. I nodded and told her I had my first orgasm and she looked shocked.
+
+“You don’t masturbate, honey?” Ashley asked.
+
+“No, my parents are strict and religious and you’re not supposed to have sex before marriage. I think it’s pretty old fashioned, but while I was at home I tried not to have sex, although I did have sex once with my high school boyfriend,” I said, showing her some pictures of him and me together.
+
+“Oh my, you were a skinny thing back then, huh?” Ashley noted to which I just nodded and sniffled. “Well you sure have filled out since then, when was this taken?” Ashley asked.
+
+“About five months ago,” I answered as I blew my nose and wiped my tears.
+
+“Woah, late bloomer, but girl, you are hot now, wow!” Ashley commented. “I would kill for a body like yours,” she added, flipping her auburn hair and trying to push out her B cups. Ashley was a bit pear shaped and had nice hips and ass, but her breasts were somewhat small. She had a pretty heart shaped face with blue eyes and that beautiful hair, so she had plenty of men chasing her, but when we would go out together, I got all the attention with my big boobs and butt.
+
+“Thanks,” I accepted the compliment sheepishly.
+
+“What you need is a vibrator and some porn. Have you ever watched porn before?”
+
+“No.”
+
+“Wow, not even a little bit?”
+
+“I’ve looked at a few pictures and read a few stories, but I’ve never sat down and watched a porn video.”
+
+“What kind of stories did you read?”
+
+“Um, mostly damsel in distress stuff, but – “
+
+“But what?”
+
+“There’s one story I’ve read dozens of times and I thought it was another one of those damsel in distress stories, but in this one it’s really a ‘kidnapped and forced to be his slave’ story. It gets me all hot and bothered, but I’ve never, you know, rubbed myself down there, other than to wash and shave.”
+
+“You shave your pussy?”
+
+“Yeah, it gets really hairy and bushy, sometimes the thick hairs curl into my clitoris or labia and start to give me feelings, so I just shave it every day.”
+
+“Well, let’s get my laptop and see if we can find some porn and then order you a vibrator, you seriously need some relief girl,” Ashley stated getting up off the couch and going into her bedroom, coming back with her laptop and searching the net, looking for porn. She selected a video on a free site of a young woman being kidnapped and trained to be a sex slave for her Master and we watched it together. At first I was reluctant and tried to turn away, but Ashley kept putting it closer until it was right in front of me and after just a few minutes I couldn’t look away, I was mesmerized by what I saw. By the end of the video the young woman was begging the man who kidnapped her to fuck her and let her suck him. I hadn’t even touched myself but I was leaking my juices into my shorts.
+
+“Woah, somebody’s excited,” Ashley smiled, sniffing the air and smelling my excretions.
+
+“Yes,” I panted as Ashley dashed into her room and returned with her vibrator, an average looking pink rubber penis with a kind of mini one on one side near the bottom, which I found out was to stimulate my clit. Ashley started pulling down my shorts and panties. “Stop, no, what are you doing?” I protested.
+
+“Helping you get off,” Ashley smirked.
+
+“But, can’t I do this by myself?”
+
+“Sure, have you ever used a vibrator before?”
+
+“No.”
+
+“See, you need my help to show you the first time, then you can do it for yourself after this.”
+
+“Are you a lesbian?”
+
+“No, but I can be a little bi.”
+
+“What does that mean?”
+
+“Bi-sexual, it means I like both men and women, especially women like you with big tits, I’m so jealous.”
+
+“Oh god.”
+
+“It’s alright, I’m not going to take advantage of you unless you want me to.”
+
+“No, I like guys, not girls, ugh, that’s just wrong.”
+
+“OK, now you just slide this into your pussy – “
+
+“Pussy?”
+
+“Vagina,” Ashley replied and started forcing the head of the pink penis into my slit. I was so lubricated it slid right in and she gave a soft whistle at how wet I was. She settled the mini penis part right on my clit and turned on the vibration. I don’t know what setting she used but I was so close and I closed my eyes and pretended I was the girl in the video, I came in less than a minute. I came so hard, I gushed my juices all over the couch. It took several shots of Febreze to get the smell out of the sofa and it smelled like sex in our apartment for a week. Ashley smiled up at me and we went online, ordering one for me in blue with her credit card. I paid her cash for it out of the money my parents sent me each month for toiletries and other assorted sundries. I’ve used it often to relieve tension, it’s much safer than trying to meet the right guy, and I retreated to my bedroom and masturbated to porn most of the year.
+
+In the spring, Ashley talked me into going out more, she said I needed to get some social skills and I didn’t have to have sex if I didn’t want to. I acquiesced and went out to parties and clubs with her, keeping my alcohol consumption to a minimum and would often have to drive Ashley home or take her car home when she got lucky. I scored a few times but mostly just tried to smile and be pleasant, wearing my conservative clothes my mother had bought for me, though my body had continued to grow and I was now an E cup and my breasts and bubble butt threatened to bust out of most of my clothes. The guys loved it and wanted to see more but I turned most of them down.
+
+Ashley and I had planned to be roommates again my sophomore year but she had some financial trouble and had to drop out, returning to her old job at the supermarket down the street from her house. Little did I know I would suffer the same fate at the semester break, unable to return for the rest of my sophomore year, my dad lost his job and we had to use the money he saved for my college to keep the house and pay for utilities and food. I had never really worked and had no idea what to do. I saw a sign in front of the steakhouse that said they were looking for a waiter/waitress and I applied. Having no experience I didn’t expect to get the job but the manager’s eyes lit up when he saw me and he hired me on the spot, saying that with my college grades and my looks I would be very popular and get good tips.
+
+I learned the job quickly, it’s really a matter of memory and pleasantries, of course it didn’t hurt that my manager had ordered my tops and skirts seemingly a size too small. When you have a figure like I have, men fawn all over you and give you great tips. I guess if you have a bad memory you wouldn’t do well, but I set up little triggers to help me remember things and before I knew it I was the most asked for waitress in the place, out-pacing Katie who had been their number one for quite some time. She seemed angry about it but remained friendly, at least outwardly. This is where I met Trent. He was a brand new accounting manager and came in to celebrate by himself when he got the job. I teasingly asked him where his hot girlfriend was and he said he didn’t have one and asked me if I’d like the job.
+
+Trent was tall, six foot five and well-built, if a bit husky, he played football to get himself through college, he was a defensive lineman. Dark brown hair and expressive brown eyes, big broad shoulders and muscular chest, I nearly swooned when he gave me his card and told me to call him. I gave him the best service and waited to call him until the next day. We went out that weekend and he was the perfect gentleman, taking me to the most expensive restaurant in town and fawning all over me. He was the most handsome man I had ever dated. He ordered for me, the menu was in French, and I thought I was in love. We talked until after midnight and when he brought me home my mother flipped out because I was out so late. I told her all we did was talk and ran up to my room, locking the door and crying. I flopped down on the bed, angry that my mother had ruined my perfect night.
+
+Trent and I continued to date and I fell in love. He was everything I ever wanted in a man, big and strong, handsome, kind and considerate and always taking charge. His cock was huge and I loved riding him or being forced into submission under him, it was amazing and he gave me more orgasms than I ever thought possible. He had a great job and was making more than enough money for me to either go to the local community college, or stay home if I liked. I said I would be happy to do whatever he wanted.
+
+Enter my bitch of a mother, the unhappiest person I know. She is a control freak of the highest order and I can’t stand when she asserts herself into a situation that she has no business in. Trent said he loved me and wanted to marry me, but he had to ask my father. My father and I are close, he’s a kind, loving and wonderful man, I knew he could see how happy Trent made me and would gladly give him permission to marry me. Trent took us all out to dinner at the steakhouse where I worked and they gave us the best table. Trent was his usual charming self and ordered my dinner for me because he knows what I want and I thought my mother was going to pop a gasket or something.
+
+“I need to go to the restroom, don’t you Erin?” My mother said, and I nodded, knowing that meant she wanted me to go with her. We headed into the ladies room and she nearly hit the roof.
+
+“Who does this guy think he is, ordering your dinner? And why did you let him? You have a mouth, you’re intelligent, why didn’t you tell him you can order for yourself? I don’t like this guy one bit, he’s taking advantage of my sweet innocent baby and I won’t have it!” My mother ranted.
+
+“I’m sorry Mom, I just love him so much–” I started.
+
+“So much you just let him walk all over you?” Mom said.
+
+“No Mother, it’s not like that.”
+
+“It’s not? Well it sure looks like it to me. And what did he mean about letting you stay home and not work? You’re an intelligent woman, you should finish your degree and get your own career.”
+
+“Yes Mother, he said I could do that if I wanted, but I don’t need to.”
+
+“What do you mean you don’t need to? What if something happened like what happened to your father? Then you’d be up a creek just like we are. I hate that I’m dependent on him, I wish I had finished my degree and been able to work a good job.”
+
+“Oh Mom, come on, it’s not that bad. Dad said he was able to pay off the house and still have money left over. He’ll get another job.”
+
+“Sure, but you don’t understand how much it sucks being dependent on another person for your survival.”
+
+“I think it would be wonderful.”
+
+“You need to have your head examined. I guess it’s true what they say, ‘love is blind’, can’t you see he’s trying to control you, make you into his submissive little housewife. Is that what you want? I don’t think so.”
+
+“I – I don’t know Mom, I hadn’t really thought about it that way.”
+
+“Well, you should, now let’s get back to the table before they decide what to name your children,” my mother huffed and threw open the door as I followed her back to the table. My father and Trent seemed to be getting along wonderfully, smiling and laughing, enjoying each other’s company. As soon as we arrived at the table and Dad saw my mother’s face he clammed up and his cheery expression fell. The men let us back into the booth and we sat and ate in near silence other than the occasional comment about the food and ordering dessert. My parents left as soon as dessert was finished and left Trent to pay the bill. He shrugged and paid, then turned to me.
+
+“What the hell happened?” Trent asked.
+
+“My mother, she can ruin anything once she gets a bee in her bonnet about something,” I answered. “Do you really want to turn me into your submissive little housewife?” I asked.
+
+“That would be great, but I offered to pay for your college if you want to go back.”
+
+“Yes, but I wouldn’t be able to go back to State if we got married, and I can’t afford to go now that my Dad lost his job.”
+
+“What does he do?”
+
+“He was the plant manager for twenty years down at Barker Plastics, but they closed the plant four months ago, that’s why I’m not in school now.”
+
+“Oh, sorry to hear that, but I’m glad you’re here and we got to meet and date. Your father gave me permission to marry you before you came back from the bathroom, but I don’t think your mother approves and apparently you’ve changed your mind too.”
+
+“I’m sorry Trent, I love you, but I’m not sure about this yet. Let’s take some time off and I’ll let you know.”
+
+“So that’s how it’s going to be?”
+
+“I’m afraid so,” I said sadly, wondering why I’m jeopardizing the best thing that’s ever happened to me. Trent drove me home and kissed me at the door like always, but there wasn’t any passion in it like there had been since that first night. I knew why, but I didn’t know what to do about it. I’m an independent woman, I can speak for myself, can’t I? But I rushed up to my room in my new high heels and flopped down on my bed, crying into my pillow.
+
+I continued to work at the steakhouse and one night a couple came in that I’d seen before and was curious about, but they always asked for Katie. They were young and looked to be in love, but the woman had what looked like a slave collar around her neck. Since Katie was off that night the manager sent me to take care of them and I approached their table warily, I couldn’t put my finger on it, but something about them frightened me.
+
+“Good evening, I’m Erin, I’ll be your waitress tonight, can I start you off with something to drink?” I asked as I handed them their menus. They sat on the same side of the booth and I gasped when I read the inscription on the woman’s collar: ‘slave Kira’ in one inch block letters and underneath in script, ‘property of James McKinney’. *Oh my god, is this real? Am I having a dream?* I pinched myself discreetly and no, I was very awake and now sporting a red mark on the underside of my forearm. I totally missed what the young man said when he gave me the drink order. “I’m sorry Sir, I was a bit distracted by your lady’s collar and I missed what you ordered to drink, could you please repeat it?”
+
+“Kira is not a lady, she is my slave and I’ll thank you to address her as such. I didn’t order any drinks because I could tell you were obviously reading my slave’s collar. I’d like a Pepsi and my slave will have a Mountain Dew,” James said.
+
+“Yes Sir, right away,” I responded and rushed away from the table, afraid my heart was going to beat right out of my chest. *Oh god, real slavery does exist! Get hold of yourself Erin.* I took a few deep breaths and filled their drinks from the fountain, bringing them back to the table, still shaking like a leaf. I had trouble putting them down without spilling. I’m normally very steady handed and I knew I was ruining my chances of a good tip.
+
+“Are you ready to order or do you need more time?” I asked.
+
+“We’re ready to order; I’ll have the porterhouse rare and my slave would like the prime rib, also rare, baked potato for both with a side of green beans. We would also like the fried onion appetizer to start,” James ordered.
+
+“What, she can’t order for herself?” I heard myself ask, my mother coming out of me.
+
+“Excuse me?”
+
+“I’m sorry Sir, that was uncalled for, please accept my apologies, I’m truly sorry,” I said and turned to walk away.
+
+“Come back here,” James ordered authoritatively and I couldn’t help myself, I turned back to the table.
+
+“Yes Sir.”
+
+“That’s Master to you, slave.”
+
+“I’m not a slave, you told me she was your slave and her collar says so, but I’m not a slave.”
+
+“That is true, but if you want to receive the nice tip I’m going to give you at the end of dinner, you’ll call me Master and at least pretend to be my slave for the rest of our time here. If not, I’ll call the manager over and I’m sure he can find me another waitress.”
+
+“Alright I’ll do it,” I agreed and hurried away from the table. *What the hell did I just agree to? Does he know I have slave fantasies? How could he know that?* I decide to ask when I bring them their appetizer as I put in their order and attend to my other tables but I’m distracted by this couple and their openness about being Master and slave. Plus, now I have to address him as ‘Master’ for the rest of the evening. *Oh god, my panties are soaked, I smell like sex!* In between tables I rush into the locker room and try to wipe my dripping crotch and dry my panties. I add a panty liner but it won’t stick to the already sopping undergarment, so I just press it into my crotch and pull them up, holding it in place. I rush back out to grab their appetizer and bring it to their table.
+
+“Your appetizer, Master, would you like a refill on your drinks?” I asked.
+
+“Yes, very good slave,” James imparted.
+
+“H – How d – did you know I would go along with this? H – How could you know I’ve had fantasies about this?” I asked.
+
+“I thought it might be true, but my slave here knew it right away, she is very perceptive,” James grinned.
+
+“How did you know?” I asked looking at Kira.
+
+“As my Master says, I am very perceptive and I could tell by your body language and submissive nature that you have fantasized about being a slave,” Kira replied with the most beautiful smile.
+
+“You are very beautiful Kira,” I said frankly, complimenting the gorgeous redhead staring up at me with the sapphire eyes and big beautiful tits, not as big as mine, but beautifully adorning her smaller frame.
+
+“Thank you Erin, as are you, do you have a boyfriend?” Kira asked.
+
+“I did, but we’re taking some time off?”
+
+“Whose idea was that?”
+
+“Um, mine, no that’s not true, actually it was my mother’s idea.”
+
+“But it’s not what you want, is it?”
+
+“I don’t know, I love Trent and he loves me, but–”
+
+“But what? Go on.”
+
+“But my mother, oh god–” I started then the tears flowed down my cheeks and I rushed off to the locker room to dry my tears and fix my makeup. By the time I checked my other tables and brought some of them more drinks James and Kira’s steaks were ready and I brought them to their table.
+
+“Your steaks – Master,” I said, almost forgetting.
+
+“Very good, slave,” James said
+
+“Who’s Trent?” Kira asked as she cut her prime rib.
+
+“He’s my boyfriend and almost fiancé, until my buttinski mother had to go and ruin it,” I replied with venom in my voice.
+
+“How did she ruin it?”
+
+“He brought my parents and I to dinner here and asked my father for my hand in marriage, but my mother got all bent out of shape when he ordered dinner for me and said that if I didn’t want to, I didn’t have to work and could stay at home and be a housewife, or I could go back to school. My mother only heard the part about being a housewife, after he ordered for me, she dragged me into the bathroom and lectured me about him. Like an idiot I agreed with her and told Trent we were taking some time off and I wouldn’t accept his proposal of marriage, but I’ve been miserable ever since.”
+
+“So you’re a natural submissive or maybe a slave and you are just trying to please your mother, but in the process you and your boyfriend are unhappy.”
+
+“Yeah, that about sums it up,” I agreed.
+
+“You need to decide who you want to obey, your mother or your boyfriend,” Kira put it succinctly.
+
+“My mother will be furious and take it out on my father, and I love my father, I don’t want to put him through that.”
+
+“Or maybe he’ll see the light once you’ve gone and divorce her,” Kira suggested and I stand there with my mouth agape, not having thought of that option, it seems plausible if the situation were to present itself. I wandered aimlessly away from their table and allowed them to eat, not even checking on my other tables. I went into the locker room and almost started to cry. I love Trent, I want him so much, even if it has to be as his slave, in fact, I might prefer that. *So why didn’t you ever tell him your fantasies?* I asked myself, then it hit me, we’ve only been going out for a few months. We’ve talked, but really haven’t discussed why we’re so compatible. I composed myself and went back out to check my other tables before returning to Master James and slave Kira. *Oh god, the thought of calling Trent ‘Master’ nearly made me soak through the panty liner.*
+
+“Hello Master, is everything alright here? Can I get you anything else?” I asked when I walked up to their table.
+
+“Yes, we would like drink refills, and the chocolate lava cake for dessert,” Master James said as I cleared away their empty plates and Kira gave me a knowing smile.
+
+“Excellent choice, Master,” I said and walked away to put in the desert order and bring them refills. I returned with their drinks and before I could walk away Kira spoke.
+
+“Have you decided?”
+
+“No.”
+
+“Do you need help?”
+
+“I – I don’t know, maybe. But what if Trent thinks I’m some sort of freak when I tell him my fantasies.”
+
+“He won’t,” James interjected.
+
+“D – Do you know Trent?” I asked, surprised.
+
+“Not directly, but he replaced Ben Davidson at the firm when Ben quit.”
+
+“Yes.”
+
+“Well, Ben told me that he had been dating you. He was thrilled that you had passed every submissive test thus far and was thinking of asking you to marry him and then discussing BDSM and maybe slavery with you.”
+
+“Oh my god, is that the guy I’ve seen you in here with a couple months ago and the woman I thought was Kira’s twin sister?”
+
+“Yes, unfortunately Ben was killed when his ex-friend tried to kidnap Chloe a second time.”
+
+“Oh I’m so sorry. Where’s Chloe?”
+
+“We sold her to a rich oil baron in the Middle East somewhere.”
+
+“Y – You s – sold her, like a real slave?”
+
+“Yes.”
+
+“Oh god!”
+
+“Chloe suggested it, she really wanted to be a real slave where slavery is legal.”
+
+“I – I, wow!”
+
+“It surprised us too, but it also gave us the money to continue to live the rich lifestyle we had with Ben. His money went to his family, so they are set for life as well.”
+
+“H – How much did you sell her for?”
+
+“Five billion.”
+
+“Dollars?”
+
+“Yes.”
+
+“Oh my god! So you’re set for life, how old are you?”
+
+“We’re both nineteen.”
+
+“I’m twenty and have no idea how I’m going to survive without a college education.”
+
+“It sounds like you know but don’t want to admit it,” Kira offered.
+
+“My mother said some stupid crap about being dependent on someone else, but it’s all I’ve ever known. I’ve been dependent on my parents, really my father since I was born. I’m just now making enough money I could probably go out on my own and get a small apartment. But what I really want is to be with Trent – even if it means as his s – slave, I love him so much,” I said, finally admitting what was in my heart all along.
+
+“So text him now and tell him your decision,” James said.
+
+“I can’t right now, let me go get your dessert and finish up my other tables, then maybe,” I said as I rushed to get their desert and set it on their table going to my other tables to get them their checks or whatever else they needed. After a few minutes I returned to James and Kira’s table.
+
+“How’s everything here?” I asked.
+
+“Aren’t you forgetting something?” James asked and cocked his eyebrow.
+
+“Sorry Master, I’m very stressed right now. I’m thinking of defying my mother and that scares the crap out of me. But I know in my heart that I want to be with Trent, I love him and he loves me. We’re just so compatible, we like the same music, the same movies even when we make love, he’s so commanding and powerful, it’s just perfect. I’ve never thought of being his slave, but the more I think about it the wetter I get.”
+
+“Tell him, slave.”
+
+“Yes Master,” I replied and texted.
+
+Erin: Baby I love you and want to be with you always, even if it is as your slave.
+
+I sat down in the booth across from James and Kira to await his response when my phone dinged.
+
+Trent: Wow babe! Are you sure?
+
+Erin: Yes Master, I’m so hot thinking of being your slave, please come collar me before I change my mind. I’m at work.
+
+Trent: Won’t that be a problem at work?
+
+Erin: I don’t care Master, you said I could be your housewife, why not your house slave. Besides, my shift is almost done.
+
+Trent: I’ll be there in ten minutes, I love you Erin!
+
+Erin: I love you too Master!
+
+I couldn’t believe how much I cried, but I wasn’t sad, I was filled with joy at the prospect of being Trent’s sex slave. A little shiver ran up my spine when the thought hit me and my pussy clenched as I oozed my juices past the now soaked pad I had stuffed into my panties earlier.
+
+“Why are you crying Erin?” James asked but I couldn’t answer.
+
+“She’s happy, Master. Those are tears of joy,” Kira answered for me and I nodded. I composed myself enough to go to the locker room, wash my face, reapply my makeup and brush my hair. If my Master was coming, I needed to look good for him. I left the locker room a different woman, no longer afraid of what life held for me, a confident slave, ready to please her Master and make him happy. I finished my rounds of the tables, picking up all the checks and receiving my usual good tips except for Master James. He handed me three crisp one hundred dollar bills which was more than double his check.
+
+“Thank you Master James and Kira, I don’t know if I’ll ever see you again. My Master is coming to collar me and take me to his home. I don’t know if I’ll work anymore, he might want to keep me as his house slave,” I said and Trent walked in causing me to gasp, I’d never seen that look in his eye before. It was a look of pure dominance and lust, I sank to my knees and Kira instructed me on how to kneel before my Master. By the time he arrived at the table I was presenting myself to him properly, except I wore clothes because we were in public.
+
+“Erin, one last time, are you sure about this?” Trent asked.
+
+“Yes Master, I’ve never been more positive of anything in my life, please collar your slave,” I pleaded looking up at him. He bent down and locked the steel collar around my neck. It fit me perfectly, tight but not too tight, just restrictive enough to constantly remind me of my new status as his slave. He then grabbed my hands and pulled me to my feet hugging me tightly as I joyfully hugged him back.
+
+“Oh Erin, I’ve dreamed of this moment since that first night four months ago. I knew you were submissive, but not all submissives are slaves. I love you and promise to keep you and take care of you always,” Trent said.
+
+“Thank you Master, I love you too, I will try to be a good slave, but I am untrained,” I responded.
+
+“You will learn, my beautiful slave, you will learn. A few rounds with the whip will help,” Trent spoke strong and smooth, and my pussy quivered.
+
+“Oh god,” I moaned, burying my face in his big chest.
+
+“Smells like someone’s excited by all of this,” Trent grinned down at me.
+
+“Yes Master, please take your slave home and use her to your cock’s delight,” I said huskily, my breath coming more rapidly, causing my breasts to heave and shake.
+
+“Is your shift over?” Trent asked.
+
+“Yes Master, let me tell my manager I’m leaving,” I replied and scurried off to find the manager and tell him I was leaving. He looked at me funny but didn’t ask about the collar on my neck and I rushed back to Trent’s side. He snapped a leash on my collar and led me out to his truck. He laid a towel on the seat before I got in, which was quite fortuitous because I had nearly soaked through the towel by the time we got to his place. I was frightened, overjoyed and more sexually excited than I had ever been in my life. I came once when we hit a series of bumps on a side street leading to his house.
+
+When we arrived he backed his truck into the garage and cut the engine, staring over at me with the most evil smile I had ever seen on his face. I sat there waiting for him to take charge like the good slave I was supposed to be. I nearly came again just from him looking me over so possessively. I arched my back to raise my more than ample breasts and he reached over and pinched my left nipple before getting out and coming around to grab my leash and pull me out of the truck.
+
+“Please Master, may your slave be allowed to let her parents know she’s OK and will be staying with you?” I requested.
+
+“Yes, if only to keep them from calling the police. I know your mother will be angry, but I don’t care, and obviously, neither do you,” Trent replied. I texted them quickly to let them know I was at Trent’s place and would be spending the night and then shut off my phone. I knew my mother would send me texts and then call to order me to come back home, but I was home. This was my new home as my Master’s slave, I was totally his. He led me down into the basement and I gasped at the sight of some of the devices I had seen in porn videos. My Master was going to use them on me and I was going to cum harder than I ever had in my life.
+
+“Strip, slave,” my Master ordered and I obeyed quickly stripping out of my clothes, my huge tits bouncing and my bubble but jiggling as I hurried to comply as fast as possible. I knelt as Kira had instructed me at the restaurant and my Master seemed pleased as he smiled down at me. “First rule, slave always obeys Master without question. Second rule, slave is not allowed to wear clothes in the house unless I allow it for visitors or order you to wear something. Third rule, slave will be punished for disobedience, which is up to my discretion. Fourth rule, slave will not speak unless spoken to or asked a direct question. Fifth rule, slave is owned, her body is no longer under her control, therefore she may not orgasm or play with her body without direct permission. Because I am not a sadist, you will be allowed to cum as much as possible while my penis is inside any of your holes. I reserve the right to change the said rules or add to them as I see fit. Is this clear?” Trent asked.
+
+“Yes Master,” I replied with a moan, very nearly cumming as the rules were being laid out to me. *You are really in for it now, do you realize what you’ve signed up for?* I asked myself as I waited with bated breath for my Master’s next command or action. He walked to a cabinet and pulled out several items and carried them over to me, dumping them on the floor between my spread knees. “Put them on, all of it, and make sure it is tight so you can’t slip out or escape.”
+
+I picked up a leather wrist cuff and wrapped it around my wrist, pulling it tightly and the internal lock clicked as it tightened. I pulled until I couldn’t get it any tighter. I repeated the process with the other wrist and ankle cuffs. I picked up an impossibly high heel, the spike was six or seven inches, I’ve never worn heels higher than three inches before this point because of my height. I slipped one on and buckled the straps tightly, hearing each lock as I pulled. My feet had already started to cramp due to the forced arch and I hadn’t even stood up in them yet. The last thing is the large red ball gag and I looked at it almost adoringly before I stuffed it into my mouth and pulled the straps behind my neck under my thick hair, pulling it tightly, hearing the lock click each notch it tightened. It stretched my jaw and my lips couldn’t help but wrap themselves around it. Knowing how it looks, from watching porn on the internet, I moaned into the gag and am surprised by how little sound escapes around it.
+
+Master attached a leash and pulled up, indicating I should stand. I stood unsteadily and rubbed my thighs together, I’m so hot for him at that moment that I want his cock inside of me immediately. He checked all of my bonds, then nodded approvingly as he found each one tight enough. However, when he checked my gag he reached behind my neck and pulled it first one, then two notches tighter, stretching my jaw even worse. *Oh god, don’t cum, don’t cum,* I said to myself and tried not to rub my thighs together and stimulate my aching pussy too much. Then he pulled my wrists behind my back and locked the cuffs together. I moaned in appreciation, realizing I’m more helpless than I’ve ever been in my life and I’m loving the restriction. A bondage strap was wrapped around my elbows and before I know it they’re touching. I didn’t even know I could do that. It did wondrous things to my large breasts as my shoulders were forced back and my tits looked even more obscene sticking out from my rib cage.
+
+Master pulled on my leash and started to walk toward the bondage devices; I staggered along behind him. I’d never walked in heels so high, yet I wasn’t even eye to eye with him, I still had to look up. It sent more shivers down my spine when I suddenly realized how big and strong he is, I couldn’t have overpowered him if I were free and had any weapon other than a gun. He realized that I’m having difficulty walking in the heels and instead of taking me to a device and strapping me in, he walked me around the dungeon until my gait improved and I could walk without stumbling. He grinned and stared at my bouncing boobs, that evil grin again. *Oh yes Master, please fuck me already!*
+
+He stopped and walked to me, grabbing my breasts and kneading them in his large hands. Even as large as his hands are, my tits are bigger than a handful and he seemed extremely pleased. He had mauled them before, but the situation was entirely different, at that point I was bound and in the bright light, not the subdued light of candles or a lamp with a scarf thrown over it. I was laid bare for inspection in front of my Master and he appeared to approve of what he saw. *Oh god, please just fuck me!* I begged in my head, my mouth still stuffed full of the large rubber ball. My thighs were slick with the juices of my arousal, his manipulation of my tits and nipples not helping.
+
+He grinned and walked to the cabinet, coming back with a set of nipple clamps. I’d never worn them before that day and when he clamped my left nipple I nearly came, the pleasure pain sending a shock straight to my clit. When he clamped the other nipple I squeezed my thighs together as I came, gushing juices down my thighs. *Oh no, I just came without permission, now I’m going to be punished.* And the thought just kept me near another climax. Fortunately he took pity on me and only tisked and grinned. He suddenly attached a chain to my wrists and then pressed a button on the wall and my arms shot skyward. I bent over to relieve the strain in my shoulders and later learned this was a strappado position. He produced a spreader bar, probably while I was trying to adjust to my new position, and locked it to each ankle cuff, spreading my ankles about four feet apart. I balanced precariously between the heels, the wide spread legs and the chain holding my arms aloft.
+
+“You just came without permission so I need to punish you before I enjoy my slave,” Master said, and I lifted my head and moaned. *Dammit, how was I supposed to keep my body in check when he was teasing it so much?* He used a leather whip with a broad blade and struck me five times, I thought my ass was on fire, it hurt so much, but then he rubbed some soothing ointment into it. *Oh god, the pain is turning into pleasure, please Master, fuck me hard, make it hurt!* And that’s exactly what he finally did, burying his long thick dick fully into my sheath and I came harder than I ever had in my life. I recovered to find him still pounding my plundered pussy and I climaxed again as he emptied himself inside me. *Thank you Master, oh god, can we do this again? As soon as possible, please Master!* I was overcome by how wonderful I felt, both my body and my heart, relishing in every feeling that was coursing through me, even the pain from the whipping and my aching shoulders, it seemed to heighten my orgasms.
+
+Master pulled out of me and our combined coitus ran down my already sticky thighs. He slapped me playfully on my tender ass and my pussy convulsed, sending more of our excretions down my legs. *Did my pussy just convulse from pain? Am I becoming a pain slut?* I certainly hope not, I knew even then that I didn’t like pain, but if it improved my orgasms, maybe it was worth it. I moaned as the ache in my shoulders grew worse, I was in jeopardy of losing my balance on the heels, my toes already going numb. Master returned to clean me off, wiping up our sticky secretions with a warm wet towel. He then released my arms from the chain and pulled me upright to stand before him. He unclipped the nipple clamps and I screamed around the gag as the pain in my nipples was far worse than when he put them on. He massaged them gently at first then more forcefully, pulling me back to the edge of another orgasm and I clenched my thighs together to try and prevent it.
+
+“Is my slave still horny?” He asked as I blushed and nodded my head, not daring to look up at him. “Good girl,” Master said and my horny cunt clenched even harder. *What the hell, two little words and he’s got you wrapped around his little finger?* But it was true, I would do anything he asked to hear those words again. I had fantasized about being someone’s kidnapped sex slave for over a year, and now that I had submitted to be Trent’s slave, it was even better than I imagined. *Could this be real? Can this work for us? I sure hope it can because I am beyond words with excitement!* I thought to myself. He tugged on my leash and led me up out of the basement and into his bedroom, where we’d made love many times. The dynamic had changed, we were no longer lovers, I was slave and he was Master, but all seemed right with the world when he forced me face down onto the bed and plundered my still soaking slit, bringing me to three orgasms before he shot his load deep inside me again. I was exhausted and fell asleep after having had five orgasms already.
+
+I woke still bound with Master playing with my big breasts, manipulating my nipples in ways he knew I loved. My pussy was already on fire! *Will he pierce my nipples?* The thought had popped into my head and my pussy clenched as hard as when he called me his good girl. *Don’t cum, don’t cum, he’s not inside you yet.* Soon his fingers were in my dripping slit and I clamped down on his fingers, they felt so good. Then he did something he hadn’t ever done before, he smeared my secretions around on my anus and slipped a finger inside. *Whoa, what the hell, did that feel good? My cunt just clenched so I guess it must have.* He continued to work more fingers into my ass as he pulled lubrication from my nearly gushing vagina and I almost came when he forced the head of his cock into me. *Why are you holding back? He’s inside of you isn’t he?* And I came, clenching and squeezing as Master forced his cock deeper into my intestines. By the time he was fully seated I was cumming again, I never knew that anal sex could be pleasurable and just assumed it would be something I would have to endure as a slave. *Oh god, I’m addicted, yes Master, fuck me in my ass!*
+
+Trent started to ream my ass and I felt the pain, but I also felt the pleasure building inside again. He thrust in and out, gently at first but began to pick up speed, adding lubricant from my over active glands. Yes it hurt a bit but the pleasure and pride I felt at being able to take my Master’s thick cock up my ass was driving me toward that precipice again. I don’t know what caused me to look at the clock but I realized I had only been out for maybe half an hour. Trent had never been able to cum more than twice in an hour, but here we were, about to make it three times as I felt his cock expand and he tensed, shooting his seed deep inside my guts, triggering another incredible orgasm for me. Being my Master and me his slave had ratcheted up his drive and I was thrilled that I had been the cause. *Yes Master, I’m all yours, fuck me hard and often.* Wow, eight times in one night, that had never happened either, and we’d only been at it for an hour!
+
+Master collapsed onto me with his cock still buried in my ass. My arms hurt and I had difficulty breathing, but my huge tits were a blessing, they cushioned the effect and I was able to calm my breathing and get myself under control. He slipped out of me after a few minutes and plodded off into the bathroom to clean off his cock, returning with a warm damp cloth to clean me up.
+
+“Do you need to use the toilet?” Trent asked and I nodded, my mouth still filled with the big gag. He almost didn’t notice in the light from the bathroom, seeping out into the room and then remembered that I was gagged. He chuckled softly and went to his nightstand, grabbing a key and unlocking the ball gag, removing it and catching my drool with the cloth he had cleaned me with.
+
+“Thank you Master,” I said softly as I wriggled to the side of the bed and sat up, dropping my heels onto the floor and staggering a bit as I hurried into the bathroom, my arms still tightly bound behind me. I plopped down onto the toilet and released my urine as Trent came in and watched. He wiped me up and washed his hands before grabbing my leash and leading me back to the bed.
+
+I hadn’t noticed before, but when he turned on the light there was a chain attached to the metal frame of the bed and he removed the leash and locked my collar to the chain, I was locked to the bed. He didn’t speak but released my elbows and I moaned in appreciation, my hands had nearly gone numb from the restriction and the blood flowed into them as I wiggled my fingers. He released the lock between my wrists and then removed the high heels, and I stretched my feet to work out the cramps from the arched position. They were going to take some getting used to. Me being rather tall, I hadn’t seen the need to wear such shoes, but with such a tall Master, he wanted me to wear them and though I hadn’t seen myself, I’m sure he liked the way they looked.
+
+We settled into bed in our usual position, only I was now naked and chained to his bed. I couldn’t run away, even if I wanted to, which I didn’t. We’d had the most amazing sex ever and I succumbed to sleep quickly. He woke me twice in the night to fuck me again and I came again and again, seeming to become ever more orgasmic with each time he used me. The switch had been flipped and I had become a wanton needy slave slut.
+
+I woke the next morning to see the light streaming in around the window shades and thrilled that I had not dreamed it. I was now Master’s slave and still chained to the bed. I noticed his morning erection and wondered if he had taken Viagra or some other performance enhancing drug. I dove under the covers and took his thick organ into my mouth. I hadn’t sucked him off much, he hadn’t asked, but I had practiced with my dildos at college. His was thicker and longer than anything I had at home, but I had been working on it and after several tries, I got him all the way down my throat, trying not to gag. He threw back the covers to look down at me and I met his gaze as I moaned around his cock, deep in my throat. Suddenly he grabbed the back of my head and held me down, mashing my nose into his pubic hair and he shot his load straight down my throat. He let me up as soon as he was done and I sputtered and gasped as I slid his cock out of my throat and mouth.
+
+“That was amazing, slave, good girl,” Master praised and I beamed and clenched, I wanted him inside me, but I just made him spend himself down my throat.
+
+“Thank you Master,” I said when I could finally talk. He forced me onto my back and attacked my pussy with his mouth. *Oh yes, thank you Master!* I thought, grateful that he cared about my needs as well. It didn’t take long for me to explode in ecstasy, as I covered his face in my juices; I don’t squirt but I gush quite a bit when I cum!
+
+“We need to get that pussy depilated, wow, it’s like male beard,” he said and I could only nod in agreement, still coming down from my climax. He slipped off the bed and went into the bathroom to wash my secretions off his face and use the toilet. He came back and released me from the chain, attaching the leash and leading me into the bathroom. I used the toilet and wiped myself clean, the wrist cuffs still locked on but my hands were free. He had disappeared but returned with the key to the cuffs and removed them before herding me into the shower. We had showered together before but this was different. He zip tied my wrists together and attached them to a hook I hadn’t noticed before and he washed me thoroughly, using my body wash and shampoo I had left there for when I stayed overnight. It was heavenly as he tweaked my nipples and played with my overheated sex, I was a dripping mess by the time he dried me off.
+
+“Damn, it’s like a faucet down here,” Master joked as he tried to dry my lubricious pussy.
+
+“Yes Master, you’ve activated the launch sequence, there’s no going back, I’m now your horny slave slut, please use me often.” I requested.
+
+“I plan to slave, I certainly plan to,” he grinned and gave my bubble butt a playful slap and I clenched again. *Oh god, this living life as a sex slave may be harder than I thought. I’m surely going to get in trouble for cumming without permission.*
+
+---
+
+It has been a month since I submitted to be my Master’s slave. My mother disowned me and will not return my calls or texts. My father expressed his disappointment but will speak to me when my mother is not around. My Master took me to a special secret genetics place and I was injected with a serum that caused me to have alopecia below my eyes. I no longer have to shave my body and it is so smooth, my Master and I both love it. My original collar has been replaced with a new permanent titanium collar that reads: ‘slave Erin’ in beautiful script and below in smaller block letters ‘property of Trent Thompson’. My Master has pierced my nipples and clit and often uses these to control me in devious yet delicious ways.
+
+Last week we went to dinner with Master James and his slave Kira. Master James hired my Master to work for him and he is allowed to bring me to work. I was so excited at the prospect that I nearly came. I get to see a lot more of the lovely Kira and I’m becoming more than fond of her, she’s so hot.
+
+Today my Master gave me some deep throat training, he seems to love that more and more. I was bound on my knees under his desk with his cock in my mouth and my collar chained to his waist so that I could not pull off of his cock. I had to deep throat him at least five times each hour and make him cum at least twice before lunch. *Oh god, I came the second time he spurted down my throat, I’m so horny all the time!* My Master was pleased and called me his good girl and I nearly came again.
+
+My Master asked me to marry him but I turned him down. I told him that my collar binds me to him more fully than marriage ever could. I love him and want to be with him always. My Master accepted this and warned me that as a slave I had no rights to anything and I would be treated as such. I heartily agreed and thrill each time he uses me to satiate his ever growing need. I found out that he did not take Viagra but has gone to taking natural supplements to enhance his endurance and girth. I can attest that whatever he is taking has worked because he now fucks me harder and longer than ever and his length and thickness are greater than ever. He truly has turned me into a horny needy sex slave who lives only to please her Master.

@@ -1,0 +1,157 @@
+---
+original_url: https://www.boundstories.net/storiesad/alice_amanda2.html
+subcategory: Bound Stories
+title: 'Alice & Amanda 2: Living Together'
+authors:
+- Alina Aamu
+tags:
+- F/f
+- bond
+- rope
+- gag
+- oral
+- cons
+- X
+---
+
+(story continues from [**Alice & Amanda 1: The First Night**](alice_amanda.html))_
+
+_**Alice & Amanda 2: Living Together**_
+
+_Even the sound that the fabric of her dress made turned me on as I squeezed her closer to my naked body. I loved how she looked in the green summer dress that I had made her wear for me today. I couldn't believe how much love and passion I felt towards this woman and it felt that no matter how tightly I held her against my body, it could never be close enough. I even felt her underwear through the dress and the sound of her heartbeat was the most beautiful sound I had ever heard._
+
+_I was fondling her breast with my other hand, while the other kept her close to me. Her heavy but soft breathing told me that she was as drunken with desire as I was, but unlike me, there was nothing she could do about it. And even I had other plans than to take the moment to its logical conclusion, at least for now. She was almost whimpering with desire, but we both knew that it wasn't time yet._
+
+_I kissed her hungrily on the huge ball gag she had in her mouth and she tried to get her tongue to participate, but the chin strap of her gag didn't allow for it. Kissing Amanda on her gag was the most exciting thing I could dream of, at least not counting the times when the roles were reversed. The straps were lockable, but it was not necessary yet to lock them as her hands were also tightly tied behind her back with generous amounts of soft rope. Her elbows were tied too, but they weren't close to touching since I didn't want to tire her arms yet. It was going to be a long day. Last, I had blindfolded her with a soft scarf. That gorgeous package was now resting on my arm, causing me to wonder how anything so beautiful could exist._
+
+_We had been living together almost a few months now. We had moved together only a couple of weeks after we had met in the bondage club. Neither of us usually wanted to move forward in a relationship so quickly, but I was losing my apartment anyway so we figured that I might as well move in. We agreed that we would live as roommates at first, but it didn't take us even a week to give up on the idea and bought a double bad to kick off our life as real lovers. We also started to invest in a lot of bondage equipment, although with us both having quite low incomes, it wasn't much._
+
+_The biggest problem in our relationship remained in the fact that we were still both submissive. Both of us loved to be tied more than anything else we could do and it took us awhile to figure out how to navigate the problem so that both would get to play the part she wanted. Sometimes it just clicked. In those cases was simply a question of momentum that one of us found herself tied, gagged and licked by the other. But most of the times we simply found ourselves wondering what would be the appropriate thing to do. Neither of us wanted to hurt each other by appearing selfish, so sometimes we just had to let it go and try again some other night. We did a lot of double selfbondage, but it just wasn't the same as to be tightly and completely inescapably tied like only a dominant person could do it._
+
+_Finally we worked out a system. Most of the times we'd still go with the flow and figure out what to do at the heat of the moment, but we also had a system in place to ensure that both of us would at least some time in the ropes. For two days a month, one of us would be a slave to the other and other two days the roles would be reversed. With this system, both of us found that being the dominant had its advantages too and could enjoy it more knowing that our turn at the slave side of things would be coming. Tonight was Amanda's first day of the month in the part of the slave._
+
+_I suddenly realized that we were both starting to get drowsy lying in bed in the warm sun that encompassed us through the window. I decided that it was time to get Amanda up to speed with her slave duties of the day. I sharply slapped her on her behind and she jumped at the sudden change in atmosphere. I stood up from the bed and helped Amanda to sit up to the side of the bed. I took the blindfold and enjoyed how she tried to cope with the sudden surge of brightness. I kissed her on her forehead._
+
+_"Wake up, sunshine. It's getting quite late in the day and as much as I'd like to spend it with you here, we both have to eat something more than just pussy today," I said to her. One of the biggest perks of being the dominant for the day was her cooking. Amanda was a miracle worker in the kitchen, but she didn't cook for us too often as she had to do a lot of it at her day job._
+
+_"I know I have to unwrap most of you in order for you to do your duties, but that gag simply has to stay on," I continued. She smiled at me. She had figured as such since she knew very well that gags were my favorite fetish, both on me and on her. I took two tiny padlocks and used them to lock the straps of the gag, both behind her neck and under her chin. I did a quick check to see that the gag was firmly in place but not too tight and then ordered Amanda to stand up._
+
+_As she did so, I started to unwrap her elbows and wrists. Once her hands were free, I ordered her to take off the dress and her bra. While she was undressing, I put on a sleeveless shirt and a comfortable skirt, but no underwear. Once she was mostly undressed I inspected Amanda thoroughly and straightened her panties. Then I gave her an approving pat on the cheek and handcuffed her hands behind her back._
+
+_I then lead her out of our bedroom and towards the kitchen. I dragged her along quite harshly as I knew she liked to be thrown around when tied up. Once in the kitchen, I took my favorite apron from the cupboard and lovingly put it on Amanda. I didn't know what it was, but seeing Amanda doing her chores wearing nothing but an apron drove me mad with desire._
+
+_"I think you know what I like and what you have to do. I expect dinner in no more than 45 minutes. If I like what you have to offer, I think you'll like what I have to offer later," I said to her as I uncuffed her hands. She straightened her apron, nodded to me and started to take out the pots and pans she needed. I left the kitchen since there wasn't much room._
+
+_I laid down on the sofa that provided me with a clear view towards the kitchen. I started to feel drowsy again as I watched Amanda use her impressive skills in the kitchen and marveled how good she looked in the glaring evening sunshine with her apron and gag. I lifted my skirt and started to fondle my pussy idly, but I didn't put much effort to it as I didn't want to get my hand dirty just before dinnertime. After about 10 minutes, I had dozed off to sleep._
+
+_I woke up when Amanda gently brought me back to the waking world by running her hand through my long hair. She had kneeled next to the sofa and I kissed her gently on her gag as thanks. I knew from the scent that Amanda had finished dinner so told her to stand up. I took off her apron and folded it neatly on to the armrest. Now would come my time to work._
+
+_I brought a large stack of nylon rope from our bedroom and found Amanda waiting in the same spot I had left her. I instructed her to fold her hands behind her back. She knew what was in store and even the huge ball gag didn't hide her grin. I started to work on making a very secure boxtie on her._
+
+_I really wanted to get it right, so it took me almost 15 minutes to get the ropes nicely on her upper torso. But when I was done, she was tied so securely that I don't think anyone could've done any better. The ropes were cinched from every direction so it took away all the mobility on her arms but still allowed blood to flow effortlessly on her arms. She tried to struggle, but the result only confirmed that it was one of the best ropework I had done. The ropes made noises as they rubbed against each other and it took me some effort not to get swept away by passion once again._
+
+_I dragged her to our dining table and pushed her down on one of the wooden chairs. I used more rope to first attach her feet to the legs of the chair and then used a lengthy rope to attach her torso tightly in place. It was unfortunate, but a girl can't eat with a gag in her mouth, so I unlocked the straps and took it out of her mouth. By this time the gag had been in her mouth for several hours so I wasn't surprised to see a large amount of saliva coming out with the gag. I used a towel to clean it off._
+
+_Amanda stretched hew jaw and tried to recover. I knew it was best to wait a few moments before it would be comfortable for her to eat._
+
+_"Could I have some water, please," Amanda asked me with a soft voice. "I got really thirsty while cooking, but I didn't want to wake you up because of it."_
+
+_I nodded and quickly went into the kitchen. I returned with a large glass of water with a straw to let her drink at her own pace. She took started sucking in water the second I got the straw in reach of her lips._
+
+_"You really should have woken me up," I said. "Dehydration can be dangerous and can creep up on you so you shouldn't play around with it. In fact, you shouldn't have let me sleep at all when you're gagged, just in case something happens and you can't help yourself."_
+
+_Amanda didn't answer as she was still drinking as fast as she could, but rolled her eyes a little. She was always thought that I was way too paranoid with things going on during our sessions. She did take good care of security and I never felt unsafe so maybe she had a point in saying that I was overcareful, but I always thought that it was better to be safe than to be sorry. I couldn't even begin to imagine how I would feel if I'd cause an injury that would've been avoidable._
+
+_"What's for dinner?" I asked her once she let go of the straw._
+
+_"Spaghetti with a very special sauce for you," she asked and smiled fiendishly. I wasn't as pleased as she was. I loved her spaghetti sauces more than anything, but the problem was that Amanda being tied up like she was, I had to feed her. Spaghetti wasn't one of the more simple dishes to feed to someone._
+
+_"It's going to be messy," I said. "I really wouldn't want to untie you for shower after we eat because it'll be hard work to rig you up like that again."_
+
+_"I'll be a challenge," she said with an evil smile. "Just because it's my turn to be the slave doesn't mean that I have to do all the work."_
+
+_"Actually, I think it does," I said, but went to the kitchen to fetch us our dinner. She had already made plates ready, so I just grabbed them and took them to the table._
+
+_The food was just as good as I had expected, maybe even a little better. Feeding the spaghetti wasn't as hard as I had expected and the little mess that we did was easily wiped with the towel. In the middle of our bondage dreamworld, the dinnertime was surrealistically normal. Amanda started to talk about the news and gossiping about people we knew like there was nothing out of the ordinary. I was never able to act normally like she did. It was like it was perfectly normal for a lesbian couple to have dinner so that the other one is securely tied to her chair and fed by the other. For her, there was no distinction between everyday life and bondage while I liked to keep them separate. Amanda seemed to have decided to break the barrier for me too as she frequently liked to talk about politics and sports when I was tied, gagged and fingered by her._
+
+_I deliberately took time on our dinner and it took us almost an hour to finish our plates. I couldn't help but marvel Amanda's creamy skin and the very tight bondage she was in. She was so at ease in the ropes that I could see how her entire body was completely relaxed. I was aching to get to the next part of my plan for the evening and I was sure that she would've as well if she had known, but I disciplined myself to enjoy the delicious dinner that she had prepared for us._
+
+_When I finally put down my fork for the last time, I leaned in for a passionate kiss. My tongue explored her mouth that still had the taste of the food lingering. Once our lips had parted, I leaned back and sighed contently. Amanda was looking at me, wondering what was in store next._
+
+_"Thank you for a delicious meal," I said._
+
+_"Thank you for allowing me to prepare it for us," Amanda replied. The irony was that this was just about the only way to get Amanda to enjoy cooking at home, unless she said it just to fill her part as a slave._
+
+_"You know what we have in store next?" I asked._
+
+_"I expect you want me to take care of the dishes."_
+
+_"No, no. That can wait, my dear. You forget that we have something for dessert."_
+
+_"What's that?" she asked._
+
+_"I believe it's one of your favorites," I said and slowly raised my skirt again and I saw that she followed its moves carefully. When it was high enough for her to get a clear view of my pussy, I used my other hand to open it for her to see that I was already getting quite wet._
+
+_"Wouldn't it be better if I did the dishes first?" she asked. She was always like that, wanting to keep the place in perfect order._
+
+_"That can wait," I said. "I think this will be a lot more fun. Besides, I'm not going to untie you from this rig for a while."_
+
+_"But, Alice, it would make more sense for me to take care of them now. Besides, it's your turn to be a slave tomorrow and I'd like to sort out my own mess rather than let you do it."_
+
+_"Don't worry about tomorrow, dear," I said. I had risen from my seat and walked behind her during her last comment. She hadn't noticed that I had grabbed the gag from the nearby cupboard as I did so. I started petting her hair as I knelt behind her._
+
+_"But I'd really like to... Mmmpfh!"_
+
+_She looked quite startled when I firmly put the ball gag back in its proper place in her mouth. She hadn't anticipated me putting it on with such a force. I fastened the strap tightly behind her head, but left the chin strap hanging loose. She wouldn't be wearing this gag for long._
+
+_"Don't forget who is in charge tonight," I whispered to her ear. I stopped for a moment to kiss her neck and her shoulder, but soon got to untying her from the chair._
+
+_When her upper torso was free from the chair, I untied her feet and commanded Amanda to stand up. I did a quick check to see if the boxtie was still as secure as it should be and was pleased to find that her hands were still almost completely immobile._
+
+_"Come on, Amanda," I said. "I think you know where we're going."_
+
+_I put a finger under the strap of her gag and started to lead her towards the bedroom. Once there, I ordered her to stand still. I slid her panties to the ground and she stepped away from them. I put a hand of her pussy and wasn't surprised to find that hers was starting to be quite wet as well. I started to stroke it gently and I could hear her breathing deepening._
+
+_But it wasn't her turn just yet. I told her that she'd get her release, but she'd have to work for it first. I then opened right door of the closet to reveal our still tiny but growing collection of toys. Thanks to Amanda's desire to keep things orderly, I knew exactly where to find what I was looking for. The ring gag with a head harness was just the right tool for a faithful slave that was scheduled to please her mistress with some solid licking duties. I also took my old handcuffs with a release switch that was way too easy to use to be any fun at all, but would work for my plans right now._
+
+_I grabbed the strap of her ball gag again as I lead her next to the bed and then forced her to kneel. I sat in front of her and released the strap of the ball gag. She released the ball and I put the gag next to me on the bed. She didn't bother to say anything. She didn't even have time if she had wanted to because I was already fitting the ring of the ring gag behind her teeth. The straps of the harness was pretty much set as it had been her who had worn it last. But I wanted to make the whole contraption extra tight this time as she wouldn't have to cope with it for too long. With the chin strap secured, I was satisfied that it wouldn't come off her until I wanted it to._
+
+_Now was time for my piece of the bondage action for the night as well. Amanda looked at me surprised when I took the ball gag she had just worn from beside me and popped it into my own mouth. She had worn it for just a few minutes so there wasn't much saliva on it, but there was enough that the gag felt wonderfully warm as I tightened the straps in place. Once secured, I took the handcuffs and cuffed my own hands in front of me and grinned to Amanda. She grinned back to me. It wasn't much of a selfbondage rig, but it was enough to get the level of my excitement to new heights._
+
+_And then there was nothing else to do. I lifted my skirt as high as it would go and grabbed Amanda's head with my cuffed hands and moved it between my spread legs. She started to work on my clit with her tongue and I laid back on the bed to let the sensations take over. As Amanda turned her attention lower to my opening, I started to work on my clit with my cuffed hands. I could feel the ring of Amanda's gag against my pussy lips as she tried to get her tongue as deep inside me as she could. The feeling drove me insane with desire and knowing how tightly she was restrained was only enhancing the effect. With her working her tongue and my hands at my clit, it didn't take very long to take me over the edge. As the orgasm took over, I almost involuntarily closed my legs and held Amanda's head in the right place with them. I bit into the gag and let go of myself._
+
+_And then it was over. I breathed deeply around the gag as I came down from the rush. I could feel Amanda lapping my cunt juices as best as she could with the ring gag on, but she wasn't making much progress in anything else than sparking the first light of a second orgasm._
+
+_But that wasn't what I had in mind. It was her day, after all, so it was about time that she got the reward she deserved for simply being the most wonderful creature on this planet. I sat up and pushed Amanda's head gently away from my crotch. I couldn't believe the innocent face she had considering her current predicament and the fact that her face had just been buried in my pussy. I unlocked my handcuffs with the safety release and took out the gag from my mouth. I pulled Amanda from the floor to my lap and started kissing her on the gag. Kissing someone who has a ring gag did some figuring out, but I had a lot of practice._
+
+_I thanked her for everything that she had done for the day and said that it was time for her reward. She grinned at me as I told her to lay down on the bed, face up, legs wide. The corner posts of the bed had been welded with fixtures that made it very simple and very fast to tie a limb to it and that's what I did to Amanda's legs. I stopped for a moment to admire her beautiful, bound and helpless body. I could never get sick of seeing her like that, especially with a wicked gag to finish the rig. But I didn't want to keep her waiting for too long, so I knelt beside her in the bed. I started to stroke her breast with my other hand and very coyly started feeling around her pussy with the other._
+
+_I could see that she was so primed for my touch that I wondered if I'd have to do much more to get her first orgasm for the night going. She moaned at my touch and it was quite loud already as she couldn't close her mouth. I wanted her to be loud, partly because I loved the sounds she made and even more importantly I did it because I really didn't like the neighbor who had the tendency to watch porn often and way too loud to keep it a secret._
+
+_Her nipple was rock solid already, so I decided to move my attention to her aching pussy. I took my hand to her face and put three fingers through the ring of her gag. She knew exactly what her job was and started to lick and moisten my fingers. When I was satisfied, I took my hand back to her pussy lips and started to stroke it with more force. This was already so much for her state of arousal that her moans became even louder and her body started to tense. When I finally leaned my lips to kiss her clitoris, it was like an explosion._
+
+_She came with such intensity that I could hear her stretching the ropes as far as they would go and the sound made me extremely excited once again. She clearly tired to hold back her scream of delight as she wasn't too happy to be the tool of my revenge towards our neighbor, but she couldn't do much about it. When she finally came down from her climax, I saw that she closed her watering eyes and clearly needed some time to reset her internal organs before going again._
+
+_No such luck, I thought and slid one of my moist fingers inside her pussy. Her eyes shot open like she had been shot. The insides of her cunt were so moist and slick that I really didn't have to ease the concept to her anymore and slid the other two fingers inside her as well and pushed them as deep as they went. Amanda tried to plead with me to give her a moment, but I knew how her body worked. If I'd get her to quickly again, she'd come even stronger and at that point I could get her to do anything for me to get a break. It's not as if she wouldn't do just about anything anyway, but it was still nice to push her buttons just the right way._
+
+_I started to fuck her pretty intensely with the fingers. I knew she liked it like that even though I had been hesitant at first. I didn't like penetration with anything longer than a tongue, so it took me a while to get used to pleasing a girl who really liked to be fucked and learn all the tricks involved. I could hear from her moans and the limited motions of her body that another big one was on the way. However, I knew that this time I'd have to work more to get it out of her._
+
+_As I rammed my fingers inside of her pussy, I leaned in to use my expert tongue work on her clit. What I lacked in my skills with penetration, I more than made up with what I could do with a wanting pussy and my tongue. Or at least, that's what I liked to think and Amanda seemed to confirm my assumption. I also made a decision that I wouldn't go for the quick orgasm, but I decided to lengthen the process. Every time I felt like she was seconds away from exploding, I stepped down the intensity of my work, sometimes taking my fingers out of her altogether. Then I'd wait for a few seconds for her to feel the satisfaction slipping away before going full steam at her gorgeous cunt again. It wasn't easy to ride on the verge of an orgasm like that, especially when I knew that Amanda was really wound up for the biggest bang she'd had in awhile. The gag made it impossible to know if the sounds she made were pleading, crying, laughing, cursing or all of the above, but it drove me wild._
+
+_I had planned to keep her on the edge even longer, but I misread her and suddenly I knew that there was no stopping now. I did every trick to get the most out of her and judging from her reaction, I didn't do so bad. She didn't even try to hold back the primal scream that erupted from her gagged mouth. I could feel her pussy closing around my fingers with a remarkable force and soon her entire body was shaking. In fact, she was shaking so hard that the entire bed started to shake with her. Her scream stopped as she couldn't draw air and her eyes looked like they would pop right out of her skull._
+
+_Finally her body couldn't keep it up anymore and the orgasm gave Amanda the control of her body back. Her tense muscles relaxed and she dropped to the bed like a wet rag. Her eyes were closed again, but they had watered so much that it looked like she had cried for hours. She took in such huge gulps of air that for a moment I was worried that she might pass out of hyperventilation. But her breath soon settled down and the girl in front of me was the picture of serenity and relaxation._
+
+_I was unashamedly proud of my work as I laid beside her in the bed. She had just enough energy to lift her head on my shoulder and I took her in a loving embrace. We laid there like that, completely silent for what seemed like hours. I petted her hair and wondered what I had done to deserve such a blessing in my life as Amanda was and I almost cried in happiness when it really hit me that the tied woman in my embrace loved me as much as I loved her._
+
+_It would've been a great evening even if we would've just laid there and slept the entire night, but that wasn't my plan. No, it was going to be a long night and there would be plenty of orgasms to go around still. My tiny release at the beginning of our session wasn't nearly enough to quench my need for satisfaction and I suspected that she had a couple in her as well._
+
+_There was still a lot of fun in store for the night. The wonderful woman in my lap just didn't know it yet._
+
+__
+
+_11.06.08_
+
+_story continues in [**Alice & Amanda 3: Mistress Amanda**](alice_amanda3.html)
+
+o0o

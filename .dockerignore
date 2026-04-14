@@ -1,0 +1,10 @@
+.git
+__pycache__
+.ruff_cache
+.venv
+venv
+*.pyc
+*.pyo
+website/public
+website/resources
+*.tar.gz

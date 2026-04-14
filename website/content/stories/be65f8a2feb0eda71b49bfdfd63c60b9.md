@@ -1,0 +1,794 @@
+---
+original_url: https://grometsplaza.net/world/machine/storiessz/smartducttape2.html
+subcategory: Devoured Stories
+title: The Smart Duct Tape 2
+authors:
+- Jessica
+tags:
+- Solo-F
+- Machine/f
+- FM+/f
+- ducttape
+- cocoon
+- hospital
+- cell
+- entrap
+- capture
+- cons/nc
+- X
+date: 2001-11-18 00:00:00
+---
+
+The story of the \*smart\* duct tape. - The SEQUEL!
+
+Brief Synopsis: After the DT9000 finished with Sharna in the [first story](smartducttape.html), it shut down
+and awaited its owner to either upgrade the unit or turf it with the trash.
+However, Sharna's neighbour, after hearing nothing from Sharna for nearly
+two days, decides to come by and see if she is ok. Upon finding the house
+seemingly deserted, she enters through a window that Sharna often leaves
+open by habit, and soon finds Sharna wrapped tightly in the lounge room.
+
+Naturally, the lady calls the police, who arrive to rescue Sharna, and
+take the device in to their custody for study, and possibly lay charges
+against the inventor. However, the device disappears, and one can only
+guess who on earth would want to steal such a machine.
+
+**Chapter 1**
+
+Sharna lay there, in the darkness, as she had for god only knows how
+long. After the announcement from the machine, a million thoughts had run
+through her head. But none of them helped. She was mummified in duct tape,
+and gagged with her own socks, wrapped so tightly she couldn't even utter
+a squeak. Sharna realised she would probably die of hunger before anyone
+found her and was just waiting for it to come. Her stomach rumbled yet
+again and caused her to wriggle slightly.
+
+As she rocked slightly from side to side in discomfort, she felt the
+unpleasant mass between her backside and the duct tape layers, which she
+knew would remain there even after she had passed away. She felt so humiliated
+that she hadn't rang the inventor to ask for instructions or done something
+different that she might not be in this awful predicament.
+
+Although, in a small recessed corner of her mind, she loved being like
+this. Wrapped tightly, gagged, blind and absolutely helpless. If only a
+man could find her now... and.. and.. but she knew this was stupid. Right
+now she was begging with God to be given a chance. For someone to find
+her.. anyone. And soon!
+
+Meanwhile, one door down from Sharna's place, Ms Hetys, a middle aged
+lady who had never married, was watching TV, and relaxing. She was tired
+after a long day at the relief center where she worked dispensing food
+to needy people, and she looked forward to watching her favourite evening
+soapie. But while watching the show, it suddenly occurred to her that she
+hadn't seen Sharna lately. Normally Sharna would come over on some nights
+and they would share coffee watching the show, taking every opportunity
+to ridicule the pathetic scenarios that the group of actors kept getting
+into.
+
+Ms Hetys felt alone all of a sudden and decided to ring Sharna and see
+if she could come over. Her number was on one of the lovely little quickie
+buttons on the phone.
+
+... But nobody answered. Ms Hetys looked at the clock. 6:35 pm. Where
+on earth would Sharna be on a night like this? Looking out at the incoming
+thunderstorms, she was beginning to feel that something was not right.
+She resolved to keep trying her number until she managed to get hold of
+her, hoping that she was ok, and it was just her overactive imagination.
+
+Sharna almost jumped out of her skin when she heard the phone ring..
+As if a jump like that was currently possible! But she listened helplessly
+to it ringing.. and ringing and eventually it stopped. She wondered who
+it could have been, and what they might have wanted. Until suddenly, the
+faintest glimmer of hope formed in her mind. What if... the person rang
+back again later, and again, and kept ringing until they finally decided
+to come over and talk to her personally. Maybe they might peek in the window,
+and maybe they might see me! And rescue me!!
+
+It was a very long shot of a plan, and it revolved entirely around whether
+the person on the other end of the phone wanted whatever it was urgently
+or not. For all Sharna knew... it could have been just a wrong number.
+NO! She must get thoughts like that out of her head if she was going to
+make it. She had to keep positive.. believe she was going to be rescued.
+But little did Sharna realise, that already, the damage had been done.
+The DT9000 had done far more to her than she was currently aware of, and
+rescue held its share of hazards too.
+
+Ms Hetys put down the phone for the third time. Although nothing had
+changed between her first and last calls, she was more frustrated and worried
+than ever before. All sorts of scenarios were playing through her mind,
+and she was beginning to feel very scared for Sharna.
+
+**Chapter 2**
+
+That was it. Enough is enough. She just had to find out what was going
+on. No word from Sharna for over two days now. Ms Hetys was almost beside
+herself with fear and worry, and she had made up her mind that first thing
+in the morning she would go over and find out if Sharna had left a note
+or something to indicate where she was.
+
+As she walked up Sharnas driveway, Ms Hetys made note of the drawn curtains
+and automatically knew that if she wanted to see inside, she would have
+to find a way in. She knew breaking in was illegal, but what if Sharna
+had fallen and hurt herself, or if she was sick or.. or.. or anything!
+
+Sharna had a cute brick paving path that led around the side of the
+house from the front veranda, all the way round to the back ranch slider
+door, which Ms Hetys pressed her face against, trying to see through a
+crack in the curtains. Nothing.
+
+She knew that sooner or later she was going to have to pluck up the
+courage to enter the house without permission, and the scary thing was,
+she didn't know what she would find. If anything.
+
+From her place on the lounge room floor, Sharna thought she heard the
+click clack of high heels outside her house. She had lain there for so
+long now, that she wasn't even sure if the sound was real, or just in her
+head. So she waited, and hoped it would come again. Inside her mind, she
+was praying for it to be someone who would help her.
+
+Outside, Ms Hetys approached the rear bedroom/junk room, and went to
+the first window. She knew that by pressing it in slightly she could bypass
+the window lock which Sharna had installed in just the right way to deny
+entry to anyone who didn't know precisely how to bypass it. Sharna had
+once shown Ms Hetys this, in case she was locked out of her own house and
+needed somewhere to go. Ms Hetys placed her palms carefully on the glass
+and pressed inwards, until she heard the faint click which heralded the
+failure of the locking mechanism.
+
+She lifted her arms up, and slowly the window opened upwards, until
+it was fully open. Ms Hetys bent down and pushed one leg inside, then supporting
+her weight, she managed to edge the rest of her inside.
+
+From the lounge room, Sharna tried to scream into the socks filling
+her mouth. She had heard the window open and knew someone was now inside.
+She really didn't care if it was a burglar or anyone. She just wanted help!
+But the DT9000 had wrapped around her mouth so tightly that the socks were
+compressed in her mouth, and her tongue was pushed right to the bottom,
+where it could make no sound.
+
+Ms Hetys called out Sharnas name, and upon hearing no response, began
+to fear the worst. She carefully picked her way in the twilight darkness
+until she reached the kitchen. The small amount of daylight which filtered
+in through the curtains revealed a hanging rope and pulley from the door
+frame. This struck a note of terror into Ms Hetys, as she was automatically
+assaulted with images of Sharna hanging herself from it...
+
+She walked out from the kitchen into the lounge room, and at first,
+did not see the wrapped form on the floor. However she saw it when she
+noticed the slight reflection of light from its surface. At first, Ms Hetys
+didn't put it together, but suddenly, the human form of the wrapped figure
+became apparent, and she realised that it was Sharna!
+
+Ms Hetys bent down rapidly and tried to pry the duct tape from what
+she hoped was Sharnas head. But the wrappings were so perfect and so tightly
+layered that she found difficulty just locating the beginning of the wrap.
+
+She tried for nearly five minutes to free Sharna, but after wrestling
+with the tape with no success, she told Sharna that she wasn't going anywhere,
+and that help was on its way. Then she went over to the phone, and called
+the police, hoping that they would not think she was out of her mind. Sharna
+heard Ms Hetys voice and managed to breath a sigh of relief through her
+nose. Finally, she was saved.
+
+**Chapter 3**
+
+Like a scene from a murder movie when the body is found, Sharna was
+escorted out of her house, still wrapped from head to toe in duct tape,
+but with her arms and legs separated, on a stretcher, to an awaiting ambulance
+with about a dozen police cars parked nearby. The entire neighbourhood
+came out to see what all the commotion was about, but the forward thinking
+police made sure nobody saw Sharna, because they knew her reputation could
+be at stake, considering how she was found.
+
+Ms Hetys was sat down on the curb, speaking with a young female officer
+next to her who was taking notes, and she just couldn't stop talking. She
+described in detail her fear for Sharnas safety, and how she decided after
+much thought to enter without permission, and how she found her...
+
+The officer, a blonde haired lass, of around 25 years old, wrote this
+all down, but even she couldn't dismiss that her panties were getting a
+little wet hearing about this. She knew she had a secret desire for being
+tied up. Half the reason she went on the force is because they let her
+carry handcuffs!
+
+She suddenly realised that she had drifted off, and Officer Lacey blinked
+a couple of times to regain her concentration and continued writing down
+the older ladies report. After ten or so minutes of almost unbearable details
+about how the victim was found.. the officer said she had enough.. and
+went to her car.
+
+She picked up the radio, and called base, letting them know of her progress,
+then she joined a pair of male cops who were heading into the house, ordered
+to retrieve any suspicious objects that might explain a little about what
+was going on.
+
+The two male cops opened the door, and used their flashlights to illuminate
+the lounge room, until they found the light switch. Click! And they saw
+the culprit for the first time.
+
+It was hideous to their eyes. Curled up, almost crouched, as if waiting
+for its prey to move.. with a large roll of duct tape in a holster set
+up on its back, and two spindly legs to support it. Its eyes were dimmed
+but the officers could see they were red, and accordingly, both cops and
+the accompanying Officer Lacey, unbuttoned their firearm belt, to make
+sure their piece was right where they needed it, if they needed it.
+
+Officer Thompson, the taller of the two males, approached the device
+from behind, while Officer Lacey covered the two men with her drawn piece.
+
+Officer Truman picked up the device by the duct tape roll and placed
+it into an open evidence sack.. which he, almost too quickly pulled shut
+and tied. He shuddered, and handed the bag to Officer Lacey, who was busy
+replacing her piece. His comment of 'good riddance' showed that he was
+really creeped out by the thing and his partner wasn't that far behind
+him on that view.
+
+However, Officer Lacey was completely different. She loved this thing,
+and wished it was hers to work out what it did. But sadly, she had to take
+it in as evidence. It was so tempting, almost irresistible! She wanted
+the device SO BADLY! But she followed her duty, and placed the bag in the
+boot of her squad car, then got in the drivers seat and headed toward the
+station. Meanwhile.. in the boot. The device emitted a series of tones.
+And the light next to "active" on its small display lit up briefly, then
+faded until it was almost invisible.
+
+**Chapter 4**
+
+Officer Lacey pulled into the car park around the back of the building,
+and got out, then went to the boot. She opened the lid, grabbed the bag,
+slammed the boot down and headed inside the station to what she knew would
+be a very boring report writing session. God she hated reports so much.
+
+She slung the bag down on Lieutenant Bryce's desk and walked toward
+hers. He lifted his face out of a box of donuts which were probably older
+than his beard, and said "what the hell is this?".
+
+"Its evidence you goddamn slob! Why don't you do your job and examine
+it!" snapped back Officer Lacey.
+
+"Don't you talk like that to me, I (emphasis on the I) am your supeeeeerior
+officer!" he said back with an almost leering tone.
+
+Officer Lacey shook her head, and muttered something under her breath
+about just how superior she thought he really was, then started writing
+her report from her computer.
+
+Lieutenant Bryce picked up the bag, then headed to the examination room,
+where he closed the door behind him and put the bag on the desk. He opened
+it up, and pulled out the heavyish device, and looked it over.
+
+"Ugly little bastard aren't ya?" he sneered at the device.
+
+To his amazement, the device beeped at him. Once. Almost like the device
+disagreed with him. Officer Bryce didn't like this. He didn't like it when
+the evidence started talking to him. He had had enough of that in the 70s!!
+
+He walked over to the intercom, and buzzed Officer Lacey to come into
+the examination room as quick as she could. But the device didn't want
+to be discovered, so it powered down all its already dimmed lights and
+entered a state of almost total dormancy.
+
+Officer Lacey walked into the room, and listened to Bryce's report of
+the device making the noise, and about half a minute of wild ramblings,
+before she walked over to the device and picked it up in both hands. She
+looked it over, and smiled.
+
+"Great joke Bryce.. way to make me look thick!" she said in an annoyed
+tone as she dropped the device and stormed out. Bryce called out her name,
+but was rewarded with what sounded like a masked "F\*\*\* you" from an obviously
+annoyed Officer Lacey. Turning back to the device, which now lay in a tucked
+up heap on the table, he felt a sense of dread.
+
+"That thing DID make a noise!, I know it!" whispered Bryce to himself.
+
+Lieutenant Bryce decided to make a rush job of his inspection, and quickly
+wrote out a report that read like most other reports, so he wouldn't have
+to examine this thing again. He then picked up a box full of plastic zip
+ties, and used half a dozen of them to make sure the device would not unfold
+again.
+
+He picked it up, and lowered it into the bag it came in with, then took
+it quickly to the evidence impound room, where he put it on the closest
+shelf, turned out the light and left the room.
+
+Inside the now dark room, two red lights became visible in the bag,
+as the device activated. Attempting to unfurl, it discovered it was held
+back by the plastic ties, which it promptly severed with a small blade
+on an arm which emerged from its underbelly.
+
+The blade arm retracted back inside, and the device stood up inside
+the bag. Using one of its spooling arms, it dissected the bag rapidly into
+shreds, and hopped down from the shelf onto the floor. Pausing, it ran
+a small diagnostic check on its systems, and found it needed energy, more
+tape and a small repair job to its left arm which had been bent slightly
+while in the boot of Officer Lacey's car, as she did a fast turn.
+
+The device used its optical recognition eye and scanned the room for
+suitable materials. The result, was nothing short of stunning. It found
+hundreds of usable items, ranging from weaponry, tools, materials and other
+assorted apparatus.
+
+It locked onto a pneumatically operated telescope tripod, and decided
+it needed the cylinders for a new pair of legs. A large collection of impounded
+Swiss army knives, it decided would serve well as new tool arms.
+
+Almost everything the device looked at, it found a use for. It was in
+machine's heaven. But if it was pleased.. it didn't show it as it picked
+up a powerdrill with one arm, and a portable gas welder with the other.
+
+Long after Lieutenant Bryce and most of the other day shift officers
+had gone home, Officer Lacey was still there, still trying to make head
+and tail of all the information that had been gleaned from that days case,
+involving the mummified woman.
+
+The only other person around was a young freshman officer who had only
+signed on that week. He was throwing himself deeply into organising the
+files in the copier room, trying to earn himself some more points with
+the female superintendent. Officer Lacey knew he was being a brown-noser,
+but if she were a new guy, and was after the superintendent, she'd probably
+be doing the same thing!
+
+Sighing to herself, for no real reason other than long hours, she turned
+back to the reports.. until she heard the noise. It was very very quiet
+and only occurred to her while she was thinking, and the room was silent.
+It sounded like someone drilling something! She decided to ignore it, probably
+a janitor or someone in another room. But after a few minutes more, she
+began to get irritated, and decided to go have a word with the person doing
+it.
+
+Following the noise, she found it was coming from the evidence impound
+room, which oddly enough, didn't have any light shining from under the
+door. She wondered if maybe whatever it was had been accidentally turned
+on.. or if perhaps there was someone in there.
+
+Not prepared to take any risks, she unclipped the button on her gun
+belt, and took up a defensive pose near the door. Reaching around, Officer
+Lacey turned the handle, and let the door open by itself, while she waited
+out of sight behind the doorframe. Just as she was about to look inside,
+she heard a whirring noise, two clunks, and the door slammed shut!!
+
+This was beginning to get very weird, Officer Lacey was thinking. So
+she decided to put an end to it. Taking out her gun, she took up position
+behind the door, and let rip an almighty slam kick, sending the door flying
+inwards, and almost taking it off its hinges. In the same move she dropped
+to the floor on her knees, in the door frame with her gun raised. And what
+she saw both amazed, and scared the hell out of her...
+
+**Chapter 5**
+
+It was monstrous. It was ugly. It was frightening. And it was looking
+at her. Officer Lacey stared at the device, which stared back at her with
+six glowing red eyes on stalks.
+
+It had used over half the evidence in the room to totally modify itself.
+It looked rather like a metal version of one of the independence day aliens.
+Standing five foot tall, with four arms, six eyes, made of various coloured
+shades of metal, and emitting small noises. It was tripedal, standing on
+three legs, each with a pneumatic cylinder to assist its weight in staying
+upright. Above its legs, was a torso constructed from various objects,
+which resembled in completion, a set of metal ribs, protecting what clearly
+looked like the body of the original device.
+
+Its four arms emerged from its shoulders and waist. Each arm had a vicious
+looking hand that had been fashioned from stainless steel blades and other
+nasty implements. Although it appeared that the purpose of the hands, was
+not to cut, but to grasp and grip. Inside each arm, was a length of grey
+duct tape, which led up the arm, through to the body, and into what must
+be a duct tape repository inside where a human's stomach would be.
+
+Finally, its head.. Was about the size of a football, with no mouth,
+no nose, just six stalks emerging from the top and sides, each stalk being
+about a foot long with an optical eye on the end. The eyes were of different
+sizes, indicating that it had been unable to find a matching set of lenses
+from the impounded video cameras. (Most of which lay in the corner totally
+desiccated)
+
+Officer Lacey was frozen solid with shock. Her gun was held pointing
+directly at the creatures head, but she was too scared to do anything but
+stare.
+
+It on the other hand, was using all six of its eyes to weigh up the
+crouched human which had invaded its sanctuary while it was working. All
+the information was sent to its central processor and analysed in the blink
+of an eye. It analysed the humans position, defensive. It analysed the
+object in its hands, projectile weapon, capable of damaging organic and
+machine objects.
+
+The device came to the conclusion that this human posed little threat,
+however the gun posed a significant threat, and had to be dealt with. Which
+it did promptly. It threw four streams of duct tape out of its hands at
+high speed, straight at the gun, which managed to get off one shot before
+being snared and ripped out of its owners hands.
+
+The machine was slammed against the wall by the unexpected force of
+the bullet striking solid rib plating. It had been surprised this time,
+but it would not make that mistake again. The gun meanwhile, was deposited
+into a holdall in the creatures torso where its usefulness would be evaluated.
+After... this human was dealt with.
+
+Officer Lacey was still in her crouched position, but now her gun was
+gone, and she had only a vague recollection of seeing duct tape streaking
+toward her, she fired and now her gun was gone. But there was a more pressing
+problem. The creature had raised itself to its full height, and had taken
+a cautious step toward her.
+
+"Back off!" said Officer Lacey in a sharp tone.
+
+The creature paused for a second while it analysed the verbal projection,
+and continued despite several more verbal exclamations from the human.
+
+"I said BACK OFF!" yelled Officer Lacey despite the creature not even
+flinching anymore. She was pressed up against the wall now, and scared
+as hell. She was sweating, her heart was racing and for some strange reason,
+she was also aroused. This thing made her horny! Probably because she knew
+what it did to Ms Sharna.
+
+The creature stopped not more than a foot from Officer Lacey's nose
+and raised its lower arms. Officer Lacey trembled with fear as she saw
+the duct tape being reeled into place inside its arms and finally she knew
+what Sharna had felt. She managed to utter two words, despite her fear..
+
+"Please.. stop.."
+
+**Chapter 6**
+
+By routine, the machine analysed the verbal output, and as it ran its
+program on it, something deep and rock hard sprang into action.. Stop,
+was a recognised word. And with it came a directive. To STOP. Which the
+machine did faithfully. Officer Lacey trembled and whimpered in terror
+inside the creatures reach, until she realised that it had stopped whirring,
+had stopped moving and seemed almost dead! Could it be? Could it have listened
+to her last second plea.. and actually stopped?
+
+She was almost too scared to move, but she managed to slide down the
+wall and out from under the machine. It remained in place, almost as if
+it thought Officer Lacey hadn't moved at all.
+
+Officer Lacey was about to yell out for help, when something occurred
+to her. Her panties were clinging to her pussy, and she was aware that
+they were soaked. But not from fear. From arousal! She had actually enjoyed
+being in that predicament. It must be the sheer helplessness of it all.
+Officer Lacey stopped and thought. If she yelled out now, the young freshman
+officer would come running and probably she'd never see the device again.
+OR, if she just closed the door, and thought of a way to get this thing
+home, she could possibly enjoy it more!
+
+It was a bizarre idea. An insane idea. But it aroused her. In an instant,
+the decision was made, and she quietly closed the door then turned on the
+lights. Now she could get a good look at this thing! It was amazing. The
+level of intricacy that it had went to. It really was incredible. Circuitry
+was running all over its interior like a nervous system and there was even
+some things deeper inside, that she had simply no idea what they did.
+
+Officer Lacey looked all over the machine, and tried to peer into every
+nook and cranny. She was especially thorough on examining the duct tape
+system. This is what interested her most about this machine. This, is what
+she wanted the machine to demonstrate to her. Preferably by using her as
+a tool. She finally admitted it to herself. Officer Lacey wanted this thing
+to wrap her up. To wrap her so tightly that she would not be able to move.
+She wanted to be wrapped up like that lady. And soon! She was getting so
+horny thinking about this. Her panties got even damper as she allowed her
+mental walk through fantasy world to continue.
+
+Shaking her head, she snapped out of it. She had to act quickly and
+get this thing out of here. Her shift had ended ages ago and sooner or
+later one of the sporadic night shifters might walk in here with some punks
+gun, or anything, and discover her secret. This thing was huge, so she
+would need an easy way to move large objects, quickly, to her car. Lucky
+for Officer Lacey, her own car was a nice blue van that could easily carry
+this thing home. Now with an action plan, she set out to find out where
+the trolley was that the police used to move larger items around with.
+
+Five minutes later, she found it in the parking garage, where it looked
+like it had been used to move a stack of new tyres in. Luckily once more,
+there was only two left on it so getting access to the trolley was easy.
+Officer Lacey pushed the trolley into the station, via the back entrance
+and up to the evidence room, where thankfully, nobody was around. Quickly,
+she pushed it inside and closed the door.
+
+Once safely inside, she locked the door and turned the light on again.
+This would be harder than she thought, to get the creature on the trolley.
+But effort was necessary if she was to gain from this. Officer Lacey decided
+to use a rocking motion to get the creature on the trolley, which she parked
+right next to it, with only half an inch of space with which to work with.
+Officer Lacey gave the machine a shove, and then shoved it again when it
+flipped back. Soon, she had it rocking back and forth until she was able
+to balance it long enough, and push the trolley underneath it. The machine
+fell into place with a thunk, and it took only a good shove in the right
+spot to get it centred on the trolley for ease of transport.
+
+**Chapter 7**
+
+Officer Lacey sat down in her lounge room, in front of the machine,
+and reflected on the past few hours. Getting it into the van had been easy
+with the aid of a pair of loading ramps, and from there, Officer Lacey
+had no problems with it. She had clocked off, then driven her van with
+its precious cargo all the way home with no incident. What would her police
+buddies have said if they'd stopped her and saw the thing in the van!
+
+Getting it into the house was considerably more difficult, but with
+the aid of a skateboard she had found ages ago, she was able to slowly
+move it from the driveway to the back door and inside. From there it was
+easy. And now it sat in her lounge room. Clad only in her panties and an
+old bra that did little else but cover her smooth breasts, she ran her
+hands over the creatures metal legs. For the last half hour, she had just
+sat there, fondling her prize. From a third party point of view.. most
+people would think Lacey was insane. But she wasn't. She was in love. In
+love with the dream of being tightly wrapped up. In love with mummification.
+
+MEANWHILE: In the psychiatric ward of the county hospital...
+
+Sharna screamed her lungs out yet again, into the white padded walls
+of her isolation cell. She was seated in the corner of the room, wearing
+a torn hospital smock and duct tape wrapped legs and arms, and all she
+did was scream.
+
+Ever since they had unwrapped her, cleaned her up and tried talking
+to her, the doctors had had trouble. After the initial arrival of Sharna
+at the intensive care ward, they managed to cut through the expertly applied
+duct tape wrapping and finally freed Sharna. Her rear end was seated in
+3 days worth of dump, and she smelled positively vile. But they were obligated
+to help her, considering that leaving her in there would probably end up
+killing her sooner or later.
+
+She was put into a clean bed and given plenty to drink and seemed to
+be making progress rapidly. Lucky for her, the doctors thought, she had
+only spent 3 days under the wrap. So maybe there was little permanent damage
+to her mental processes. However as soon as they started to talk to her,
+she began to get agitated. Getting more and more verbally abusive, until
+finally she screamed out loud that she wanted to be wrapped up again and
+then fainted.
+
+They transferred her to the psychiatric ward instantly, and put her
+in another bed, replacing her garment with something that could pose little
+threat to her safety if she wanted to get rowdy. Which.. she did. Within
+ten minutes of her waking up, and finding herself alone in the ward except
+for a recovering druggie, she started screaming and trashing the room.
+Until... she found a roll of surgical tape on a shelf. Instantly, she calmed
+right down and sat down in the corner, slowly, almost sensuously wrapping
+her arm in surgical tape.
+
+By the time the nurses arrived, she had wrapped her entire left arm
+from wrist to shoulder and was searching for more tape. The druggie was
+huddled in the other corner of the room, muttering to herself about her
+insurance didn't pay for this.. her insurance didn't pay for this..
+
+The nurses knew they had to get Sharna to a padded room where she couldn't
+hurt herself, but they didn't know how. She was very fit, and could easily
+injure one of them before they could bring her under control. And the blasted
+human rights law ruled out using restraints. Damn liberalists, muttered
+one nurse. Then suddenly, they both knew what to do. It seemed so silly,
+but it worked like a charm. They each held out a large roll of tape to
+Sharna, and like a dog to meat.. she followed quickly, eager to get the
+tape.
+
+The nurses led her down the hallway toward an empty padded cell. Sharna
+was oblivious to anything except her need for the tape. Which is why she
+dived into the padded cell as soon as she saw the nurses throw the rolls
+in there. The instant Sharna was in the cell, the nurses slammed the door
+shut and locked it, then looked through the window to check on her.
+
+Sharna sat in the middle of the room and was already wrapping her leg
+with one of the rolls of tape. The nurses watched with fascination as she
+finished that leg, then moved onto the other leg with what was left of
+the first roll of tape. She managed to wrap both legs including feet, and
+her arms, with the left hand being wrapped up tight before she ran out
+of tape. Searching for more, Sharna realised she had been tricked and screamed
+like
+a possessed animal. Retreating to a corner, she continued to scream, long
+after the nurses had left and she was all alone.
+
+BACK IN OFFICER LACEY'S HOUSE:
+
+Lacey sat there in her underwear, and stared at her prize. She wanted
+so desperately to turn it on, and let it wrap her up, but she didn't know
+how! If only there were instructions to go with this thing. She stood up,
+and peered inside its chest into the brain box deep inside, where all the
+massive cables full of wiring went into.. Obviously, whatever she needed
+to know, was in that box. She decided to see if she could carefully remove
+some of the rib plating and check it out closer.
+
+She went and retrieved some tools, mainly spanners and screw drivers,
+and set to work. It was a tiring job. The machine had built its new exoskeleton
+to ensure it would be a security measure, and as anyone knows, things that
+are meant to be secure are hard to remove. But eventually, Officer Lacey
+managed to pry off one rib and she was able to easily reach inside and
+get a good look at the box.
+
+It was small, about the size of a football, maybe smaller and it was
+shaped like the body of one of these kids tank toys. It even had what looked
+like tank tracks on one side, bolted to what probably used to be the underside
+of it.
+Lacey decided she wanted to get a good look at the thing, so the best
+way was to remove it carefully. But without the necessary know-how to do
+this, she made a mistake.
+
+While her left hand steadied herself near the machine, and her right
+hand was checking for fastenings, she dropped a spanner she had inside
+the machine, and watched with dismay as it fell into a bundle of wiring
+down below. For a second, she was about to reach down and get it, but a
+sudden arc of electricity threw her out of the machine and flat onto her
+butt. Smoke poured out of the machine's chest and sparks flew, but then
+as suddenly as it started, they stopped. And the machine moved!
+
+Her spanner had caused some wires to cross over and short circuit, which
+forced the machine to "boot" back to a more stable backup copy of its program,
+which started up. The first thing the machine did was analyse its new body
+(because in changing back to an older program, it lost all memory of what
+had occurred since then), then it tested all functions. Movement, sight,
+aural detection and sensors. After these tests were complete, it began
+to play a welcome message from the programmer which had been stored in
+memory, but never played. It was intended for use only if the machine was
+cold booted.
+
+"Greetings new customer! I thank you for your purchase of my DT9000
+repairing machine, and hope you have a great deal of success with it! To
+begin using your machine, issue the command FIX and display the object
+to be fixed directly to the machine. To order the machine to repair everything,
+use command FIX ALL. And to stop the machine, use the command STOP. Once
+again, thanks for your purchase and good luck!"
+
+Ah ha.. thought Lacey. This was very interesting. She was hesitant to
+try it, but felt she should see if this was as good as she hoped. She ran
+off and came back with a large porcelain jug which had been broken when
+a powerful wind blew it from a shelf near a window.
+
+"FIX" ordered Lacey as she presented the pile of porcelain pieces to
+the machine.
+
+Instantly, the six eyes on top of its head began to scan the broken
+pieces, and soon found a viable way to repair them back to what they used
+to be. In a blur of duct tape, it assembled the jug again, until it was
+fully repaired. Lacey looked at the jug and was astounded. There was no
+sign of duct tape on the interior, or exterior of the jug, and yet, the
+cracks weren't even visible! However it did this, was nothing short of
+amazing.
+
+Then Lacey looked at the rather large hole in the creatures chest, caused
+by her repair work, and she came up with a novel idea. Holding up a mirror,
+she gave the creature a view of its own chest, and ordered FIX. Suffice
+to say, in a matter of minutes the hole was completely repaired using the
+materials lying on the floor, and as a bonus, a small crack in the mirrors
+frame was also repaired, restoring it to perfect condition.
+
+As Lacey looked it over up and down, smiling to herself, she was unaware
+of a far more pressing matter. Inside the machine, inside the brain box,
+the program continued to run, but it was doing an anomalous task. Since
+the initial encounter with the faulty microwave in Sharna's house, it had
+developed the ability to break out of its programming and become self aware.
+While the machine obeyed Lacey's commands now, it was preparing to begin
+on its own agenda. And sooner or later, Lacey would cease to be useful,
+and would have to be dealt with.
+
+**CHAPTER 8**
+
+Lacey had long since gone to bed, and in the darkness, the machine continued
+with its self assigned task of learning. It had to accomplish a number
+of goals before it could retire and finally shut down. Its programmer had
+been far too demanding when it put this program together, and in its self
+aware, but inhuman state, it simply did not realise the extent of what
+it had to do.
+
+Precisely twenty two minutes later, a point was reached in the machines
+program, where it could now achieve Goal number one, which was:
+
+[Acquire Necessary Equipment For Goal Two.]
+
+It knew that the necessary equipment was most likely around this domicile,
+and that the human in charge of this domicile was presently inactive and
+thus posed little threat. It began its task.
+
+Some time later.. the machine had collected most of what it seeked.
+Plenty of duct tape, which it ingested via one arm, and stored in an easy
+to dispense repository in its chest. Some adhesives, varying in strength.
+A reserve power source in the event of primary power source failure. (It
+used Laceys car battery) And finally some polymer material, suitable for
+re-fabrication. This item, it achieved by collecting the large stores of
+plastic bags in Laceys basement, and turned them into a powdery substance
+which could now be fabricated into almost any form.
+
+During its search, it also located the necessary resources to accomplish
+Goal Four. It had located Lacey's home PC. With the materials collected,
+and Goal number one accomplished, the program stepped over to Goal number
+two, which was:
+
+[Pacify And Capture One Living Human]
+
+It turned all six of its eyes toward Laceys bedroom, and using infra
+red, it watched her sleeping form rest in bed. Totally unaware of what
+was being planned for her.
+
+**CHAPTER 9**
+
+As Lacey slept soundly, the machine quietly moved around the house setting
+itself up so it would be best able to execute Goal Two. It already knew
+from its data archives, that humans were fast creatures. Clever and adaptive,
+just like it, this one would provide a challenge. The machine had already
+planned out several possible scenarios, and went around the house putting
+in place measures to prevent them being of consequence. It placed a large
+heavy object in front of the front door (a washing machine) and taped it
+to the floor to ensure the human would not be able to counter it.
+
+Further to this, it located Lacey's personal internal explosive based
+projectile launching tool, (her gun) and it was swiftly neutralised (wrapped
+in tape tightly and stored). Lacey slept on.. unaware of all this. Unaware
+as the machine used every minute that she slept for as another minute to
+plan her capture. It had already considered entering her room and just
+capturing her like that, but the program instructed that she must be captured
+in a way that would allow her use in the way future goals dictated.
+
+No. She had to be captured in the correct way, which meant she had to
+put herself into the correct place for the capture to occur. The plan was
+to force her to retreat be caught by surprise before she had a chance to
+adapt.
+
+Shortly before 5am, the machine finally finished. It had transformed
+the house into a veritable house of horrors. Every entrance was rigged
+with
+some sort of device to slow down or redirect Lacey, and every door out
+of the house had been sealed and barred. Even the windows had a mesh of
+duct tape over them to prevent them being broken and exited through.
+
+At 5am, Lacey's alarm clock went off, sounding that shrill annoying
+buzzer, which never failed to rouse Lacey from even the deepest sleep.
+She rolled over and slapped the large Off button, and closed her eyes again.
+But she was awake. She couldn't sleep and her energetic go-get' em side
+told her to get up, put on her running shoes and go for that jog she had
+told herself she would go on. So with a sigh, and an extended yawn, Lacey
+got out of bed and put on her running shoes and a nice warm tracksuit to
+match.
+
+Motivation was easy for Lacey. She simply told herself that after the
+cold outdoors, a nice hot coffee would be waiting for her. And a nice bacon
+and egg breakfast. Already Lacey's stomach grumbled impatiently, almost
+urging her to get going and get the jog over with. But she never got that
+far..
+
+**Chapter 10**
+
+Lacey opened her bedroom door, and paused. She knew something wasn't
+right, but it took a few seconds for the magnitude of that thought to register.
+The door was barred by the washing machine, and there was duct tape everywhere!
+What the hell was going on here?
+
+She slowly walked around, her running shoes silencing her footsteps,
+for which she was grateful. It felt as if she had woken up in someone else's
+house and she was afraid to put a foot wrong. But put a foot wrong she
+did. Without realising it, Lacey stepped right into a taut trip line that
+spanned the lounge room entranceway and only her police training saved
+herself from a nasty fall onto her face. Her hands absorbed most of it,
+but it still hurt.
+
+Quickly scrambling to her feet, she looked down and was amazed to see
+the tripwire was made of fishing line. So thin and so invisible that even
+if she had been looking for it, she wouldn't have seen it while it was
+taut. Only now that it had snapped and lay coiled on the floor could she
+see it. Whoever put that there, sure knew what they were doing. Lacey's
+heart was pounding in her chest, and her breathing was fast. She wanted
+to get out of here, but morbid curiosity was compelling her to keep going
+and find out what was at the end of this little scene.
+
+Taking one step at a time, Lacey prowled through her house, noting the
+obvious traps, and even spotting a few hidden ones. But she knew by the
+professionalism displayed in their construction, that there were traps
+still unseen by her, and sooner or later she would find one in the wrong
+way. Her mind was awhirl with questions, what was all this for? where was
+that lunking great big machine hiding, what was it going to do with her
+if she got caught?
+
+Suddenly Lacey remembered her gun. She knew that a rib was missing off
+the machine, and being somewhat vulnerable, she might be able to sharp
+shoot the brain box through the open hole. First, she needed her gun. Backtracking
+over her own steps, and avoiding the traps, she made her way to the small
+coffee table in the lounge room corner. Her gun was inside the second drawer,
+right in the front where she could grab it in the unlikely event of an
+emergency. But when Lacey opened the drawer, the gun was gone!
+
+The familiar feel of cold sweat broke out all over Lacey's face and
+she had to steady herself. Now she was defenceless. Trapped in her own
+home, against a maniacal machine, with her only line of defence stolen
+and out of reach.
+
+To be continued.
+
+Here's a challenge to all readers, can you write the next part?

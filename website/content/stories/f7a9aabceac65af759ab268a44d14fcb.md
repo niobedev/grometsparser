@@ -1,0 +1,1115 @@
+---
+original_url: https://www.latexstories.net/storieslr/rocky_road_to_ruin.html
+subcategory: Latex Stories
+title: The Rocky Road to Ruin
+authors:
+- Rubberwolf
+tags:
+- FF/f
+- drugged
+- bond
+- bdsm
+- toys
+- forced
+- nc
+- XX
+date: 2005-04-10 00:00:00
+---
+
+**Foreword**
+
+For those of you that have visited the Gromets Plaza Forum, you may
+be aware that I occasionally attend the Rocky Horror show.  This piece
+is written with that great stage production in mind.  I have written
+this story for a competition held on Gromets site, where the brief states
+that the hero/heroine should visit the sponsors fetish shop and create
+a story of their adventures.  What better excuse to visit a fetish
+clothing shop than the Rocky?  Having read the rules, as stipulated,
+I then visited the link to the shops web site and found the perfect outfit
+that would match the shows final confrontation scene perfectly.  So,
+this is a story about a stage show and the possibilities that may result
+from a chance encounter.  Although I did not meet the deadline for
+the competition, I thought I would write the story anyway.
+
+By the way, if you are not sure what is going on, visit the Rocky Horror
+Show web site, or that of its UK fan club and you will soon get the idea.
+
+Enjoy
+
+Rubberwolf
+
+Antici…..pation
+
+Alison had worked for Gromet and Partners Ltd. for just over a year
+now.  As a junior accounts clerk, she felt that she had taken on a
+great deal of responsibility in relation to her job description. 
+This was not uncommon when working for smaller companies.  She had
+worked for larger companies and had notices that they tended to hire greater
+numbers of people in order for them to specialise in specific tasks. 
+Although Gromets boasted an enviable turnover, it was still small enough
+to enable Alison to experience a wider variety of duties than would normally
+be the case.
+
+Chartered accountancy differed from company accounts quite significantly,
+since their work primarily evolved around auditing.  When she had
+first applied for the job, she had been concerned that she might become
+bored.  However, one of the interview panel had changed this perception.
+
+Simon Pierce, was a hunk.  He was witty, charming and loaded. 
+What more could a girl want.  However, despite numerous attempts to
+attract his attention, her advances seemed to go unnoticed.  Initially
+she had been subtle, brushing past him in corridors, batting her eye lids
+for all that they were worth.  But nothing had, as yet resulted in
+a date, or even acknowledgement.  She was becoming a little frustrated. 
+As her efforts to catch his eye had intensified she was becoming frustrated
+at the lack of response.  She began to believe that, following some
+of her more recent antics, she might as well wear a sign proclaiming “Slut”. 
+She was beginning to believe that the object of her attentions might be
+gay.
+
+But then, despite all of her efforts, she did not believe that she was
+a prize catch herself.  Oh, she was pretty enough.  Five foot
+ten, slim with long legs and long brown hair.  She had a reasonable
+bust and her mother always said that her large dark eyes and bee sting
+lips would melt mens’ hearts.  Perhaps it was in the way she presented
+herself.  Perhaps her glasses were not fashionable enough?  She
+always wore smart, professional suits to the office, although in her recent
+attempts to attract Mr Pierces attention the hem line of her skirt had
+started to rise.  Shockingly, it was now well above the knees by at
+least two inches.  She had even started wearing high heels for god
+sake.  Three inch heels were damned uncomfortable after eight hours. 
+She was beginning to lose hope of ever attracting Simons eye.
+
+Just as she was beginning to contemplate clubbing him over the head
+and dragging him back to her lair so that she could leap on him, an opportunity
+arose.  Due to a large auditing job over Christmas, it was decided
+that they should hold the Christmas party in the New Year.  This would
+normally involve a meal out, with perhaps some dancing and a little bit
+of alcohol.  O.K. a lot of alcohol.  However, one of her colleagues
+suggested that this years venue might be the Rocky Horror show, followed
+by a night club.  Alisons’ brain lit up with millions of fiendish
+possibilities when she learned that Mr Pierce would also be going. 
+Although she had never been, she had seen the film and knew the dress code
+required.  If she could not have Simon grovelling at her feet by the
+end of it, perhaps he was gay.
+
+Having gossiped with the other girls, Alison had a fair idea of what
+everybody else in her office would be wearing.  Those that were not
+playing Columbia would be wearing varied assortments of underwear, in homage
+to Magenta or Janet.  She would need to be even more daring in order
+to stand out.
+
+**Interesting Underwear**
+
+Having paid her deposit, the first thing she did when she got home was
+to research her subject.  She decided to start with the show and so
+booted up her computer to visit the web sites.  After researching
+the characters, fans, outfits and protocol, she rented the film from the
+local video shop.  How could she make herself stand out?  It
+would definitely need to be something special if she was to compete with
+a theatre full of scantily clad women.
+
+The best place to look, she decided, was on the internet.  After
+a few hours of searching through department stores and the usual assortment
+of lacy underwear, she eventually found herself in more perverse web sites. 
+She read a great deal about bondage and punishment, before accessing more
+extreme fetishes.  Despite the fact that she disapproved of many of
+the practices, she had to admit that many of the outfits warranted further
+investigation.  And then, by a stroke of good fortune, she found her
+outfit.  It looked incredibly space age.  She remembered watching
+films like Barbarella, or Flash Gordon and was instantly inspired. 
+This would be perfect for the outfits worn by Magenta in the final scene. 
+As a bonus, she would not have to rely on mail order, since the shop was
+situated locally.  She was surprised that she had not seen it before,
+although she imagined that they would have to be very discrete in their
+advertising.  She therefore resolved to visit the shop on Saturday
+and try on some of the outfits.
+
+Unexpectedly,   The Eros boutique was not as discrete as she
+would have expected..  She expected to find a dingy back street shop,
+with iron mesh over the windows, which would be boarded up.  The only
+advertisement she would have expected would have been a tacky sign over
+the door announcing adult entertainment.  The boutique was however,
+discrete in that it blended in with the other high street shops. 
+This looked like a typical clothes shop.  The window display might
+have been overlooked, if it were not for the fact that the mannequins all
+wore rubber, or PVC.  There was no sign of the restraints, or bondage
+paraphernalia that she would have expected, having visited their web site. 
+The outfits, in fact, looked like risqué club wear.  Despite
+the nondescript nature of the display, Alison had no illusions as to what
+lay in side.  It was as if the outside of the shop had been designed
+to hint, or tastefully suggest what lay in side.  Alison realised
+that she was stalling and so she plucked up her courage and walked in to
+the shop.
+
+The interior of the shop was also a surprise.  She was not sure
+what she had expected, perhaps something dingy, or grubby, but the boutique
+definitely was not either of those.  Instead, the interior was well
+appointed and, like the window display, was laid out like any other fashionable
+high street clothes shop.
+
+The well lit shop boasted wide isles filled with racks of clothes. 
+One wall was taken up with shoes and boots, while the rear wall, which
+was tastefully screened off, contained the more exotic accessories. 
+Despite her initial reservations, Alison realised that she would feel quite
+comfortable shopping here and, she realised, that was why it had been laid
+out as it had.  The layout had been designed to put customers at their
+ease.  Rather than some dingy fetish shop, where new patrons would
+feel nervous about asking for help, or looking at clothes, the boutique
+had done its best to show that this was an everyday clothes shop that just
+happened to stock rubber and latex.  This was a shop that Alison would
+feel at home in and so, without any further consideration, she set to with
+the familiar zeal of the true shopaholic and indulged her purchasing power.
+
+An hour later, after trying on several outfits, shoes and accessories,
+Alison staggered towards the counter with her selection.  If this
+does not have the desired affect on Simon, he was obviously dead would
+notice unit the next year end.
+
+Having loaded her shopping in to the boot of the car, Alison spent the
+rest of the day shopping for make up and jewellery that would accompany
+her outfit.
+
+The Rocky horror show was booked for the last weekend in February. 
+Alison eagerly paid for her ticket and booked the afternoon off to get
+ready in time.  The show was due to start at seven thirty and she
+had arranged to meet the rest of the department in the theatre bar a half
+an hour before hand.
+
+Arriving home at two o’clock, the first thing that Alison did was to
+take a bath and wash her hair.  Ann had found that the rubber latex
+underwear was so tight that it became uncomfortable to move around in if
+she still had hair in a certain place and so, working with extreme caution,
+Alison hooked her leg on to the side of the bath and shaved the hair off
+of her pussy.  This done she shaved her legs and arm pits.
+
+Stepping out of the bath, Alison placed a towel around her head and
+dried her body.  She then walked in to the bedroom and dried her hair. 
+The next step was to apply her make up.  Having seen the photos from
+the Rocky web site, she knew the look that she was after, sort of Mortician
+Adams meets Munroe and so applied her foundation heavily, in order to achieve
+the deathly pallor worn by the cast.  Next, black eye shadow was applied. 
+She then used the same eye shadow to rouge her cheeks in to a deathly grey
+colour.  After applying long false eye lashes and mascara, she turned
+her attention to her lips.  Using tissue she removed the first coat
+of lip stick before re-applying the bright red to her lips.  She was
+fortunate that she had thick bee sting lips and could carry the colour. 
+Finally she applied a base of lip gloss to bring out the true effect.
+
+Having finished her face, she painted her nails, again in bright red. 
+Once these had dried, she was ready to get dressed.  The first thing
+that she put on was the knickers.  If these had been cut in cotton,
+they would have been called grandma knickers.  However, the bright
+red latex seemed to convey certain sexuality so that they looked very promiscuous,
+despite being so large that they covered her belly button.  Wiping
+off the excess talcum powder, Alison turned her attention to her stockings
+which were also made of bright red latex.  She sprinkled liberal amounts
+of talcum powder inside the stockings so that they glided effortlessly
+up her smooth legs.
+
+Next Alison reached for the boots.  Apart from the corset, these
+were her favourite purchase.  They gloss white, PVC, thigh high, boots
+with red laces that ran all of the way up the front that sported the most
+ridiculous six inch heels.  Alison had contemplated doing the Time
+Warp in these with dread and had therefore been practicing wearing the
+boots, every evening when she got home from work, for the past two weeks. 
+She was now quite confident that she could not only walk, but dance in
+them.  Having pulled the boots on to her legs, she sat down on the
+bed and started to lace them up, pulling as hard as she could in order
+to get the tightest fit.  Alison did not know why she liked having
+the boots so tight, since it made it harder for her to balance.  It
+just felt right somehow.
+
+Standing with practiced grace, Alison then opened the front of her corset
+before placing it around her mid rift and securing the front.  This
+was her favourite item.  It was white with a red lightning stripe
+down the front, giving it a futuristic, flash Gordon look.  Reaching
+behind, she started the long and difficult task of lacing the corset up. 
+After half an hour, and several stops to adjust the garment, she had eventually
+tightened the laces up enough to make a difference to her figure, without
+restricting her breathing.  By the time that she had finished pulling
+and fidgeting, the laces had lengthened considerably behind her. 
+Grabbing the ends, Alison tied them in to a large bow.  The laces
+were still too long and so she repeated the process twice more until the
+laces were of a manageable length.  She then attached the six suspender
+straps from the corset to the tops of her stockings which poked over the
+top of her boots by three inches.
+
+With her figure secured, she now moved on to the posture collar, or
+more precisely, the posture corset.  This followed the red and white
+theme of her outfit, being made of gloss white rubber and sporting bright
+red laces at the front.  The collar, while laced at the front, employed
+catches at the back so that Alison opened the collar, placed it around
+her neck and locked the collar in place before undoing the bow at the front
+of the collar and pulling the laces tightly until her neck was securely
+jacketed, her chin held high and sideways movement was impossible.
+
+Satisfied, she turned her attention to her hair.  Sitting at her
+dressing table she undid the towel around her head before brushing her
+hair.  Taking two long strands of hair, from either side of her brow
+and working white dye in to them.  Once she had dried these strands
+with the hair dryer, she worked thick jell in to her hair.  Keeping
+the white strands separate, she back combed and styled her hair, surgically
+applying the hair dryer, until it was combed into a backwards explosion
+of long, spiky hair.  Finally she coated the white streaks with hair
+jell and then combed these in to the front of the hair.  Once she
+had dried these in place she then sprayed her hair with a generous coating
+of hair spray.  The final result was a cross between the bride of
+Frankenstein meets Cruela DeVile.  Perfect.
+
+Picking up her new ear rings, she secured them in place before appraising
+herself in the dressing table mirror.  The Bright red three inch discs
+that now adorned her ears would have looked ridiculous when worn with any
+other outfit, but for this outfit and in a Rocky Horror context which,
+after all was a show that took the proverbial out of 1950’s and 60’s horror
+films, it was ideal.
+
+Next she pulled on a pair of full length, white rubber, fingerless gloves
+that were attached to her middle digit only and sported bright red laces. 
+These were again laced up tightly. Standing up Alison approached the full length mirror next to her wardrobe. 
+The effect was stunning.  She looked great.  It was a pity that
+she could not pull the laces on her corset any tighter, but she would have
+to be happy with the effect.  It still looked damn good.
+
+Finally, she transferred her purse to her new hand bag, which was made
+of bright red PVC and was shaped in to the shape of a corset, with a zip
+on the top and bright white laces, zig zagging down the front in imitation
+of the garment she was wearing. Picking up the bedroom telephone she ordered a taxi before donning her
+new, red rubber rain coat and tying it loosely around her middle. 
+She looked, she had to admit, stunning.
+
+**One of the Masters Little Suarez**
+
+She arrived at the bar in good time, ordering herself a drink and positioning
+herself so that she could spy her quarry when he arrived.  She was
+soon spotted by her fellow co-workers, who were all amazed at her transformation
+quizzing her intently on who the lucky man was and where she had brought
+such an outrageous costume.  One girl showed a particular interest. 
+She had also come, to Alisons amazement, in rubber.
+
+Alison was surprised to learn that Bobby also worked at her firm, from
+the marketing section.  The girls chatted amiably for several minutes,
+while Alison kept a discrete eye on the door for the arrival of her quarry. 
+Bobby, short for Roberta, admired the corset and suggested that it could
+be made even tighter.  Alison explained that she had tied it as tightly
+as she could but it was difficult to get enough leverage.  Before
+she could say another word, Alison found herself being whisked to the bathroom
+by the other girl.  Although smaller, Bobby was surprisingly strong
+and soon Alison was grunting while holding on to the sink in the ladies
+room, as the other girl heaved on the laces.
+
+By the time that they had finished, Alison considered, her waist had
+shrunk by at least two inches.  If she looked good before, she now
+looked fabulous.  They returned to the bar just as the admission bell
+chimed and the two girls made their way in to the auditorium.  Alison
+scanned the crowd as they made their way to the seats, but was not able
+to find Simon.  Disappointed, she slipped in to her seat.  To
+her surprise Bobby sat next to her.
+
+“Well isn’t that a coincidence.  The only two rubber clad girls
+in the company have tickets right next to each other,” Bobby exclaimed
+with a mischievous grin as she waved her ticket at Alison.
+
+OK, so the love of her life had not turned up.  No knight in shining
+armour, or at least no stilettos and fish nets.  But at least she
+had found someone that she could enjoy the evening with.
+
+Bobby turned out to be the perfect person to go to the Rocky with. 
+She knew all of the responses that a fan is expected to hurl at the stage. 
+She knows all of the parts where you would throw rice, water, or wave lighters. 
+There were even a couple of responses that she had not read on the web
+page.  By the end of the show, the two girls where chatting and joking
+like two old school friends.  The only draw back, apart from the fact
+that Simon had not shown his face, was that her feet were killing her. 
+However, Alison put on her bravest face, linked her arm with Bobbies and
+strode off towards the night club.
+
+The club was everything that one would expect from a town centre establishment. 
+Although the girls had no trouble getting in, the men were definitely not
+wearing what the bouncers considered suitable club attire.  However,
+after much discussion and the fact that the company had pre-booked tables,
+allowed the workforce to continue their outing.
+
+The advantage of being young, pretty, female and clad from head to toe
+in rubber ensured that neither girl was short for a drink, or company. 
+However, the girls managed to play their admirers without actually having
+to leave with any of them, which was a welcome change.  It was, Alison
+considered, like watching a wrestling match.  As soon as one of them
+was getting in to trouble, the other would leap in and distract the other
+enough to ensure that they were not cornered, although the butt pinching
+and slapping was more than would normally be expected if they had been
+wearing ordinary club clothes.
+
+By the end of the evening, both girls were shattered.  Alison collapsed
+in to a booth seat while Bobby went to get drinks.  Alison scanned
+the crowd, admiring the fact that, despite the length of the evening, some
+of her colleagues were still going strong.  She was even quite impressed
+by some of the men.  Perkins, from brought ledger had really made
+an effort to look the part and she was amazed that, not only had he worn
+five inch stilettos, but was also quite graceful in them.
+
+At the bar, Bobby took the two drinks and in a nimble feet of misdirection
+that would have put a stage magician to shame, uncorked a small vile and
+poured clear liquid in to one of the drinks, before returning the bottle
+to her bag and carrying the drinks over to the booth.
+
+Alison sipped her drink as she chatted to Bobby.  It really has
+been a long night, she reflected as the first tell tale signs of having
+too much alcohol started to rear its ugly, swaying head and she suggested
+that it was time to look for a taxi.  Five minutes later, the two
+girls were standing in line for the next taxi.  Alison was beginning
+to feel slightly woozy and had to lean on Bobby for support.  When
+she started to slur her words Bobby advised her that she did not look so
+well.
+
+“Look, I can’t let you go like this, you don’t look so good.  You
+can stay at my place tonight O.K.”
+
+Alison was too disorientated to argue and allowed herself to be bundled
+in to the taxi.  She did not catch the address that Bobby gave to
+the driver.  She did not feel herself lean in to the other girl as
+she collapsed against the other girl.  She might have felt the other
+girl run her hands over her legs and fondle her breasts and only had a
+vague idea that she might have been kissed.
+
+**The River of Nights Dreaming**
+
+Eventually the taxi stopped and, with Bobbies help, Alison managed to
+tumble out of the taxi.  She did not take in her surroundings, other
+that to register that she was headed towards a large house.  She leaned
+drunkenly against the other girl as she fumbled for her keys and was carried
+over the threshold in to a large, entry hall.
+
+“Your late dear,” a voice echoed from another part of the house.
+
+“Yes, sorry.  I should have called mother, but you know how it
+is.
+
+An older woman, who could have been a Victorian governess by her severe
+choice of clothes and with her hair in such a tight bun swayed in to Alisons
+view.
+
+“This is Alison.  I said that she could stay the night.  Is
+that O.K. mother?”
+
+Alison was aware of the older womans scrutiny, but only in a general,
+room spinning sense.  She was having enough trouble staying upright,
+let alone indulging in introductions.
+
+“Very well, I shall prepare a room.”
+
+Alison lost track of time.  It was as thought she were skipping
+through highlights, like forwarding to the next scene on a film on a CD. 
+She was aware of being carried up stairs and of a bedroom and of falling
+on to a bed.  But that was all before she passed out completely.
+
+Alison had a fitful sleep that night.  Perhaps it was the alcohol,
+or the Rocky Horror, or she did not know.  But the dreams were quite
+perverted.  She did not usually remember her dreams.  Especially
+the X rated ones.  Those that she could remember tended towards Brad
+Pitt.  For some reason however, tonights dreams were different.
+
+It was dark and she was aware of other people near by.  She craned
+her neck to look at them, but she could only make out vague shadows. 
+She was lying on a bed and wearing a strange, old fashioned, linen night
+gown, with lace collars and cuffs and covered her from neck to ankles. 
+She had never worn anything like this in a dream before.  She tried
+to ask who was there, but the sound that left her mouth sounded like a
+groan, or a grunt.  She tried to sit up, but a hand moved out of the
+darkness and pushed, gently, but firmly on her chest until she was lying
+flat on the bed again.
+
+Bobbies face swam in to view.  It looked over her and spoke to
+someone on the other side of the bed.  She could not make out the
+words.  They were just on the edge of comprehension, but their meaning
+slipped past her comprehension and she stared bewildered at the girl looming
+above her.  Movement to her left caught her eye and she turned her
+head slowly to see what was happening.  But her vision faded and darkness
+descended around her like a familiar cloak.
+
+Awareness came again in patches.  Slow moving images of filtered
+through her understanding, like watching a slow motion picture.  She
+was naked on the bed, her legs were spread wide.  A strange sensation
+between her legs made was making her incredibly horny.  Lazily she
+lifted her head to look down.  Bobby had her face nuzzled between
+her thighs.  The naked girl looked up from her ministrations and smiled
+at her before plunging her face back in to Alisons sex.  Alison tried
+to protest, but the same muffled grunt came out.
+
+The older woman, dressed in her underwear, was sliding off her knickers
+as she gazed down at Alison from the side of the bed.  She wore an
+old fashioned corset and a petticoat that she hiked up around her waist
+to remove her undergarment, revealing black silk stockings held up by frilly
+garters.  The woman slid on to the bed, kneeling next to the girls
+head.  Alison tried to push the woman away, but it was as though all
+of her strength had left her and she was moving through treacle. 
+Her arm was easily brushed aside as the woman eased her leg above her. 
+Alison gazed up at the woman who had pinned her to the bed and the look
+of lust that she wore sent a cold chill down Alisons spine.  The woman
+sat up, moving her naked pussy towards Alisons face.  The older woman
+had been holding her petty coat around her waist, in order to mount her
+prey.  As the wet, musky scent engulfed her lips and nostrils, the
+garment descended, like a slowly falling leaf, forming a tent around Alisons
+head and imprisoning her in a cage of white cotton and the womans wet thighs. 
+Alison tried to scream, but her protest was feeble and easily silenced.
+
+Her pussy was still being licked and teased by Bobby as she felt the
+girls hands slide up her body towards her breasts, as the older woman rocked
+above her, forcing her dripping sex deeper and deeper in to Alisons mouth.
+
+Alison had never entertained ideas about other women, she was definitely
+a one man woman.  O.K. so the one man was proving elusive at the moment,
+but she knew, in her heart, that she was straight. She was therefore shocked
+by her bodies reaction as she felt the familiar sensations of an orgasm
+building.  Almost against her will, her hips started to move, pushing
+Bobbies tongue deeper and deeper in to her pussy.  At the same time,
+she pressed her lips firmly in to the pink flesh of the other womans sex
+and her tongue darted forward to lick at the rich musky bounty that filled
+her mouth.  She was nearly there, just a moment longer, just a little
+longer.  The long stream of musky, liquid that filled her mouth sent
+her over the edge.  As the first spray of piss filled her open mouth,
+she tried to spit it out, past the pink softness of the other woman, but
+her orgasm hit her in a mammoth, incomprehensible wave and, almost by reflex,
+she swallowed and swallowed and swallowed as her body writhed on the bed
+in ecstasy.
+
+Alison woke in an unfamiliar bedroom.  Daylight filtered through
+pale curtains.  She scanned the room, but a sharp pain in her head
+reminded her of the excesses of drink and she took in her surroundings
+in a more controlled manner as she gingerly eased herself up on to one
+elbow.
+
+The furniture and wallpaper were not just old fashioned, but antique. 
+A dark floral wallpaper coated the walls until they met a moulded dado
+rail.  While paint above the rail matched the white plaster of the
+ceiling, which was dominated by an impressive moulding that acted as a
+focus for a small crystal and brass chandelier.
+
+The floor was bare.  The boards painted black, whose dominance
+was broken by a richly coloured floral rug.  The bed itself was a
+very sturdy looking brass headboard and footer, covered in a light floral
+blanket, with white cotton under sheets.  An old fashioned, wooden
+mirror hung from the dado rail by tow brass chains.  The gold and
+white frame would have been more at home around a painting, but matched
+the wardrobe, dressing table and chest of draws, that were painted white,
+with gold moulding raised around the edges of the turn of the century furniture.
+
+Gently, her pace governed by her aching head she swung her legs over
+the bed and was surprised to find that she was dressed in an old fashioned
+white night gown, with long sleeves.  Half remembered images flashed
+before her eyes, but were quickly lost in the fog of her hang over so that,
+like most dreams the memory slipped from her grasp as she struggled to
+hold on to it.
+
+A glass pitcher of water, on the bedside table reminded her of how thirsty
+she was and she quickly filled a glass and gulped it down her parched throat. 
+A knock at the door caused her to move her head too suddenly and caused
+wracking pain to writhe through her head.
+
+“Yes?”
+
+“It’s Bobby.  It’s eleven O’clock.  I thought I would see
+if you would like something to eat.  May I come in?”
+
+Alison struggled to remember the previous night.  But, with a flash
+of inspiration she remembered the girl that she had met at the Rocky Horror
+show.
+
+“Yes.  O.K.”
+
+Bobby entered carrying a tray that held orange juice, a pot of tea and
+some toast, which she placed on the bedside table next to the water jug.
+
+“Are you all right, you don’t look well?”
+
+“Just a little hung over that’s all.”
+
+Alison studied the other girl, who was shorter and slimmer than her
+as she sat on the bed next to her.  She looked about eighteen or nineteen
+with long dark hair that was held in a pony tail.  She was pretty,
+and had what could only be described as a cherubic face, which beamed cheerfully
+at her.
+
+“Well the orange juice might help with that,” Bobby cheerfully replied
+as her hand reached over to Alisons forehead.
+
+Bobby laid her palm across the top of Alisons head and then quickly
+down to her cheeks.
+
+“I thought you looked a bit flushed.  You have a temperature. 
+You might have caught a chill last night.  How do you feel?”
+
+Alison considered the question before answering.
+
+“Groggy.  I have a head ache and my muscles are sore.  I’m
+just a little hung over that’s all.”
+
+“See how you get on with breakfast.  I’ll get you something for
+the temperature just in case.”
+
+With that the girl got up from the bed and skipped towards the door. 
+Left alone, Alison propped the pillows up against the head board and eased
+herself back in to bed before reaching for the tray of food.  Although
+she tried, she was not very hungry and only managed a few bites of toast
+before settling for the orange juice.  She knew, from past experience,
+that the worst thing you can drink the morning after is tea, or coffee. 
+Satisfied, she laid the tray back on the cabinet, slid herself over the
+side of the bed and tried to stand.  A wave of dizziness engulfed
+her and her legs gave way dumping her back on to the bed.  She shut
+her eyes as the room span around her and she struggled to come to overcome
+the wave of nausea that assailed her.
+
+She heard her door open and footsteps running in to the room.
+
+“Are you all right?  What happened?”
+
+“I don’t know.  I just came over all dizzy and had to lie down.”
+
+The other girl eased Alison in to a sitting position before offering
+her a glass of creamy liquid.
+
+“Here drink this, it should help,” the girl said placing the glass to
+Alisons lips.
+
+She drank and then eased herself back in to bed.  She must have
+dozed off because when she opened her eyes again an older woman was sitting
+in a chair next to her bed.
+
+“Hello dear, I am Amanda Morrison, Bobbies mother.  You have been
+asleep all afternoon.  I fear that you are not well.  I think
+it’s best if you remain with us for another day until you are recovered. 
+In the mean time I will ask Bobby to make you some soup.”
+
+Alison did not remember meeting the other woman, but was struck by her
+old fashioned clothes.  The woman complemented the room in her sense
+of dress.  A long, floor length skirt was and white blouse emphasised
+the older womans cleavage and narrow waist, which suggested a rigid corsetry
+underneath the frilly high collard garment.  Amanda wore her hair
+in a tight bun on top of her head and the only jewellery that she wore
+was an antique cameo around her throat.
+
+After about five minutes of chatting the woman left.  Bobby returned
+a quarter of an hour later with a bowl of soup and another glass of the
+creamy liquid.  Bobby ate sparingly before drinking the medicine,
+an old family recipe Bobby informed her, before drifting off in to a troubled
+sleep.
+
+While Alison slept, Bobby walked to the train station.  Once there
+she made use of the rest rooms, stripping off her sensible garments for
+those that she wore underneath.  Although Alison was taller than the
+smaller Bobby, Rubber is a forgiving medium and Bobby could was used to
+adjusting corsetry.  The woman who stepped out of the cubicle wearing
+a wig, similar to Alisons hair, dark glasses and who carried a duffle bag,
+would not be remembered for her facial features.  People would remember
+her for her bright glossy rain coat and unusual rubber clothes.  The
+Taxi driver who drove her to Alisons flat would remember the hair, the
+clothes and the cleavage.  If shown a picture of Alison, he would
+state that he was fairly certain that was the woman who had been in his
+cab.
+
+The woman, who could have been Alisons sister walked in to the other
+womans apartment, opened the mail and tidied.  Once this was done,
+she carefully polished the rubber clothes, removed them and dressed in
+her own, careful not to touch anything until she had dressed in her own
+outfit and placed gloves on her hands.  She then polished inside the
+garment, careful to remove any finger print, or DNA, before hanging the
+garments in the wardrobe.
+
+Having locked up, still wearing the wig and glasses, she walked in to
+the town centre, using the public toilets to loose the wig and glasses,
+before reversing her coat.  A woman who looked like Alison may have
+stepped in to the toilets, but it was Bobby who stepped out and of them
+and caught the bus home.
+
+Alison dreamed that she was in bed and was being kissed.  Her arms
+were above her and for some reason that she could not fathom, she could
+not lower them.  She tried to open her eyes, but found only impenetrable
+blackness.  She tried to look around, but the woman, yes it was definitely
+a woman, who held her and groped her breasts had a firm grip on her jaw
+and continued to force her tongue in to her mouth.
+
+Suddenly she felt another pair of hands on her buttocks, lifting her
+ass off the bed and wrapping Alisons legs over her shoulders.  Alison
+was confused and feebly tried to struggle as she felt something probing
+her soft wet sex.  How had she become so wet?  The hands gripped
+her tightly and forced something long and firm inside of her, eliciting
+a groan from the prone girl.  The other person, Alison noted from
+the feel on her legs, had tits and was definitely female.  How therefore,
+could she have a dick?  These questions blurred and were eventually
+forgotten as Alisons orgasm built and eventually rocked her body in violent
+spasms.
+
+Alison drifted.  Aware of hands on her body and then sleep. 
+She thought she heard voices, but could not be sure.
+
+“She woke up.”
+
+“I told you she might.  I had to lessen the dosage this time, or
+risk her becoming addicted.  Tomorrow I will give her even less dear.”
+
+“But won’t she realise what is happening?”
+
+“Possibly, but by then it will be too late.  She is ours now already,
+she just doesn’t realise it yet.”
+
+Alison woke with a sore head and her limbs ached, as though she had
+been exercising.  Perhaps this was more than a simple hangover after
+all.  She remembered snippets of a disturbing dream, but like all
+dreams, when you try to remember them they disappear.  Her head was
+still a little dizzy.  But never the less, she eased herself out of
+bed and stretched her legs.  She was definitely feeling a little better,
+but was having trouble concentrating, as though her thoughts were clogged
+with cotton wool.  A knock at the door made her spin and she would
+have fallen, but she managed to grab the bed post in time.
+
+“Come in,” she answered in a slightly shaky voice.
+
+“Good you’re awake.  How are you feeling dear?” Amanda enquired.
+
+She was, Alison noted, still dressed in very old fashioned clothes,
+she noted for a second, although how old fashioned, or where the idea had
+come from, she could not decide.  Although, from her demeanour, the
+woman looked strict and regimented, there was genuine concern in her face
+and the tone of her voice.
+
+“A little better thank you, although I am still a little shaky”.
+
+“No, you still do not look well, but I am glad to hear that you are
+improved.  You may stay with us until you are fully recovered. 
+Perhaps a little time in the garden would prove beneficial?”
+
+“Erh, yes.  Thank you.  That would be lovely.  How long
+have I been here?  I mean, you would tell me what day it is,” Alison
+enquired.
+
+“It is Monday morning.  You have been here since Saturday.”
+
+Alison was gripped by panic.
+
+“But I have to go to work.  I mean.  What time is it?”
+
+The older woman appeared to consider for a few moments.
+
+“It is a little after nine, but if you do not mind me saying so, I do
+not think you are well enough for that yet.  However, you may use
+our telephone if that will comfort you.”
+
+“Thank you, yes.  If it is not too much trouble.”
+
+Wrapping a night gown around her, Alison followed as Amanda led her
+to the telephone.  An old fashioned, circular dialled antique made
+from Bakerlight.  However, despite its age, she found little difficulty
+in getting through and leaving a message for her manager that she would
+not be in today.
+
+After breakfast and more of the Amandas special medication, which had
+altered in consistency from milky, to merely cloudy, Amanda suggested that
+she might like to get dressed and join her in the garden.  She apologised
+for that fact that Bobby had left for work already, but was certain the
+two girls would see each other tonight.
+
+“Unfortunately, Roberta has not inherited my stature.  I fear that
+you might not fit in to her clothes, you are welcome to borrow some of
+mine though dear.”
+
+“That’s very kind of you, but what happened to the clothes I was wearing
+on Saturday.”
+
+“While I am sure that they are all the rage in the clubs in these modern
+times, I hardly think they are appropriate wear for daytime pursuits. 
+Besides, they were in a bit of a state and I have asked Roberta to drop
+them off at a cleaners.  They should be ready soon, but that still
+leaves the question of what you are to wear today, doesn’t it dear?”
+
+With that, the older woman  led Alison to her bedroom and picked
+out some clothes for her to wear.  Laying an old fashioned and very
+severe looking corset on the bed, Amanda explained:
+
+“You may think me old fashioned, but I believe a woman should look after
+her figure.  You will need to wear this if you are to fit in to any
+of my clothes.”
+
+Alison was still feeling a little vague and, while the clothes seemed
+old fashioned, as Amanda piled garments on to the bed, she could not think
+of any reason why she should not wear them and so after washing and brushing
+her hair, allowed Amanda to help her into the clothes.  At Amandas
+insistence, Alisons hair was swept up, above her so that it formed a halo
+of hair, before being pinned in place by an elaborate, tortoise shell comb.
+
+First Alison pulled on a pair of white, silk stocking, which were tied
+at the top with blue ribbon.  Over this she pulled on a pair of white
+silk, knee length bloomers that were open at the crotch and were threaded
+with pale blue ribbon that she tied around her waist.  A similar detail
+was sewn into the legs of the garment.  After this a long Camisole
+was pulled over her head.  Like the bloomers, these were in white
+silk, with lace and pale blue ribbons around the hem.
+
+After this, Alison stepped into a pair of stout, three inch, black ankle
+boots, before being handed the corset by Amanda.  Alison had no idea
+where to begin, but with the older womans help, she was soon grabbing frantically
+on to the bed frame as Amanda pulled the laces tightly about her.
+
+The corset was, as Alison had noted, very strict and heavily boned. 
+Although it was made of a lavender material with pale blue and white details,
+it was, as far as she was concerned, an implement of medieval torture. 
+Not only did it pinch her waist, but because its length, formed a girdle
+that encased her bottom and legs.  However, Alison had to admit that
+the effect was dramatic, even though she now had to take shallow breaths. 
+She now sported a diminutive hour glass figure and her bum had never looked
+so trim.  The best part however, was the effect that the garment had
+on her bust.  Although she had noticed an improvement in her assets
+on Saturday night, that was nothing compared to the cleavage that she now
+sported.
+
+Then the woman placed a strange contraption around her waist that was
+sort of like a wire bum bag.  She had no idea what this was for, however
+she allowed the woman to adjust the thing properly before a long, sleeveless
+gown of white cotton, was pulled over her head.  Amanda adjusted the
+gown so that it fell perfectly around her feet.  Like the other items
+that she wore, this garment was trimmed with tiny bows of blue silk and
+edged with lace.  Next she was made to step into an ankle length petticoat. 
+The garment seemed to have been cut with the weird basket in mind, since,
+like the cotton gown, it hung perfectly.  After tying the waist string
+of the petticoat she was handed a white silk blouse, which she put on. 
+The blouse was accompanied by a pale blue cameo, which was clipped to the
+high collar.  Finally a black, ankle length skirt finished the outfit
+and, as the older woman proclaimed, she was nearly fit to be seen in decent
+company.  The final item was a wide brimmed, black sun hat.
+
+“A womans complexion must be nursed if it is to remain radiant,” Amanda
+enthused.
+
+Alison studied herself in the mirror.
+
+“I look like Mary Poppins,” she mused.
+
+She was still having trouble concentrating and was therefore puzzled
+by this statement.  However, it did not seem important and she brushed
+the thought aside.
+
+Finally the two women returned downstairs and, after Amanda had made
+tea and arranged an assortment of biscuits and cakes on to a plate, the
+two women walked into the garden, Amanda carrying the tray and Alison clutching
+some books that Amanda had asked her to read to her and so, the two women
+spent a pleasurable afternoon, Alison reading aloud, while Amanda took
+in the pleasures of the garden, occasionally commenting on the occasional
+bloom.
+
+Although Alison had suspected the size of the house, it was not until
+she took in the external view that she realised just how large and secluded
+the house was.  It must, she estimated, have eight or ten bedrooms
+and the sculptured gardens were at least an acre, enclosed by a high brick
+wall, the neatly tended garden a testament to Amandas long administrations.
+
+After lunch, which included another glass of medicine, the two women
+spent a pleasurable afternoon performing household chores before Bobby
+arrived back from work.
+
+After tea, the two girls went up to Bobbies bedroom to gossip and chat
+about the day.  Mostly, they chatted about Amandas old fashioned attitude
+and Bobbies amazement that she had persuaded Alison to wear her clothes. 
+Bobby confessed that, although she had popped into the cleaners, it would
+be another day before her clothes were ready.  However, she would
+see how Alison felt tomorrow and, if she was well enough, Bobby would drive
+her home to change before work.
+
+**Come Up to The Lab**
+
+That night Alison woke early.  She was not sure what had awoken
+her, but after a few seconds she heard a noise.  The noise was indistinct
+and so Alison decided to investigate.  She was still a little groggy,
+but found she was feeling considerably better and so she slipped out of
+bed and put on her dressing gown.  Alison was afraid of waking the
+family and so, instead of turning on the main light, she took an old fashioned
+silver candle stick from beside her bed and lit with matches from a small
+tray.  In this way she could proceed without bathing the house in
+brilliant light.
+
+Tentatively she stepped out of her room and tried to listen for the
+sound.  After a few seconds, she heard it again, like a swishing sound
+and there was another noise that she couldn’t make out.  Taking as
+step towards the sound, Alison realised that she was still a little weak
+and dizzy, but proceeded none the less.
+
+The sound seemed to be coming from upstairs and so she called out for
+Bobby.  After no response, she tried Amandas name.  Still nothing,
+in fact the sounds seemed to have stopped.  She walked along the stairs
+until she came to the attic door, which was open.  She called again
+before climbing the stairs.
+
+At the top of the stairs light spilled under the closed attic door. 
+Alison called again before trying the door knob and stepping into the room. 
+She was momentarily blinded by the fierce electric bulb.  But the
+sight that greeted her was enough to stop her in her tracks.
+
+Before her Bobby was naked, apart from a pair of stockings and a waist
+cincher.  She was bent over some form of bar, or wood working horse,
+her wrists and ankles tied to the corners of the device.  Bright red
+welts ran in deep, painful looking lines across her buttocks and, as Bobby
+raised her head, she noticed that the girl was wearing a bright red ball
+gag.
+
+Alison was stunned as she took in her surroundings.  The attic,
+which ran the length of the house was huge.  This would have been
+impressive in it own right, but it was also crammed with the most bizarre
+furniture.  Padded stools, with strange bars and cuffs,  Chains
+hanging from the ceiling and walls, something that reminded Alison of a
+rack.  Overall, she was reminded of a visit she had made on a day
+trip to the London Dungeon.  She could not begin to guess the purpose
+of most of the strange contraptions that filled the space, but their purpose
+was obvious and Bobby, bound and gagged as she was, represented the application
+of that purpose.
+
+She was so entranced that she did not hear Amanda close and lock the
+door behind her.  The older womans voice echoed through the room and
+caused Alison to spin, nearly loosing her balance.
+
+The older woman was dressed in a black glossy rubber cat suit, with
+impossibly heeled boots.  She was holding a riding crop.
+
+“We were not expecting you dear, but since you are here, perhaps you
+should join us.”
+
+Alison looked from one woman to the other and was frightened by the
+level of lust in each womans gaze.
+
+**Frankfurters’ Diabolic Scheme**
+
+Alison woke gradually.  There was a sour chemical taste in her
+mouth and her muscles ached painfully.  She was definitely suffering
+from some ailment.  A flu perhaps?  Her head, while groggy however,
+did not spin when she sat up and slid off of the bed.  Taking a gulp
+of water from the glass by her bed, she staggered over to inspect herself
+in the mirror.  She looked pale and drawn, but she also noticed something
+else and she looked down to examine her wrists.
+
+The red marks on her wrist were still visible and unbidden, a memory
+surfaced of her straining against the ropes which secured her wrists to
+a hook in one of the ceiling joists.  She had been naked and standing
+on tip toe.  A sudden cracking noise had forced her to flinch, as
+pain shot through her back.  Her scream was muffled by the large ball
+gag strapped to her face.
+
+Panicked, Alison stripped off the night gown and turned to examine herself
+in the mirror.  Her back was criss crossed with long red welts that
+the whip had left in her tender flesh.  Turning around she noted the
+red lines left by the riding crop and the bruises that covered the tender
+flesh of her breasts that had been delivered by a studded leather paddle.
+
+“Yes,”  Amandas voice boomed from the door.  “You were quite
+unruly last night.  I can see that your education has been quite lax. 
+However, it is my duty to correct this shocking lapse, especially if you
+are to prove a suitable companion for my daughter.”
+
+Amandas reflection gleamed maliciously at her in the mirror and Alison
+spun to face her tormentor.
+
+“You crazy bitch, I’m leaving here now!  We will see how you like
+the inside of a police cell.”
+
+She strode towards the door confidently, but was intercepted by Bobby,
+who had been carrying a bundle of clothes, which she dropped on to the
+floor as she stepped in front of the door to block Alisons escape.
+
+“Get out of the way Bobby.  I don’t want to Arghh,” Alison screamed
+as Bobby stepped into her body and threw her to the floor.
+
+The air was knocked out of her and she sat stunned as her hands were
+pinned behind her back as she heard a clicking sound and something cold
+and metallic gripped her wrists.
+
+Alison struggled as the smaller girl pinned her to the floor and reached
+over to the pile of clothes that she had dropped.
+
+“Get off me you crazy lesbo.  Get your Arghh, Ungh,” Alison protested
+as her head was yanked back by her hair and something large and rubber
+was forced into her mouth and secured by straps that ran behind and over
+her head.
+
+“As I said.  Such shocking behaviour will not be tolerated. 
+It is my Christian duty to ensure that you can comport yourself as a proper
+lady while you are under my roof and you do want to be a proper lady don’t
+you?”  Amanda smirked.
+
+Alison tried to struggle, but it was useless and the two women easily
+lifted her onto the bed.  Bobby pinned her down while Amanda brought
+the pile of clothes over.  Selecting a pair of White rubber stocking
+from the pile, Amanda rolled these up her legs, using her legs to trap
+the other flailing limb as she pulled the tight rubber garments up her
+legs.  Once these were on, a pair of long, knee length rubber bloomers,
+with open crotch, were pulled up her legs and secured around her ass. 
+These Alison noted, as she was pulled in to a sitting position, were pale
+yellow.
+
+While Bobby held her by the shoulders as Amanda brought a pale yellow,
+heavily boned, corset from the pile of clothes.  This was secured
+around the frightened girls waist before she was spun around and dumped,
+face first, onto the bed.  Both women set to work, positioning themselves
+so that the maximum amount of force could be brought to bear.  Alison
+had ceased her struggles and had now resolved to just get through this,
+whatever this was.  However, it soon became hard to breath as the
+two women pulled and prodded unmercifully.  Eventually the task was
+complete and Amanda tied the laces into a complicated bow before attaching
+six suspenders, three on each leg, to the stockings.  Although the
+corset, like the one that she had worn before, incorporated a girdle, this
+was much tighter somehow.  The corset was also bustles.  Satisfied,
+Amanda reached for the next item.
+
+This was a mask, made of white leather.  Bobby held Alisons head
+as the mask was pulled over her head, collecting her hair into a long pony
+tail which she threaded through a hole in the top of the leather. 
+Bobby then forced her head back into the mattress as Amanda pulled the
+laces at the back of the mask, forcing the leather tightly onto her skin. 
+Thankfully, or not, Alison had not decided yet, there were eye holes that
+allowed her to peer out of her tight prison.  Although there was no
+hole for the mouth, two nose holes allowed her to breath.
+
+Satisfied, Bobby pulled the girls head up once more as another mask,
+this time made of white rubber, was pulled over her head.
+
+Finally Amanda brought a pair of strange looking, white patent leather,
+ankle boots to the bed and forced the prone girls feet in to them. 
+These were nothing like Alison had ever seen before.  They were designed
+to point the feet like ballet shoes.  Unlike their more dainty cousins,
+these incorporated stiletto heal of evil proportions.  Each boot was
+forced onto the now defeated girls feet before being tightly laced in place. 
+Finally, she was stood up and supported on each arm.  The two women
+then dragged their prize towards the attic.
+
+Alison was amazed at the transformation within the attic.  The
+two women had been busy while she slept.  Where the strange saw horse
+stood last night stood a cylindrical plinth.  Tall, full length mirrors
+curved around one side of the cylinder and a strange metal pole sprouted
+obscenely from the centre of the plinth.  On top of the pole was a
+strange, curved, saddle, with two phallic shapes protruding skyward. 
+Alison could visualise the purpose of this strange saddle and began to
+struggle.
+
+Amanda slapped her forcefully across the face, which stilled her struggles
+as the stunned girl stared in horror at the face of her captor.
+
+“The first lesson that a young lady must learn is how to conduct herself
+in public.  You should glide into a room, turning all heads with your
+grace and elegance.  This first lesson will teach you deportment. 
+You can always tell a lady of quality by her bearing.”
+
+With that the two women grabbed Alison by the arms and carried her over
+to the platform.  After lubricating the two dildos, Alison was lifted
+up before being eased gradually onto the two shafts.  Despite the
+lubrication, it was not easy to effect the penetration as the two women
+struggled under her weight.  However, after a little guidance and
+a painful experience that Alison would never forget, the girl eventually
+stood impaled in both orifices, on the platform.
+
+Alison noted that she had not been impaled all of the way down to the
+saddle.  In fact, the saddle rested a good inch below her pussy. 
+Although confused, she was not about to mention this oversight, especially
+since she was already very uncomfortable.
+
+Next the two women grabbed Alisons ankles and forced them together. 
+Alison heard a clicking sound and when her captors stood up, she found
+that she could not move her feet from their present position.  Looking
+over her shoulder, at the mirrors, Alison could not see any chains, or
+obvious restraints.  She concluded that the boots must have been attached
+to the floor by some locking mechanism.
+
+Next, a hoped skirt was brought over and pulled over her head, giving
+her a bell shaped outline.  Once secured, another skirt, made from
+white rubber, with tiny yellow flowers around the bottom was lowered into
+place.
+
+The next item of clothing was a fine yellow dress, also made of rubber,
+with delicate white flowers and ribbons sewn into the body and skirt. 
+This was lowered over her head and place over the under skirt.  The
+body, for the moment, allowed to hang loose. Once this was in place, Bobby
+un-cuffed her, while holding on to one arm.  Alison did not have long
+to ponder the meaning of this before a long, white, rubber opera glove
+was rolled up her arm.  The two women changed places and another glove
+was applied, before her arms were forced into the long sleeved dress.
+
+Alison had not noticed before, but the front of the dress had a panel
+cut out of it, that allowed her breasts to hang out of the front. 
+While Amanda pulled the high collar of the dress up and started buttoning
+the back of the garment, Bobby adjusted the front of the dress so that
+the quarter length bra cups of the dress held her breasts proudly, while
+displaying everything they had to offer.
+
+Alison was tempted by the idea of escape, but this, given the surprising
+strength of the two women and her current position, would prove fruitless
+and so she submitted as her arms were brought painfully together behind
+her and fed into a single white leather glove, which Amanda did up painfully
+as she pulled forcefully on the laces that ran the length of her arms,
+forcing them together until the elbows touched.
+
+Lastly, a stiff rubber collar of pale yellow, was placed around her
+neck.  It ran the entire length of her neck and once secured by the
+laces at the back forced her head backwards, not allowing the slightest
+movement in any direction.  As a final touch, two painful clamps with
+weights on them, were forced onto her nipples, so that they swung slightly
+from the heaving of her chest as she breathed.
+
+“There.  All done.  Now you look like a proper young lady,”
+Amanda beamed.
+
+Walking forward, the older woman touched a button on the side of the
+plinth.  Music started and the base began to spin.  Alison was
+amazed and appalled by the implications of this simple act.  She had
+been transformed into some sort of music box doll, to be admired and god
+knows what by these two evil creatures.
+
+“As I said earlier, this lesson is about deportment.  You might
+be tempted to sit down, on to the saddle, as your feet begin to hurt. 
+However, I should warn you that this will start the dildos to begin working. 
+You might not find it as comfortable a rest as you might hope.”
+
+With that the older woman laughed and turned to her daughter. 
+The two women embraced, kissed and began to undress.  After a few
+minutes they had disappeared into a heap on the floor and as she craned
+her neck to see in the mirror as she rotated, she realised that they were
+having sex.
+
+For some reason, she found this exciting and so eased herself onto the
+saddle.  As promised, the two devices began to vibrate.  Not
+only did they vibrate, but they also started to pump, up and down, in unison. 
+It was not long before her orgasm arrived, rocking her body and sending
+sharp pain into her nipples as the weights were thrown about.  But
+as soon as she had recovered from this one, another began to build and
+Alison forgot about the pain in her nipples as desire overtook her. 
+After five orgasms, her pussy and ass were beginning to ache and so she
+lifted the weight from the saddle.  This was easier said than done,
+since the strength had left her legs, but she managed it and the two devices
+stopped pleasuring her.
+
+After nearly two hours however, her feet were in agony.  She had
+to take the weight off of her feet and so she collapsed back on the saddle. 
+The pumping was almost immediate and her pussy and ass became sore quickly. 
+By the time that the two women returned, eight hours later, Alison was
+an exhausted, quivering wreck.  Her pussy and anus had been rubbed
+raw and her feet felt as though they had been crushed in a vice.
+
+The two women undressed her, fed her and oversaw her ablutions. 
+Once she had recovered sufficiently from her ordeal, she was dragged over
+to the strange saw horse that she had noticed the previous evening. 
+It now occupied a less prominent corner of the room, but was still effective
+for what was planned for the evening.
+
+For the next two hours Alison was subjected to all manner of perversions
+that she could not have possibly imagined.  She was dressed, stripped
+and re-dressed.  Bound, untied and re-tied.  In order to “Keep
+Things Interesting,” as Amanda quoted on several occasions, she was beaten,
+whipped, sodomized and subject to the most appalling treatment that the
+two women could devise.  Finally, she was strapped onto a hard bed,
+where they left her for the evening, her limbs flung out to the corners
+of the bed, secured by stout leather cuffs, a blindfold over her eyes,
+a large ball gag in to her mouth and  completely naked.
+
+Her pussy and ass still ached.  Her feet were only just recovering
+and her nipples felt as though they had been cut off and sewn back on with
+razor wire.  Alison did not know what awaited tomorrow, but she had
+the feeling that it would not be pleasant.  She imagined the long,
+uncertain future with these two psychotic harpies and she cried, her sobs
+muffled by the intruder in her mouth.  She was now their play thing,
+their toy and they could do whatever they wanted to her.  At last
+sleep mercifully claimed her.
+
+End

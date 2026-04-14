@@ -1,0 +1,213 @@
+---
+original_url: https://www.mummified.net/storiessz/training_sub.html
+subcategory: Mummified
+title: Training My Sub
+authors:
+- Jenny
+tags:
+- F/f
+- D/s
+- wrap
+- bandages
+- board
+- firsttime
+- cons
+- X
+---
+
+The story below is what every one wants who is into mummification.
+A personal helper who is willing to be trained to the standard required
+and beyond, so what ever your whim she will obey
+
+**Part One**
+
+I had always been into mummification so when my partner went away on
+business for sometimes a week or more I would resort to self bondage. Well
+it worked quite well for me to a point; I had several adventures from time
+to time by nearly being discovered by window cleaners and various tradesmen
+who called unexpectedly. But the real love of my life was Mummification
+either reading about it or being mummified myself and it is not the sort
+of thing you can advertise for in the British press,
+
+**Wanted**
+**Person to mummify a**
+**Lonely Mummy**
+**Apply with all possible**
+**Haste.**
+
+I am sure I would probably have a little van with men in white coats
+knocking at the door before the first edition hit the streets. So when
+my neighbour’s daughter Jean called round one day and showed an interest
+in my collection of books on Egypt and the Egyptians I was overjoyed. She
+was a little young, she had just turned sixteen and after her next birthday
+she informed me she would be leaving for college. She asked if she could
+borrow one of my books and would return it by the weekend. “No problem”,
+I said as at the back of my mind I had visions of converting or educating
+her to the delights of BDSM.
+
+Sure enough on Saturday Jean called around to return the book, we sat
+there chatting about the subject for over an hour, then looking a little
+coy she picked up the book she had borrowed, opening the back cover she
+produced a sheet of paper.
+
+"I found this story inside the back cover. I hope you do not mind that
+I have read it, it is a great story and I found it a bit of a turn on sexually".
+
+I was a little taken back at her openness but it saved me having to
+introduce the subject. I took the piece of paper from her, it was a story
+I had downloaded off Gromet’s site called   "Buried!"  
+I did not know it was in the book but it had served a purpose, she then
+went on about mummification and being entombed and got quite excited the
+more she discussed the subject.
+
+I then said,  “I had a collection of similar stories and if she
+would like to borrow them and she was welcome”. She was overjoyed with
+her new collection of reading matter; she thanked me and then disappeared
+back home.
+
+In my mind I was now convinced she would like to be introduced to the
+subject of being mummified. I think it was about Tuesday when Jean called
+round to return my stories. We sat down over a cup of tea discussing the
+various stories and then she said, " I think I would like to be mummified
+just to see what it was like!"
+
+Well the door had been opened, I realized she was young but I thought
+she was old enough to know her own mind and what she was getting herself
+into. I asked her to follow me upstairs as I had something that I think
+would interest her, sure enough she followed me up to our spare room were
+we kept all our gear, in the centre of the room was two trestles with my
+body board on top. Jean looked wide-eyed at the board and I explained I
+was into mummification, that I enjoyed being mummified as a form of relaxation.
+
+She walked around the board, it was made to fit me perfectly and as
+Jean was about the same height as me but a bit fuller in the body I suggested
+she lie on it to try it for size. She thought for a moment then climbed
+up and lay down, I explained how I am bound and secured to the board and
+then I suggested she allowed me to bind her to the board to get the feel
+of things. At that she bounced off the board   "I must go, I
+promised my mother I would not be long. Sorry!! I will come back again".
+At that she was gone.
+
+A couple of days had passed I had convinced myself that I had frightened
+her off; perhaps I had rushed things. Then the doorbell rang, I was a little
+more than pleased when opening the door, in bounded Jean.  "Sorry
+I had to dash the other night but if you have a few minutes I would like
+to try your body board again!"
+
+Hardly had I said  "No problem", when
+she bounded up the stairs, she was dressed in a chunky sweater and pleated
+skirt, as soon as she reached the room she started to climb on to the board.
+I called to her, "It would be better if you removed your top and skirt!"
+She hesitated for a moment then took off the chunky top, I was amazed just
+how well developed she was compared to me, for a young girl, her boobs
+were really well developed, she then removed the skirt.
+
+Instantly bounding on to the board, she lay there in just her bra and
+pants with her hands folded over her tummy, I told her I would secure her
+the same as I usually was when I am being mummified, she agreed on condition
+that if she asked me to stop I will. I agreed and told her there was no
+problem we were both here to enjoy ourselves. At that I bound her feet
+together and then placed a piece of rubber foam between her legs to stop
+the skin touching, I then bound her ankles to the board. I placed a foam
+pad under her knees then bound above and below her knees, then bandaging
+above her pelvic bone. Next I placed her hands by her sides, I had never
+realized what a turn on it was to secure someone in such a manner! Even
+through Jean was chatting away mostly due to nerves; I was getting very
+sexually aroused. I continued up the body above and below her ample breasts,
+and then placing padding under the neck I lightly but firmly bound her
+neck to the board then finally across her forehead.
+
+At this point she told me not to cover her eyes, I then loosely bound
+her in light bandages from head to toe leaving her eyes, nose and mouth
+free. Her boobs stood up well with very little sag. I now realized how
+my partner gets his kicks binding me to the board and mummifying me. After
+about ten minutes I undid her, she stood there in her bra and knickers
+looking a little guilty and said, "You won’t tell my mother anything we
+have done together?”
+
+I knew she was now hooked and replied I would not dream of telling her
+mother as long as she promised to come back again.  She looked at
+me and smiled, “I think you will have trouble keeping me away after that
+episode!” I asked her if she would like to come over Saturday night and
+stay till Sunday morning, she could tell her mum she was keeping me company
+as Len was away.
+
+On Saturday Jean turned up all keen to be mummified again, just before
+starting I told her I wanted her to do it in the nude, as it is more effective.
+She did not seem to mind and began striping off her clothing and lay her
+naked body on the board. I fitted a rubber mouthpiece and taped it in place
+and then started binding her to the board as we had on the previous evening.
+Once I had her completely secured I placed two cloth patches, one over
+each eye and taped them securely in place. She was mumbling behind the
+rubber mouth piece, I think she was protesting but now I was in charge
+and I have always maintained once you take your clothes of in front of
+someone and allow them to tie or bind you up you cease to be a person,
+you become a product to be dealt with as the Dom thinks fit.
+
+I then fitted earplugs into her ears and bound her whole head with bandages
+completely. Wow!!! What a turn on! I had this young girl bound the board
+unable to move a muscle and completely at my mercy, it really was a turn
+on. She tried to mumble through the mouthpiece, I took no notice I just
+sat back and looked at my new plaything. After a while she stopped mumbling
+and became still, the only movement was her breathing as her chest rose
+and fell. I switched the light out and closed the door behind me and went
+to bed. Next morning I entered the room, there she was all mine, just looking
+at her I realized just how vulnerable a mummified person is, there was
+nothing I could not do to her. But I had plans for her and her beautiful
+body in the coming months.
+
+I undid the bandages slowly and very gently leaving the head covered,
+she was still secured to the board and her breathing had not altered at
+all so I assumed she was still asleep. As I cupped my hands around her
+firm breast and kissed the nipple I could feel her heart gently beating
+at a steady fifty eight beats a minute. I slid my hands over her tummy
+feeling her I now knew she was all mine. I removed the eye patches and
+found out she was still asleep, I started to peel back the tape from the
+mouthpiece and just as I eased the rubber from her mouth she woke. I asked
+if she was all right, she said yes but would like a drink.  I kissed
+her on her lips then I undid the rest of the binding and helped her off
+the board, holding her up to steady her she commented she had dozed off
+but had no idea she had been bound all night!  I congratulated her
+on becoming my personal mummy.
+
+From that day on there was no turning back, I decided I was going to
+train her as my personal sub, she had a good, well proportioned body that
+was soon being used to its full potential.  I started teaching her
+the art of fisting I must admit she was extremely tight to start with but
+eventually she loosened up and was a pleasure to work on. When I had taught
+her the pleasures that fisting could produce then it was her turn to return
+the favour and become a good sub.
+
+It was about two months since we’d started, she would now do anything
+I asked. I was now slowly introducing punishments, if she did not please
+me I had a small cage that had been used on me in days gone by that measured
+36 inches long, 24 inches wide and 16 inches high. I would make her kneel
+inside the cage, then lay her body on her knees and then close the lid
+locking her in, sometimes I would make her get into the cage outside and
+turn the hose on her, which was a real punishment in the cool of winter.
+At other times as she was a shy person, I would make her strip off and
+sit in the car, she was allowed a long coat in case we were stopped by
+the police but most of the time I ordered her to remove it, her face was
+a picture when we were in traffic or at the lights staring straight ahead
+not daring to look at the male in the car next to us who could not believe
+his eyes and thought it was his birthday.
+
+Jean by now was what I had hoped for, she enjoyed women to women sex,
+at least she would not end up pregnant with me, and on the whole we were
+very gentle and loved each other. She could and did mummify me or me her,
+I was now giving her stories involving sado masochism to read as she now
+was ready for part two. As I have always maintained a person who strips
+off in front of another person and does not lay down conditions then becomes
+a product to be dealt with as the Dom thinks fit and in Jean's place it
+is too late to lay down any conditions, the only conditions laid down would
+be mine, there was a long road in front of Jean but she learnt quickly.
+I was sure as she learned to endure pain and torment part two would become
+even more of a pleasure. As she now realized she was all mine and I could
+do what I wanted with her when I wanted.
+
+---------------------------
+
+In part two I will explain the pleasures of pain and how Jean embraced
+the pleasures of serving me.
+
+14/04/01

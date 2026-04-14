@@ -1,0 +1,175 @@
+---
+original_url: https://www.packagedstories.net/storieslr/package_deal.html
+subcategory: Packaged/Encasement
+title: Package Deal
+authors:
+- The Sweet Count
+tags:
+- Solo-F
+- office
+- computer
+- discovery
+- warehouse
+- escorts
+- naked
+- crate
+- foam
+- Machine/f
+- bond
+- hood
+- toys
+- packaged
+- cons
+- X
+date: 2004-03-01 00:00:00
+---
+
+“mmmmphh….mmmpphhh  MMmmmmPHHH!!”  Muffled grunts were all
+that came out as Carolyn feebly tried kicking at the lid of the crate that
+held her snugly in its confines.  Even if her legs had not been buckled
+into the leather straps, the foam rubber which lined the inside of the
+box wrapped so tightly around her naked form that she would not of been
+able to get much leverage. Not that she would have much chance of breaking
+free she thought as she remembered the thick steel bands which braced the
+lid of the crate and the sturdy latches which sealed it shut.  As
+she tried one more kick she heard a muffled CLICK and realized that Greg
+had locked her in.  Now there was no escape until she got back to
+the warehouse.
+
+\* \* \*
+
+Carolyn had been working Saturday to try and finish entering all the
+old invoices into the new computer system.  “MWR ?  PLD? 
+What do these invoice codes even mean?” she thought.  Six months working
+at Aman-A and she still had no idea what was in all those trucks that came
+in and out of the Aman-A warehouse.  And why did almost every invoice
+have a special line for “PET Services”?
+
+Standing up, Carolyn lifted her arms over her head and stretched to
+work out the kinks from sitting so long.  Smoothing her starched white
+blouse she continued down her body, straightening her black pencil skirt
+and adjusting the black stockings which had become twisted as she worked. 
+Suddenly she noticed that Wendy, her supervisor, had left her office door
+open.  “Score!” she thought.  Entering the invoices would go
+a lot faster on Wendy’s workstation than on her old clunker.  Scooping
+up the remaining invoices she slipped into Wendy’s office and sat down
+at the desk.  Wiggling Wendy’s mouse, Carolyn caught her breath as
+the monitor lit up.
+
+There on the screen was what Wendy had been working on.  “Aman
+of America Catalogue Of Services”.  Carolyn was stunned.  Page
+after page of beautiful young women, some in lingerie, some completely
+naked. 
+Beneath each picture was a code number allowing a customer to order his
+preferred… escort. Clicking on the services button, she found a glossary
+of the codes she’d encountered on the invoice sheets. “MWR – Massage With
+Release, PLD – Personal Lap Dance.  EWT – Escort With Toys…”
+
+“Aman is… an escort service!” she realized.  Carolyn was shocked,
+then strangely excited as she clicked through page after page of women
+that offered their services through Aman.  Secretly, Carolyn had always
+had a fantasy of what it would be like to be an escort, a dirty fantasy
+of being an object of desire, a man’s plaything.  Clicking more pages,
+she found a heading for PET – Packaged Escort Transport.  “That’s
+how they do it.  All those packages going out of the warehouse every
+day”.
+
+Checking out more links she found herself on the “Order Online” page.
+Mischievously she began filling it out.  Coming to the “Shipping Address”
+section, she quickly put down Greg’s address.  When Greg had joined
+her swing dance club she’d been taken immediately by his soft brown curls
+and deep green eyes.  So far they’d only flirted a bit in class but
+Carolyn hoped it could become something more.  When the instructor
+had asked for  help setting up a mailing list, Carolyn volunteered
+immediately and made a careful note of Greg’s address.
+
+Giggling to herself, Carolyn continued filling out the mock order. 
+“Let’s see, I guess Would Greg enjoy massage with release?  Personal
+Lap Dance? How about EWT?”.  Coming to the bottom of the form the
+last entry was for “Escort choice”.  Not wanting Greg to know she
+thought she would be his perfect choice, she clicked the box next to “Anonymous”.
+Laughing to herself, Carolyn was very careful not to hit the <Confirm
+Order> button.
+
+Reaching the bottom of the screen, she noticed a post-it note that Wendy
+had left stuck to her monitor: “New Warehouse code: 5412\*”.  A chance
+to see inside the warehouse!  No one else around on a Saturday, this
+was too good to pass up.
+
+Five minutes later, Carolyn found herself at the warehouse door. 
+Taking a deep breath in, she tapped in 5-4-1-2-\* and the door clicked open. 
+Before her stood row after row of sleek white crates. The crates seemed
+to be made of a smooth plastic material, with bands of metal around the
+edges to reinforce them.  Wandering over to the nearest crate, she
+saw a small window in the lid and through it, the face of a beautiful sleeping
+blonde woman, tightly packed into pink foam rubber which surrounded her
+body.  Checking out more crates she saw that each held a different
+escort, each encased in brightly coloured foam.
+
+Moving further into the warehouse, she came across some open crates
+gathered by a large conveyor belt.  Seeing the others packed tightly
+in their cocoons had surprised Carolyn by how much it excited her. 
+The area she found herself in now was secluded from the rest of the Warehouse. 
+She saw a sign on the wall:
+
+Notes For PET transportees:
+1. Once you are packaged we cannot guarantee when pick up and delivery
+will occur.  Plan to be in your box anywhere from 12-24 hours.
+2. Early box designs broke down in bad weather.  The new polymer
+crates are weather resistant but as a side effect quite impossible for
+you to open from inside.
+3. The foam lining is designed to protect you from bumping and stiffness
+during transit.  You’ll find the most comfortable way to ride in the
+foam is to remove your clothing (our clients appreciate this extra service
+as well)
+4. Your client is provided with the combination which opens the lock
+on your crate.  After you have finished with the client, they will
+repackage you back in the box and lock it up once more.  Once the
+lock has been closed a second time, the combination will be reset and can
+only be opened here at the warehouse.  This is for your protection.
+
+Checking her watch she saw that she still had lots of time to finish
+the data entry.  It was only quarter to 3.  There might not be
+a chance like this again.  She didn’t know why, but she knew she had
+to feel what it was like to climb in one of these boxes.   Slipping
+off her blouse, she stepped out of her skirt and gently rolled off her
+stockings, stacking them neatly on one of the other boxes.  Stepping
+into an empty crate she was confused for a moment about how she would fit
+into the contoured foam.  Then she remembered the others she had seen
+through the windows and lay down on her back.  Tucking her knees up
+into her chest she lay back and enjoyed the soft, warm, cozy inside of
+the box.  She could see the sides rising up on either side of her
+and way above her head, the roof of the warehouse. Softly she began to
+drift off to sleep…
+
+2:59:58…2:59:59…3:00:00.  The automated warehouse machinery kicked
+into action, preparing all the shipments that would go out tonight. 
+Sensors mounted on the boxes and conveyor belt detected a filled crate
+with no shipment orders.  The server began searching its files and
+located a partially filled order on one of the local computers.  Assuming
+this must be the missing crate, the system automatically clicked <Confirm
+Order>, printed off a shipping  way bill and began preparing the contents
+of the crate.
+
+“…EWT…installing toys…”  Leather straps sprouted from the inside
+of the box and nimbly wrapped around Carolyn’s ankles, knees, wrists, upper
+arms, and chest, automatically tightening and buckling themselves to a
+firm snugness. Small nozzles extended from the bottom of the box, spraying
+Carolyn’s ass and vagina with warm, gentle lubricant.  Twin dildos
+extended up into her before softly inflating, filling both of her openings.
+
+“…Anonymous…applying hood…” As Carolyn slowly came back awake, mechanical
+arms lowered a leather hood over her head, tucked the stuffed leather gag
+inside it into her mouth, then laced the back of the hood tightly shut
+with robotic precision.  A tiny padlock snapped into place on the
+back of the hood to ensure that the escort would remain anonymous.
+
+Carolyn was fully awake now, able to feel the pressure on her body increase
+as the crate’s lid was lowered and latched into place, firmly pressing
+the foam rubber all over her body.  A final mechanical arm stuck the
+shipping label on the crate, readying her for final shipping.
+
+\* \* \*
+
+As for what happened when the package arrived?  That’s another
+story.

@@ -1,0 +1,70 @@
+---
+original_url: https://www.mummified.net/storieslr/medic_class2.html
+subcategory: Mummified
+title: 'The Medic Class 2: The Potter''s  Wheel'
+authors:
+- Lancer175
+tags:
+- F/fm
+- tape
+- bond
+- wrap
+- encase
+- tease
+- toys
+- oral
+- mast
+- cons
+- X
+date: 2010-05-22 00:00:00
+---
+
+continued from [part one](medic_class1.html)
+
+**Part 2: The Potter's Wheel**
+
+After my first private lesson, how could I refuse to return for more personal instruction. After all, Carol and Wendy were a very competent team to teach me everything I needed for a proficient skill level in bandaging. Actually, I couldn’t wait until the next Saturday to return to Carol’s, but what did she have in mind with the invitation to enhance my personal practical skills? I was getting more excited the closer I drove to her house.
+
+Upon arrival, Carol was again the gracious hostess, and again, Wendy was nowhere in sight.  “Welcome Michael, I just know you couldn’t resist another session” Carol said with an inviting smile.  “Today, you will receive more personal practical experience.”
+
+As we entered the basement, a lovely Wendy was bound to a pole that was placed on a round pedestal. White surgical tape was used to strictly secure her. Tape was wrapped around her ankles, above the knees and across her mid-drift securing the lower half of her body to the pole. But, her voluptuous breasts were squeezed tight by some smaller tape placed directly across each nipple and circled around the pole. This tape causes her mounds be look like four gentle hills with a white stripe centered in the valley.
+
+This time, only her mouth was sealed. By the looks of her chipmunk cheeks, there was ample packing behind the strict tape. The tape not only secures her mouth, but ran back each cheek, below the ears, and around the pole, pulling her head solid against the pole. I again gasped at the sight of this beautifully bound and gagged woman. But, what I did not expect was the additional training I would receive from my very capable instructor.
+
+“OK Mike, time for a class participation exercise, strip.” I was a bit dumbfounded. I was awaiting another dream day with my sexual fantasies fulfilled by another joyous adventure with the lovely Wendy. But, I didn’t hesitate and began to unbutton my shirt.  “Oh, come on you prude,” teased Carol. And with that, she reached for my belt and pulled my pants down to my ankles. By now, I had removed my shirt and reached to pull down take my pants. Standing in my brief’s caused Carol to smile. “Now Michael, let me take a peek.” And with that she separated the opening in my underwear and watched as my manhood sprang upward like a fiberglass diving board.
+
+Seemingly excited, she grasped my rod and gently rolled it between her fingers like a fine Cuban cigar. “Well Mike, you are certainly prepared for your next lesson.”  As she played, I was getting even more excited. But she suddenly stopped and ordered me to remove my underwear. I stood fully naked, but fully prepared for the next exciting sexual adventure.
+
+I glanced over to Wendy, beautifully bound as a statue to the pole mounted on the pedestal.  I was curious of the next step in this lesson. And unknown to me, Carol was already collecting the supplies needed for my personal student participation project. As I dreamed of my next sexual encounter with Wendy, my trance was broken by an order from Carol to climb on to the pedestal. I suddenly realized, my participation meant I may actually be another mounted poser.
+
+Carol directed me to lean against the pole, hands by my side. “You two will make such a lovely couple” chimed Carol. And with that comment, she took a roll of white medical tape and began to also secure me to the pole. But, instead of circling my tape behind the pole, she extended each strip of tape entirely around Wendy. Each piece of tape around my ankles and legs were placed to go exactly over the matching location on Wendy’s body.
+
+Each piece of tape around my torso was also perfectly matched. But, when she reached my chest, she applied two small round pieces of plastic over each nipple and took a smaller tape over each plastic nub and stretched the tape until it reached around and circled Wendy. The tape followed the same route, and was placed over each of her nipples. I could only fantasize the fact my nipples were somehow connected to Wendy’s nipples as we were about to share in this bondage adventure.
+
+Carol approached me with holding some type of white clothing in her hand. “Open up, Michael. These panties are so sweet and provided by Wendy just for you.”  I was about to be gagged with the moist, sensuous panties freshly worn by my co-partner in bondage. After accepting the stuffing, Carol took medical tape across my mouth and wound it around to the back of my head. But, again, instead of attaching to the pole, she once more stretched the tape around to Wendy and across her mouth.
+
+Carol stood back to admire her work. White tape evenly placed on each of her captives, tightly bound back to back on a pedestal. But, her real means of binding us together was yet to come. “You two look adorable. And to let you know the next phase of our bondage session, I need to explain the operations of the pedestal. You see, I purchased this from the going out of business sale of a local department store. It has a small motor that allowed the manikins in the window to rotate. I have made a slight adjustment to the movement by adding a remote control to be able to adjust the speed of the turning, kind of a giant potter’s wheel.”
+
+It became apparent why Carol had purchased such a devious device. She took a large roll of clear plastic wrap on the floor beside her and began a very slow turning of the pedestal. The plastic was a large roll similar to the wrap used in grocery stores or warehouses to seal packages. As the wheel turned, Carol allowed the plastic to unroll tightly sealing Wendy and I together.
+
+The wrap tightened between us, forcing our bodies to nearly seal as one. As the wrap was pulled higher on our bodies, Carol took great pleasure in viewing our erotic dilemma. But as the wrap reached our area of sexual pleasure, she adjusted the plastic so these sensual areas of our bodies remained uncovered, at least for now.
+
+She continued to wrap the clear plastic around our chest, seemingly enjoying the extra effort to seal the massive mounds still protruding from Wendy. After our arms were secured tight beside our bodies, Carol wrapped double around each shoulder to assure our bodies were nearly sealed together. But, when Carol left the room for a few moments, her return meant the finishing efforts to accomplish the adjoining of the Siamese twins.
+
+At first, I did not realize why Carol was carrying a hair dryer. Then I realized, she wanted to blow hot air onto the plastic wrapping, sealing our bodies together in an even tighter bond. As the hot air began to shrink the wrap, movement became essentially impossible. My shoulders and buttocks were forced tight against Wendy, sensing her skin tingling with sexual excitement. It was almost as my skin was actually shrinking with the plastic, almost feeling as the plastic was melting into my body.
+
+But, as Carol shut off the dryer, she eyed the most private of our bodies, planning her next erotic move. As she looked over her handy work, she kneeled directly in front of me, leaning her tongue towards my erection. I was already hard, but her curling tongue pulled my cock directly into Carol’s awaiting mouth. She pulled back, sucking hard on me as she slowly moved away. I was so near to a massive explosion when she grabbed more plastic wrap and pulled the clear plastic hard against the tip of my cock until the head popped a hole through the plastic. She wound the roll tight around me as I heard Wendy attempt a moan as the plastic covered her vagina.
+
+Little did I know Carol has placed a vibrator into Wendy’s crotch and was sealing it into place with the additional plastic wrap. But, Carol did not stop there. She continued to wind the roll of plastic around our bodies in a second loop, again, pushing my head of my erection through the plastic, thus creating a second layer of plastic around the base of my head. After the second loop to double secure Wendy’s vibrator, Carol reached for the hair dryer and began to tighten the plastic pubic seals even more.
+
+I could feel the plastic wrap tighten around the base of my cock, almost dividing it from my dangling sack and tightening around the base of my penis. Suddenly, my erection seemed to get even harder, and I felt all of my semen was building up without the ability to release. Carol had succeeded in securing into place an indefinite erection. Poor Wendy was in a similar circumstance, as the shrinking plastic wrap only pushed the vibrator into the deepest of environs.
+
+But Carol’s diabolical scheme was just beginning to play out. The vibrator buried in Wendy had a remote control. Carol again began to kneel in front of me, but instead to taking me into her mouth, she lubricated my penis with KY Jelly and slowly began to use one hand to stoke my pounding cock. As she began to build rhythm up, down and around my shaft, she also slowly increased the setting of Wendy’s vibrator. Carol’s sexual crescendo was about to take place. She was carefully timing each of us to coordinated orgasms.  Taped and sealed together, we could feel the electricity move between our bodies.
+
+Unable to move, and barely moan, Wendy and I were each so restricted, the entire power of the orgasms would be entirely focused to our respective pleasures. As Carol began to speed up the motions, she slightly opened the plastic seal around my penis base. I nearly fainted from the enormous rush allowing my sperm to launch in a gusher that shot across the room. Meanwhile, Wendy peaked in an orgasm that caused her body to stiffen and vibrate as the plastic restrictions kept her from motion.
+
+The body heat between caused a sexual steam that actually caused an opaque of the plastic wrap, a steamy fog that obscured visibility of our bodies. This plastic encasement made even the slightest move a joint venture of each body. Carol watched as each of us slowly recovered from our orchestrated orgasms. She moved over to us and squeezed our bodies together even tighter causing the wrappings to crinkle and crunch.
+
+But, as she caressed our encased bodies, she began to take scissors and gently remove the wrappings that had so handily sealed us together in sexual excitement. With the wrap removed, only the white tape held us together. Carol slowly smoothed her hands over our sweaty bodies. She first removed the tape over our nipples, and caressed our breasts in unison. I could hear Wendy moan as Carol twisted my nipples as, I was certain, Carol played with hers.
+
+Our session finally came to an end as Carol helped Wendy and I step off the pedestal. As we stepped forward, Wendy suddenly grabbed my cock, causing another sudden erection. As Wendy lead me by my penis, Carol reached around and caressed my balls. “Before you leave, Carol and I would like to personally express our appreciation.” And with those inviting words, Wendy led me into the room with the four poster bed.

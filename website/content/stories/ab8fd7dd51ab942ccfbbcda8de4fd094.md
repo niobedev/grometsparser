@@ -1,0 +1,582 @@
+---
+original_url: https://www.selfbound.net/storiesad/claudias_adventures.html
+subcategory: Selfbound Stories
+title: Claudia’s Adventures
+authors:
+- Claudia
+tags:
+- Sbf
+- public
+- hum
+- toys
+- cons
+- X
+date: 2006-09-18 00:00:00
+---
+
+I don't really know where to start. 
+You see, I have this Master, he is very strict, unreasonably demanding
+and always with me.  Sometimes I
+think it best that I leave him, and live my life in a more conventional manner. 
+In fact, I have tried at times to just turn my back on him, but somehow
+he always creeps back into my head. He makes me do all sorts of things that are
+embarrassing, humiliating, painful and just plain mean. 
+He pushes me to the edge and often beyond my most daring limits. 
+My master resides in my mind. 
+
+Today was no different.  I
+awoke this Saturday morning after a long and much needed night of sleep. 
+My last week at work was very hectic and stressful so I was looking
+forward to a couple of days of diversion. Master had been planning this whole
+weekend for a long time and I was certainly ready. 
+The sun was already up and peeking through the drapes and into my
+bedroom.  I sat up and stretched while I had this big morning yawn. 
+I paused a few seconds and then rolled out of bed. 
+My knees and ankles, still tied together from the night before, came to
+rest on the antique oval area rug that Master had me buy at a swap meet several
+months ago. Just for your information, I often have to sleep in some form of
+bondage. Master enjoys the look of his slave being tied while sleeping. I was
+still in that little bit of a twilight zone but Master was not. 
+He had me lean over to reach under my four-posted canopy bed. 
+I was naked so as I crouched, my breasts gently swung down and my nipples
+lightly brushed my legs sending a chill up my spine and giving me a little
+shiver. I was already getting excited.  I
+found the polished brass handle attached to Master's mahogany storage box. 
+I gripped it and pulled the box and it slid out from under the bed.
+
+I slowly opened the lid and gazed upon Master's collection of toys. 
+I smiled and felt all warm inside and there was a little twitch between
+my legs as the four benwa balls that were inserted into my pussy the evening
+before began their work.  I looked
+over the assortment of dildoes, vibrators, clamps, chains, locks, handcuffs,
+rope and a variety of other devices that Master has had me purchase over the
+last two years.  My hands
+instinctively went to my soft full alabaster breasts and I caught my right
+nipple between my thumb and index finger giving it a firm squeeze as sort of
+preview of what was to come. 
+
+Now, my Master really came to life... He was upset that I was
+stimulating myself without his permission. 
+He commanded me to grab both now hardened nipples. I hesitantly reached
+up and gripped them between my thumbs and forefingers and squeezed with all my
+strength causing a sharp pain to shoot through my tits. 
+Then as I pulled up, my back arched and my head flew back with my flowing
+blond hair dangling down to the middle of my back. 
+I pulled as if trying to lift myself up off of the floor by my tender
+nipples. I am always amazed at how much my 38D breasts stretch when treated like
+this.  My amazement soon vanished as
+the intensity of the pain that shot from my nipples increased. Master was now in
+control and wouldn't let me release my hold.  
+
+In fact, he encouraged me to squeeze harder and pull higher towards the
+ceiling, stretching my tits as high as possible, and then higher still. 
+The pain was relentless as my nipples were being pinched and pulled
+without mercy.  My mouth flew open
+in a long silent scream, yet Master made me continued to pull and stretch my
+breasts, oops, I mean tits. As usual, the pain in my nipples caused a familiar
+reaction down in my pussy, the benwa balls were now very active as I squirmed
+and shifted my weight while squeezing and pulling like a girl possessed. 
+I was sure that I was dripping.  Then
+I felt a climax building, I held on to my nipples and pulled and pulled and even
+twisted as if trying to tear them right off my tits. 
+Now I was hoping that the pain would give me one of those incredible
+orgasms that I crave so much.  Then
+when I felt I was right on the verge of cumming, Master made me release my hold
+and I fell to the carpet in a heap. Now he was upset that I could even consider
+a climax without his permission.  Wide-awake
+now, I knew then that I was in for an interesting day.
+
+By the way, Master requires that I use the more vulgar names for all of
+my body parts and sexual references when I am under his control. 
+During these times, I am not to be treated as a lady but rather a lowly
+slut of a bitch, a whore and sex slave. I just thought you would like to know
+that little slip a bit ago would cost me dearly...
+
+Master ordered me back up onto my knees, and warned me not to touch my
+pussy or my sore nipples.  He was
+just being difficult and I was the victim of his terrible mood. I knelt there on
+my knees, still bound and with this frustrating ache in my pussy as Master had
+me sort through the box and pull out a variety of devices. 
+A medium butt plug, his most powerful dildo, various leather straps,
+locks and restraints, a ball gag and a set of nipple clamps connected with a
+little chain.  Then I remembered. 
+I was supposed to get a set of 4 keyed alike Master Locks up at the
+warehouse home improvement store last week. 
+I totally forgot... Master would need these keys to complete his plans
+for this weekend's adventure.  I am
+repentant, but He is not happy. 
+
+Okay, the only way to fix this situation was to go up there and buy the
+damn set of locks and keys.  Master
+then got into one of his devilish moods.  It's
+Saturday morning and Master knew that even this early, the place would be
+filling with do-it-yourselfers and a full staff of men who were sure to be more
+than helpful.  In preparation, he
+had me untie my legs and ankles and remove the 2" diameter soaking wet
+cloisonné balls.  Then he had me
+rise and stand, my legs straight and my feet spread two feet apart in front of
+my full-length mirror.  I saw the
+image of a rather attractive blond woman, late twenties, about 5'-7" tall
+and about 125 pounds. I saw a nice dancer figure, a small waist that flares to
+beautiful rounded hips and butt.  The
+tits I saw in front of me were full, natural and stood out proudly with very
+little sag.  They were quite nice by
+anyone's standards.  So, Master was
+also soaking in this image of a beautiful naked girl and was getting ready to
+punish her for forgetting to buy the locks so necessary for today's activities.
+
+Master decided that I would have to look my best so I walked into the
+bathroom to shower, wash my hair, and shave my legs and all the other things
+that girls do to make themselves beautiful. 
+Of course, I relieved myself in the toilet and gave myself a wonderful
+two quart enema.  It took me nearly
+an hour to finish with my makeup and hair and Master was getting impatient. 
+I figured that I was as good as I was going to get so I walked back to
+the bedroom and appraised myself as I stood legs spread in front of the mirror
+again. Beautiful, I thought to myself.
+
+Now it began...  Master
+decided that I was going to be embarrassed and humiliated as part of my
+punishment for being forgetful.  He
+would also require that I be sexually aroused during the entire ordeal.  He made me reach down and pick up the medium black butt plug
+along with the KY jelly.  I applied
+a liberal coat of the stuff to the plug then using my finger I pushed more
+directly into my asshole.  Master
+made me push my finger in to the second knuckle, then pull out and then in
+again.  Then I had to use two
+fingers pushing in and out, in and out for a much longer time than was really
+necessary.  
+
+Now, Master had me turn
+so my back was towards the mirror, then he made me bend at my waist, I knew the
+procedure by heart. From this position, I could reach around my ass with the
+plug and push it into my asshole while bending over looking through my legs into
+the mirror.  I could see the entire
+black latex plug entering my tiny little brown hole.  As I applied more and more pressure, the plug began to slowly
+and painfully penetrate and stretch my ass. 
+It was smaller in diameter at the tip but widened to a couple of inches
+soon after.  It hurt; it always
+hurts as the widest part entered my body. I pumped it in and out a couple of
+times trying to loosen my muscles. The pain was tolerable but not comfortable by
+any means.  I pushed harder and
+deeper and the widest part finally passed the ring of my hole and then it just
+slid in the rest of the way as the diameter got smaller. Although this stem part
+was smaller, it was still wide enough to hold my hole open and kept me very
+aware of the fact that I had been plugged. 
+I haven’t ever been able to get the biggest plug in but Master has me
+practicing nearly every day and soon, my hole will be big enough for the
+monster.
+
+I reached down again and picked up Master's most powerful battery
+powered dildo.  It was a little
+thicker around than the butt plug which was substantial itself. I
+lubed this device although I probably didn't need it because by then I was
+soaking wet. Master made me position the dildo so it was pointing right up into
+my pussy and then he made me just shove it up into my fuck hole with one big
+thrust.  It didn't go all the way in
+so he made me take it all the way back out and shove it in again. 
+This time I was careful to use enough strength to ram it in to the hilt
+so that just the end with the little on an off switch was showing. 
+Now Master made me pick up a 6' length of 1/8" nylon rope that I
+wrapped snuggly around my waist and tie just below my belly button. 
+I took the two leftover strands and pulled them down between my legs, one
+strand on each side of my clit and then through my pussy and over the dildo and
+butt plug and back up to the small of my back. 
+I pulled the rope tight so they pressed the plugs into my body very
+firmly.  Then I tied the rope ends
+to the rope around my waist making sure that the knot was very tight and would
+not come undone.  One side effect of this rope configuration is that the
+strands that hold the dildo in place also rub and pinch my clit sending little
+shock waves up into my body.  I was
+leaking again, I was getting very turned on and I hadn't even taken a step. 
+
+Now for my "outfit".  Master
+chose a large men's denim work shirt that buttoned in the front. 
+I put the shirt on and noticed that the shirttails in the back came down
+to about 2" past my ass cheeks covering them but not by much. 
+In the front, the tails came to about the same distance below my pussy. 
+Master has decided that as a further punishment, I would be put into a
+position of being totally humiliated. I am not going to be allowed to wear
+pants, not even panties. That's when I noticed the problem with shirt in the
+front.  The problem was that there
+are no buttons at the bottom 8" of the shirt tails. 
+The two pieces just sort of flap around below the last button, which was
+just above my pussy. Although the tails overlap a little, the slightest misstep
+would expose my bound, shaved and stuffed naked pussy to anyone who happened to
+be looking.  The sides of this shirt
+are cut high exposing almost all of my legs which would have been fine had I
+been wearing pants, but being naked under the shirt made this very, very
+revealing.  
+
+My thoughts focus on the
+front of the shirt and the buttons that pull the denim fabric together. I had
+already fastened the lowest button, the one just above my pussy, so I buttoned
+the next up the line.  This pulled
+the right and left sides of the shirt together just below my belly button and
+left the top open to the collar around my neck. 
+My tits filled the loose fitting fabric on either side and you could see
+a little of the soft, smooth tit flesh that make up my substantial cleavage. 
+My tits were otherwise mostly covered as I stood there looking in the
+mirror and I was thinking that if I had a halter or tee shirt underneath, this
+would be a very nice fashion statement.  But,
+no such luck, Master wanted to punish me for being forgetful and for having to
+go shopping when other things were planned so no bra or covering of any kind. 
+I was in for it, that's for sure. 
+
+As I was standing there looking into the mirror, thinking about
+fastening the remaining buttons, Master came up with another idea.  He
+made me get a pair of scissors and snip off the remaining buttons all the way to
+my neck leaving only the two bottom buttons to keep the shirt together. 
+This left the shirt open and slightly separated all the way up so anyone
+could tell that I was not wearing a bra.  I
+was left with no way to conceal my breasts except to be very careful about every
+movement I made.  I was getting
+scared and excited at what Master was doing to this attractive blond bitch. 
+I was naked except for the denim work shirt, plugged in both holes and
+exposed in a not so subtle manner.  
+
+I
+took a few little test steps while looking in the mirror. 
+I could see that if I took little small steps, the bottom flaps stay in
+place.  If I walked normally, my
+pussy would peek through the shirttails as they lifted on my thigh so I would
+have to be very careful about my stride.  As
+for the top of the shirt and my tits, well any movement at all caused the shirt
+to shift and open to the left or right exposing more and more of my tits. If I
+bent over, my tits fell forward and the shirt just sort of billowed out and down
+and separated even more.  Anyone
+around could see everything I've got up there. I knew too that Master would make
+me keep my legs straight and spread when I bent so not only would my tits fall
+out, but my ass and pussy would be exposed from behind. 
+I was getting very concerned.  If
+I reached up, oh shit, if I reach up, the shirt opened and the shirt tails that
+just barely cover things anyway hiked up so that both my pussy and ass were
+exposed.  I thought to myself,
+"no reaching up"!!!  I
+didn't know how I was going to get away with this but Master was insistent, I
+had no choice.
+
+So, this was my punishment.  I
+rolled up my sleeves and put on my open toed platform sandals that raise my
+heels nearly 4 inches off the ground accentuating my legs just like high heeled
+pumps. I picked up my little clutch purse and headed for the door. 
+I thought to myself that when people see me they are bound to think that
+I am wearing short shorts under this shirt. 
+After all, who would ever go out in public with just a shirt. I decided
+that I could do this. So, I reached for the doorknob and my shirt opened a
+little and my right tit was exposed almost to the nipple. This really concerned
+me now that I knew that even the slightest movement of my arms would open my
+shirt and expose my tits.  I
+hesitated but Master took over and I stepped out the door closing and locking it
+behind me.  I practiced keeping my
+hands and arms as close to my body as possible, still my shirt opened and closed
+a little as I walked and the shirttails flipped up as my legs moved me along.  
+Then I noticed the cool air flowing over my plugged, roped and damp pussy
+making me feel more naked and exposed than ever.
+
+I walked slowly and carefully to my car, my eyes darting all over to see
+if any neighbors are about.  It
+would not be very good for my reputation in the neighborhood if someone would
+happen to see my naked ass or tits as I bent to reached and unlocked my car
+door. Way down the block I could see old Mr. Jones mowing his lawn, but no one
+else in sight.  I was in luck, he is
+nearly blind.  I walked out into the
+street to the driver's side door and carefully reached out to insert the key. 
+I was getting the hang of this I thought to myself. 
+I opened the door, turn a little and then bent my knees so I could slide
+my butt onto the seat.  Oh shit... 
+As I bent, the ropes squeezed tighter, squeezing and pinching my clit and
+driving the plugs deeper into my holes and I almost screamed. 
+As I reached into the car to grab the steering wheel, my shirt top opened
+so wide that both my tits are totally exposed and the shirt tails separated so
+that my pussy was not covered by anything but the ropes. God! I was naked. I
+hurried to close the door as I noticed a car approaching from behind. 
+In a near panic, I pulled my legs in pinching my clit even harder between
+the ropes, but I got the door closed just in time. 
+I just sat there a few moments adjusting my shirt and the ropes while
+taking deep breaths to regain my composure.
+
+Safe inside my car, I started to relax.  The drive to the Home Depot was pretty easy. 
+I got the same occasional glances from the male drivers I always get, and
+I knew they couldn't see my pussy and my shirt was hanging straight down
+covering my tits so it was just pretty normal. 
+Once I got to the parking lot things change though. 
+It was getting busy, just as Master had anticipated and finding a parking
+place takes on a whole new set of problems. 
+There are people, mostly men, walking to and from the entry and I was
+stuck in the middle of the driveway with cars in front and behind. As the men
+walk by my car, I knew if they glance in they would see that I was not wearing a
+bra, they would see hints of my tit flesh because my cleavage was slightly
+exposed and if they looked harder, they might even see my pussy and the binding
+rope, not that the ropes covered very much.  
+
+I put one hand down into my lap to cover my privates and that really
+pissed off my Master.  He made me
+put my hands back on the steering wheel and let the men see whatever they
+happened to see.  I just hoped that
+if they did see my pussy, they would think the ropes were just bikini bottoms. I
+looked down and saw that the shirt tails have sort of bunched up between my legs
+so my pussy was at least a little hidden.  Even
+so, I was beginning to get really uncomfortable. Finally, I noticed the brake
+lights and then backup lights of a parked car just in front of me. 
+I let him back out and I slid right into the parking slot. 
+Feeling very lucky, I smiled and was becoming more confident when all of
+a sudden I hear a clunk and realize the guy next to me in a big old pickup truck
+opened his door and hit my car.  I
+looked in the passenger side mirror and saw him climbing out of his big dirty
+truck then bending to look at the scratch in my car. 
+Oh shit, he obviously decided to make his way around my car to my window,
+probably to apologize.   
+
+The big ugly beer-belly guy got to my side and leaned over with his
+two-day-old beard and tried to speak.  He
+sort of smiled but his grin was lost in his multiple cheeks. 
+He motioned for me to roll down my window and I just grinned and tried to
+tell him that it was okay, don't bother.  He
+was insistent so I relented and reached over to the handle with my left hand to
+roll the window down half way using my right hand to keep my shirt together.
+Master was not buying this and made me let go of my shirt and place both hands
+down and flat against the seat. No hiding my privates was the rule of the day. 
+Now the guy leaned over closer and with his stale beer breath he
+apologized for his clumsiness.
+
+It was then that he noticed my open shirt and my near naked tits and
+tried to angle for a better look.  I
+swear he was drooling on my car as he edged to the front a little more. 
+Then he scooted back and was about at the middle of the window still sort
+of trying to apologize and maybe exchange driver's licenses and insurance
+information.  He wanted my phone
+number so he could call later in the day to make sure everything was okay. He
+stood up a little straighter and I knew he is trying to get a look at my crotch. 
+I also knew he could see a lot of my leg and not a hint of pant leg. His
+fingers were curled over my window top as he tried to see as much as he could,
+still stuttering and stammering.  I
+decided to roll up the window and reached for the handle which may have been a
+mistake.  As I stretched my arm out,
+my shirt fell open a little more and the guy just sort of grunted.  I turned the crank but with his hand on the window it was
+difficult and the strain made my tits jiggle and they were exposed even more. 
+This guy must have been having the peepshow of his life. 
+I almost caught his fingers when the window finally reached the top of
+the door.  He quickly pulled his
+hand out and stepped back, smiled, shrugged his shoulders and just simply waved
+good-bye as he walked towards the entrance of the store. 
+
+I was about ready to chicken out but I decided that Master's punishment
+for failure here would be much worse than going through with this ordeal. 
+I waited a few moments and then opened my door, swinging my foot out of
+the car and onto the pavement.  I
+looked down at my spread legs, one foot on the ground and the other still in the
+car and gasped as my pussy was now totally uncovered and exposed to the world. 
+Fortunately the car next to me and my door provided some privacy. 
+I was safe for now as I stood to adjust my shirt. 
+I pulled the tails down and the open front closer together. 
+So, now I was committed as I slammed the door shut. 
+
+I turned towards the driveway and walked out and away from the shelter
+provided by the neighboring car. I now felt as if I was in full view of every
+man in the parking lot.  Master told
+me to walk tall, to make him proud.  So
+then I pulled my shoulder back, thrust my tits out and I held my head up high. 
+I was feeling like a stripper walking out onto the stage, my ass was
+swaying back and forth as I acted confident, almost defiant. Half way to the
+entrance there was a break in the number of men in the area. 
+I felt relieved until Master demanded that I turn on the vibrating dildo. 
+I was in the middle of the damn parking lot, on display, with nothing but
+a shirt to cover my nakedness.  Now
+he wanted me to spread my legs, spread the shirt tails, reach down between my
+legs so it looked like I was touching myself, spread the ropes and spread my
+pussy lips, and then flip the switch. 
+
+I must have been crazy as I stopped in my tracks, I reached down between
+my legs as discretely as possible and separated the soaking wet rope in my
+pussy, then stuck my finger in between my pussy lips just enough to click the
+switch to on. The dildo came to life immediately causing me wobble a bit and I
+had to pause to catch my balance.  These
+were brand new batteries so the full power of the vibrator sent shivers through
+my whole body.  I tried to continue
+walking.  It was now difficult
+because it felt as though my whole pelvis was being rocked by this intruder. 
+Then it hit me, I could hear the vibrations. 
+First I thought that maybe it was only me that could hear it, maybe the
+sound was just traveling up inside my body to my ears. 
+Maybe no one else could possibly hear this thing vibrating deep inside my
+pussy. I looked around and there were men walking towards me from the entrance. 
+More men coming from behind.  It
+was too late to reach back down there to turn the thing off, they'd see me for
+sure.  I had to pretend like there
+was nothing happening, like I didn't hear a thing. I got closer to a guy who was
+glancing over towards me, obviously admiring legs and cleavage. 
+Then as he passed me on the right I could see him reaching for his cell
+phone.  He was checking it to see if
+he had an incoming call.  He didn't.
+He must have heard my vibrator. Oh god I realized it could be heard by anyone
+close me.
+
+The thought of what Master was making me do had me so excited I was
+dripping from my pussy and cum was dribbling down my leg. I could feel the
+coolness of the trail it leaves on my inner thigh.  There was that familiar ache in my crotch, a throbbing of my
+clit and the tightening of my muscles around the dildo and butt plug. The
+humiliation of being nearly naked in a Home Depot parking lot full of cars and
+men was almost overwhelming. The thought of being discovered and maybe even
+arrested had me frightened and added to the humiliation. 
+I imagined being taken handcuffed into a little security room where the
+guards searched me finding a big black butt plug up my ass and a vibrating dildo
+in my pussy, both tied in place with cords of nylon rope. What would the guards
+think? What would they do with me? I didn't even want to think about that, I had
+to think about what was happening right then. 
+I had to think about not cumming in the situation I was in even though I
+was heating up like a volcano. Everyone would see and know what I was up to. 
+I had to control it with all the strength I had in my body and mind. I
+pulled myself together and continued to the entrance that is now just a few
+steps ahead. I was aware more than ever that every step I took caused the crotch
+ropes to squeeze and tease my clit torturing me in the worse possible way.
+Having to cum but having to hold it back was incredibly erotic.
+
+Once inside the huge warehouse I scanned the directional signs looking
+for the aisle where the locks would be located.  I didn’t see anything that would have even given me a hint
+so I would have to just wander in my near naked and aroused state until I ran
+across them.  To the left was the
+garden supply section, I figured I wouldn’t find them there so I went down the
+first aisle to the right. Remembering that too long a stride would cause my
+shirt-tails to separate exposing my pussy, I walked very carefully with little
+tiny steps.  The platform sandals
+were doing their job of flexing and stretching my muscles accentuating my tan
+dancer like legs. The small slow strides kept my tits from bouncing to much and
+I managed to keep my shirt from opening.  My
+heart is pounding a million beats a minute or so it seemed.  That’s when I noticed now that I was indoors, the vibrator
+buzzing away in my pussy sounded more like a chainsaw on a quiet Sunday morning.
+It was so loud that I just knew anyone within 10’ of me would hear it. I began
+to think the worse, that I could never get out of this undiscovered.
+
+I was now deep into the store, way back by the plumbing supplies. 
+The men that were anywhere within visual distance of me were staring,
+bumping into things as they walked.  I
+noticed two guys were following me but trying their best to make it look like
+they weren’t.  One guy would walk
+a little then stop and pick up a package of anything handy and pretend to read
+the label.  I don’t know how he
+could read while his head was turned staring at me. Another guy slowly walked
+down the same aisle I was in passing by me at an uncomfortably close distance. I
+know he heard my vibrating dildo, I just know he did. 
+He made his first pass, walked about twenty feet and then turned around
+for another pass.  He didn’t
+smile, he just had this look on his face like he was obsessed by the devil
+himself as he stared at my feet, then up my legs and then focused on my open
+shirt no doubt hoping to get a glimpse of my tits. He made me feel even more
+vulnerable, more aware of my near nakedness, more turned on. He noticed I was
+watching him and he kept walking this time.  
+
+Suddenly,
+a voice snapped me out of my obsession with the voyeuristic men. 
+I jerked a little in surprise and twisted almost involuntarily towards
+the voice to the left which caused my right breast to peak out a little more
+from it’s half of the shirt.  It
+was a young man in an orange Home Depot vest asking me if I need any help, all
+the while staring at my cleavage. I stammered a bit but managed to get out that
+I was looking for locks. He finally looked up at my face and said they were a
+couple of aisles over to the right.  I
+thanked him and started to walk away glancing back to see him staring at the
+back of my legs as I took my little mini-steps down the aisle and past the guy
+reading the labels. I guessed he was wondering if I was wearing panties or not. 
+As I turned the corner, I glanced back again and he was edging slowly
+towards me, following me, still focused on my legs and ass. 
+I don’t even think he saw me looking at him as he was in sort of a
+trance.  The label reader began to move towards me also, he too had a
+fascination for my legs and ass.  I
+walked very carefully fully aware of my audience and aware of the fact that
+slightest mistake on my part would give them the visual that they, until now,
+only had in their imagination.  That
+visual would of course be my naked ass.  Boy
+would they be surprised to see that I had strands of nylon rope running through
+my crotch.  They might even see the
+butt end of the dildoes sticking out of my ass and pussy. 
+God, I couldn’t let that happen.
+
+I managed to get to the second aisle without incident. 
+I turned up the aisle and scanned the shelves until I finally came upon
+the lock section.  I came to a halt and so did my two stalkers. 
+Now, I stood facing the shelves from about the middle of the wide aisle. 
+Master was being particularly mean today and made me spread my feet apart
+about two feet.  That was
+uncomfortably wide as it separated my shirt tails in front exposing my pussy.
+Fortunately the guys were about 20 feet away and on the other side of the aisle
+in back of me and couldn’t get a clear view of my crotch. Now there was a
+third guy on the other side of me checking out the action which was me. That’s
+when I spotted the set of 4 keyed alike Master Locks. 
+They were two shelves above my head. 
+Within reach, but I would have to reach up and stretch which would
+certainly pull my shirt up over my ass giving the horny men a clear view of my
+naked butt, my naked legs, my naked waist and make it perfectly clear that I was
+totally naked except for my shirt. Oh and of course they would see the nylon
+ropes knotted around my waist and pulled down through my crotch. I knew these
+guys were hoping to get a peek at my ass, but what ever would they think when
+they saw the ropes cinched tight around my waist digging into my soft silky
+smooth skin. What would they think when they saw the strands of rope that run
+down into my pussy and up my ass crack.  I
+was thinking that they would know these ropes are tight because they are pulling
+down noticeably on the waist ropes as they separate my pussy pressing hard
+against my clit and digging deep into the valley of my slit. I now wondered
+seriously if they could possibly see the butt plug and dildo being held in by
+the crotch ropes. I would die of embarrassment if they said anything about them.
+
+I was faced with an impossible situation.  If I reached up for the locks, I would be totally exposed,
+naked from the waist down. I know the guys are looking at me, hoping to see more
+skin.  I mean they had already seen
+more than they normally get to see in a hardware warehouse on a Saturday
+morning, but this would be over the edge.  The
+humiliation of just the thought of it all was causing my heart to pound and
+sweat to break out all over my body.  The
+glow of my moist suntanned skin was just accentuating my nakedness, causing the
+guys to get a little more agitated, more excited. 
+I started to fidget myself. I touched the edge of my shirt and fiddle
+with a useless button hole next to my right tit. Then I realized that I was
+drawing attention to my near naked tits and I tried just dropping my hands to my
+sides. 
+
+My feet were still separated and I felt the coolness of the moisture on
+my wet vibrating pussy evaporating in the warm air inside the warehouse. The
+coolness on my pussy gave me a shiver and made me even more aware of my naked
+vulnerability.  Then disaster, I
+felt another slow trickle sliding down the inside of my left thigh. 
+I was so turned on that my pussy was flooded and like drool, female slut
+cum was flowing down my leg. I glanced down and to my horror there was also a
+little silver dollar sized puddle on the concrete floor right below me and
+between my feet. That must be why the guys were so agitated. 
+They must have seen the puddle long ago. They may have even seen the
+drips falling from my overexcited pussy. The humiliation of just the thought of
+this caused me to shake and tremble with embarrassment. The intensity of my
+humiliation made me even more excited and I almost had an orgasm right there in
+front of the locks.  Adding to my
+distress, the moisture in my pussy increased and two or three additional drops
+fell from the ropes deep in my pussy and onto the floor. 
+Another trail of cum started it’s downward journey along the inner
+thigh of my right leg. I was frozen.  I
+was scared, I knew the men were watching me in my humiliation yet I was unable
+to decide what to do. I was on the verge of an explosive orgasm that I had to
+hold back at all costs and I still couldn’t make myself move.
+
+Finally after what seemed like an eternity I decided I had to act. 
+I had to reach up and get the locks so I inched up closer to the shelves
+and raised my right arm which caused the worse to happen. My shirt tails rose up
+over my butt and exposed my ass to my not so secret admirers, my pussy was
+exposed too, but I was so close to the shelves that they couldn’t see it. 
+My right tit was uncovered and the guy to my left got a pretty good peak
+at my nipple.  My heart was beating
+so fast that I thought I might pass out. The guys were so stunned that they
+didn’t even move.  So, I got the
+locks, a few guys got a great show.  Thank
+goodness it wasn’t as bad as it could have been. Still, being exposed was as
+thrilling as it was humiliating.  I
+got to my car without further complications and headed home.
+
+I will have to wait to tell you about the rest of the weekend so keep an
+eye out for my updates. 
+     
+
+ 
+
+ 
+
+Master will also accept assignments from readers for me to perform and
+then I will report on the results if it is okay with you.  You can
+forward requests to:  [skinboundusa@aol.com](mailto:skinboundusa@aol.com)

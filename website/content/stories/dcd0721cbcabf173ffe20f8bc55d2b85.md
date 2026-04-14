@@ -1,0 +1,397 @@
+---
+original_url: https://www.latexstories.net/storiessz/who_dares.html
+subcategory: Latex Stories
+title: Who Dares...?
+authors:
+- Greyrose
+tags:
+- Sbf
+- F/ff
+- latex
+- bond
+- chast
+- slaves
+- cons
+- X
+date: 2002-12-20 00:00:00
+---
+
+Ann eased herself into the steaming hot bath,
+a much needed tension breaker. As she lay there swirling the scented waters
+over her tired and aching body, Ann began to think of ways to enjoy a long
+week-end. Her favorite idea was to think of a Dare for Carol. Even though
+the game was one they had played since college, lately it had been taking
+some decidedly kinky turns.
+
+Ann remembered the first time the game had taken
+such a sexy turn. Carol had held up a pair of shiny silver handcuffs
+and dared Ann to wear them out to a movie. They had draped a sweater over
+her cuffed hands and gone out. Ann could never remember what movie they
+saw, she had been so distracted by her pinioned hands.... That night was
+the first time she and Carol had made love.
+
+Later, wrapped in a warm robe, drinking some wine,
+and listening to some soft jazz, Ann was still trying to come up with a
+really good Dare for Carol. This was always much harder for her, besides
+being more submissive than Carol, her friend was a writer and just seemed
+to think up ideas with ease. Teasing a few possibilities around, looking
+for ways to make them more interesting, Ann's musing was interrupted by
+someone ringing her doorbell.
+
+At the door was a tall woman in a gray uniform,
+a shiny latex uniform. In the woman's hands were a clipboard and a pen,
+at her feet was a rather large box. After signing, Ann maneuvered the box
+into her bed-room. On the top was an envelope with her name and address
+typed on it.
+
+Ann was electrified with excitement, could Carol
+have gotten an advance, a big one, on a book? They had talked about getting
+an agency to help them with their game, but the prices were just too high.
+But by the looks of the delivery girl, Carol had done just that. Ann tore
+the envelope open and started reading.
+
+Dearest Ann, I Dare You...
+(Yes! That was the formula for the game!)
+
+Inside this box are what you are to wear to a luncheon
+tomorrow. With them are instructions on how and in
+what order you are to put them on. Also you are to
+arrive by taxi, after walking from a specific location.
+
+There are ways for you to gain 'bonus points' in this
+Dare, or for you to loose points. And to make things
+even more interesting, both parties have the same items
+and options for high score.
+
+The point of this Dare is to see who can go the longest
+without having to ask to be let out. If you can make
+it through lunch, you will have a chance for the Grand
+Prize itself. But you'll have to get there to discover
+what it is!
+
+As for tonight, have fun playing with these new toys!
+
+One Whom Dares You!
+
+Though it was odd that Carol had not signed the
+letter, Ann shrugged it off as having been printed by the service. Buzzing
+with excitement she laid each item out on the bed in order of how she would
+be putting them on. As she pulled out each item she held it up against
+herself then caressed it and reveled in the feel and smell. Everything
+was of black latex, obviously new with silvery metal bits all over.
+
+First to be laid out were the boots, long enough
+to go all the way up her leg to the hip. Their lacing's ran almost from
+the toes up to the wide strap that would close and lock the boot on her.
+The heels measured at 5.5 inches, the tallest heel she could still walk
+in. The new latex was thick and stiff and she was going to have problems
+bending her knees, but she knew that with them on she was going to be sooo
+sexxyyy!
+
+Next up was the corset. Ann shivered with delight
+as she pulled this item out. She had wanted to buy such a long and heavily
+boned corset for so long, but just could never afford it. She had a satin
+one and practiced wearing it quite often, but it just did not have the
+power or the intensity that this one did. Ann planned on wearing this one
+most of tonight, if not all night long, so that she could get her waist
+as small as could be. This corset had one detail she had never seen before.
+There was a flap of latex that could be locked down over the laces, sealing
+the corset on to her just as securely as the boots and apparently everything
+else was to be.
+
+Here came the first chance for the extra points,
+a chastity belt. It was made of steel bands padded with latex. This one
+had a wide waist belt with a shaped front panel, leading to a narrow strap
+going right between her cheeks to the lock in back. On the inside of the
+crotch strap were places to fix plugs. One for her front and one for her
+rear. Ann looked at this one for a long time before putting it down. She
+had heard of belts like this but had never really thought about wearing
+one.
+
+The last item in the box was a glove & collar
+harness. The gloves were a thinner latex than what was in the boots but
+was still thicker than she thought was necessary. At the top of the gloves
+2 chains ran up to the collar. There was no way to wear one with out the
+other. The collar was 2 inches wide and made of the same stiff latex as
+the corset, which was of thicker latex than the boots. In the back was
+a place for a lock to fit, sealing the collar closed.
+
+There were also 6 very small, sturdy, but unobtrusive
+locks, 1 for each boot, 1 for the corset, 2 for the belt, and the last
+one for the collar. No keys for any of these locks were included. For tonight
+Ann had a few snap rings that would do in place of the locks.
+
+The rest of the evening was spent trying on her
+new clothes. Ann played with everything but the belt. For some reason the
+thought of the belt bothered her. Sitting there wearing the boots, corset,
+and collar harness, she turned the belt over and over. Finally she understood,
+while she had sex with men frequently enough, none of them had ever entered
+her rear. And yet the thought of putting the plug there and locking it
+in, with someone else controlling when or if it could come out, was one
+that scared her because she knew it WAS going to happen.
+
+Finally tired, relaxed and filled with anticipation,
+Ann got dressed for bed. With such a special day happening tomorrow, Ann
+chose her wardrobe for bed very carefully. The corset was a must, she was
+able to tighten it already. Next, 2 straps for her legs, bare for tonight,
+one for her ankles, the other for her knees. The collar harness with two
+small items for a grand finale, a ball-gag and a set of handcuffs (the
+original pair!).
+
+Hanging the key to the cuffs so that it hung where
+she could get it in the morning, Ann gagged herself, bound her legs, and
+turned out the lights. She then snuggled under the blankets and slid the
+cuffs under the strap at her knee. Tucked securely into bed the night passed
+with warm sensuous dreams.
+
+The morning passed quickly as Ann got ready for
+her luncheon. Looking at her image in the mirror with critical eye, she
+readied herself for the big step. She had placed both plugs on the belt
+and had tightened the corset so that she was almost panting, she pulled
+the belt on and locked the waist. Having made sure that both intruders
+were well lubed Ann settled the first one in her already juicing pussy.
+She could feel it slide in, it almost seemed to leap inside with eagerness,
+making her gasp and grab a table to keep from losing her balance. Next
+came the one from behind, with equal parts trepidation and anticipation,
+she bent over and pushed. After it failed to enter, Ann focused and relaxed,
+then it popped into place. This time it was good that Ann had placed her
+shoulders onto the table for balance since her knees did buckle. The only
+reason she did not fall to the floor is that the boots were too stiff to
+allow it.
+
+Quickly before she changed her mind, Ann swiftly
+locked the belt tightly in place. Next she put the collar harness on, and
+went to view the total image. She saw a towering woman in gleaming black
+latex with her breasts presented to the world, with a waist that looked
+too tiny to support her upper torso. A woman that no longer had control
+of her own body. Her hand drifted down to stroke and excite herself and
+discovered that the front of the strap sealed her most intimate parts from
+all touch. When the realization that she could not masturbate, no mater
+how hard she tried hit her, Ann's arousal doubled.
+
+Moaning with need, Ann tore herself from the mirror.
+She needed to get finished getting ready, before she made herself late.
+Having already run through her wardrobe mentally, she had decided to wear
+her red suit. This suit had a long snug skirt that would cover her latex
+clad legs almost completely. Also this suit had a vest and a jacket that
+would 'normalize' her torso lines, covering up her tightly cinched waist.
+And with a large scarf to hide her collar, her 'slave collar', as Ann thought
+of it, her wardrobe was complete!
+
+Checking the time, Ann saw that she had timed
+it perfectly, so far. Walking down the hall was a new experience with the
+tightness of the boots and corset shaping her body and limiting her movements.
+Also the plugs deep within her that had started their special magic with
+her fist step to her closet, continued to shift and squirm within her with
+each step.
+
+It took all of Ann's self control to appear normal
+as she walked the few blocks from her home to a park. From there she called
+a taxi and gave the driver the address that she was told to arrive at.
+Though it was a long drive, time flew past as Ann daydreamed various fantasy's
+and squirmed against her self applied rubber bondage.
+
+After about a 45 minute drive Ann paid the driver
+and exited the cab. She was now about 3 blocks from the restaurant and
+had time for a leisurely stroll there. Which was good, for between the
+height of the heels and the tightness of the corset on top of the rubber
+intruders deep writhing her, a casual stroll was about her best speed and
+still be able to control her arousal.
+
+Finally she arrived at the restaurant about 5
+minutes late, and found that Carol had already been seated. As she walked
+up to the table Ann could see that her friend was wearing a white denim
+jumpsuit over a white turtle neck blouse. The gleaming black latex
+at her hands and feet contrasting powerfully with the white of her clothes.
+
+Each woman looked her friend over with a great
+deal of interest, but as was common for when they played the game, what
+was uppermost in their thoughts was the last thing they would mention.
+So they chatted about the weather, TV shows, movies, simple trivia. When
+it came time for the desert, the Mater'd arrived and told them that something
+special had been arranged for them, and asked if they would be so good
+as to follow him.
+
+They followed him to a well hidden side room and
+found the woman in the grey uniform awaiting them. The Mater'd ushered
+them into the room and closed the door behind them.
+"Greetings Ladies, I am pleased to see the both
+of you today. As of this moment you are not to talk, just nod or shake
+your head, or to just do what it is you are told." The driver told them. "Now are both of you ready to try for the Grand
+Prize?"
+
+Ann almost spoke, going so far as to open her
+mouth and take a breath before stopping herself and just nodding her head.
+She could see Carol nod her head as well.
+"Very good then," here she opened two cases and
+placed one before each of them. "You will now remove everything that you
+have the ability to remove and place those items into these cases. Everything
+including jewelry. Quickly now!"
+
+With a glance at each other Ann and Carol quickly
+removed everything that had not been locked onto their body's. Ann had
+been feeling quite horny ever since she locked the chastity belt on and
+seeing Carol's equal unavailability heightened her need even more. Added
+to that was being in the control of a stranger, made Ann a quivering bundle
+of helpless desire. When they were finished and had placed everything
+in the cases, the driver took a slow walk around them. Looking over every
+square inch of their bodies, those few inches that were exposed and those
+unchangeably locked into black rubber. Neither Carol nor Ann dared to move
+while she walked around them, each feeling helpless before her.
+
+Once she had completed her circuit, she stopped
+and turned to them, "Now in the pocket inside the lid of each case
+is something. I want you each to take it out. Now!"
+
+Carol and Ann did as they were commanded. They
+each now held a rubber hood, one that covered the entire face except for
+holes over the eyes, and mouth with small breathing holes for the nose.
+Each hood would cover their heads and down their necks to the shoulder.
+
+"Each of you have chosen to accept another's dominion
+over your own flesh, now do you willingly choose to forgo your individuality
+for the facelessness of a latex slave?" She paused to let each woman think
+it over. "If you chose to accept, nod your head now."
+
+Ann nodded her head immediately, Carol hesitated
+for a few heart beats but then nodded as well. After they had both agreed,
+the driver took something from her pocket and walked behind them. She unlocked
+each of their collars and threw the locks with the keys still in them into
+the cases. Standing behind them she said, "Now put on the hoods so that
+your hair and faces are covered in latex. Then secure your hoods under
+your collars. I have new locks for your collars to seal your new identities
+and your fates."
+
+Ann shivered from the drivers choice of words,
+but quickly covered herself as directed. She opened the now unlocked
+collar and smoothed the tails of the hood down her neck to her shoulders,
+then she replaced the collar, tightly, as it had been. The driver handed
+her a new lock, and she used it to secure the collar once more.
+
+The new Latex Slave turned to see a sister in
+rubber submission lock her collar, and turn to look back at her. The driver
+walked past them and closed both cases. She then took them out a door on
+the far side of the room from which the two women had entered. Through
+the door they could see a limousine parked just outside. The driver put
+the two cases into the trunk of the car and opened the door to the rear
+compartment. Standing next to the car door, the driver pointed at Carol.
+
+"You! Come here and sit on the far side of the
+rear seat."
+
+Carol paused as they both realized that she was
+being commanded to exit the building in broad daylight with her breasts
+bared for all the world to see! "Slave are you disobeying a direct order?"
+The drivers tone was filled with menace. Carol quivered for a moment and
+then bolted through the two doorways and planted herself in the seat as
+directed.
+"Now you slave, the other side of the same seat.
+And slowly now, I want you to show some decorum as my slave!"
+
+Ann gulped with nervousness, and slowly walked
+to the first door. From here she could see that they were in a semi-enclosed
+garage and that there were no people visible in the street outside. Continuing
+her slow walk she entered the limo's back area, and sat on the near side
+rear seat. The driver closed the door and sat on the seat facing them.
+From there she pointed at some ankle straps that were chained to
+the floor in front of where they sat. Knowing what to do they both buckled
+the thick rubber straps tightly about their ankles, limiting them to just
+a few inches of movement.
+
+Next a pile of red latex straps next to the driver
+was sorted through and their legs received a rubber strap for both below
+and above the knee. This was followed by the lap belt that most rear passengers
+skipped. The driver then gave them some clips that she had pulled down
+from the ceiling of the car. Each of their nipples were to be teased with
+these clamps that were still attached to the front of the compartment.
+Also they were given a wire that was to be plugged into the chastity belt.
+
+Now came the gags, also in red rubber, they each
+had a large phallus shaped plug-gag mounted on a wide strap that cupped
+the entirety of their lower faces. There was also a set of straps that
+went over the top of their heads and buckled in back. For the first time
+since entering the car the driver spoke, "Now slaves you will lean your
+heads back and attach the hook behind you to the top of the gag-harness.
+This is a rubber strap and you will have to pull on it so that it can stretch
+that far."
+
+She waited while they did as she ordered them,
+and when they were done their heads were pulled back so that they were
+now looking almost straight up. They noticed for the first time that the
+ceiling was mirrored and that they could now see their hopelessly rubber
+fettered body's being displayed by the bondage that they had willingly
+placed themselves in.
+"Well done slaves, one final item and we will
+be ready to go. Behind your heads you will find a pair of openings behind
+each shoulder, place one hand in each and squeeze the bulb you will feel
+inside."
+
+Fumblingly they reached over their heads and searched
+for the openings that the driver had described. Ann found hers and squeezed
+the bulbs just as she had been told. There was a pneumatic hiss, and the
+sacks that her hands were in collapsed about her hands and pulled her arms
+backward until her elbows were behind her head. She grunted with the strain
+that this placed on her entire body. At the same time she could feel the
+chains on her feet pulling forward and the cords linked to her nipple clamps
+also pulled tight. Forcing her body into a tensioned bow.
+
+Perhaps a second later she heard another hiss
+and a grunt from Carol signifying that she too was now stretched to the
+breaking point. Ann started to squirm in her bondage, testing the limits
+of how well the rubber restrained her. She could hear the latex creak as
+she tried harder and harder to escape but all she did was useless. They
+both were totally helpless now, vulnerable and begging for someone to toy
+with them at their leisure.
+
+As they struggled the driver climbed out of the
+rear area and slid into the driver seat. Once there she placed a call.
+Ann could hear the driver talking, "... please tell the Mistress that I
+have them. Yes, of course I'll wait."
+At this point the driver starts the engine and
+backs the vehicle out of the garage. The two women helplessly pinioned
+in their latex bonds, squirm at the thought that anyone glancing inside
+will see their heaving, clamped breasts dancing atop their rubber corsets.
+The thought of being such a public display causes them to fight even harder
+to cover themselves.
+
+Uselessly they struggle, not realizing that the
+mirror on the windows exterior finish provides total privacy to their pinioned
+plight. It is several miles later that someone picks up the phone on the
+other end.
+
+"Yes Mistress. All went as you specified, both
+completed all tasks correctly, except the taller one was late arriving
+at the restaurant. ... Yes Mistress, speaker phone now."
+
+A new voice now fills the space next to the two
+struggling women.
+"Well my dears, it is so good of you to come,
+and let me congratulate both of you! It is so gratifying to see devotion
+such as the two of you have shown here. And to think that neither of you
+are responsible for this round of your game, but first things first."
+
+Ann is puzzled by this woman's choice of words,
+and slowly she guesses.....
+
+"You have both played in my game and you are
+both winners of the Grand Prize! And the prize is... A lifetime enslavement
+in my dungeon!"
+
+With this signal the driver turns on the vibrators
+that both women locked deep within themselves, granting them the tactile
+presence of their new Mistresses pleasure with them. The merciless buzzing
+of 4 vibrators makes a chilling background to the Mistresses laughter,
+and their helpless moans.
+
+An End / and A Beginning.
+
+\* \* \* \* \*
+
+At this time I plan no continuation of this tale.
+If I get enough encouragement I might work on a part 2. If anyone wishes
+to continue this on their own, please let me know of your interest.
+
+GreyRose [greycat88@hotmail.com](mailto:greycat88@hotmail.com)
+
+Thanks for reading my offering. I'd appreciate
+hearing your comments.

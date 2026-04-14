@@ -1,0 +1,78 @@
+---
+original_url: https://www.latexstories.net/storieslr/latexsissyrubberbitch.html
+subcategory: Latex Stories
+title: Latex Sissy, Rubber Bitch
+authors:
+- M88
+tags:
+- F/mf
+- revenge
+- latex
+- catsuits
+- multilayer
+- corsets
+- hoods
+- gags
+- bond
+- cuffs
+- armbinder
+- sissy
+- chast
+- gasmask
+- rebreater
+- urine
+- toys
+- insert
+- electro
+- collar
+- transport
+- public
+- hum
+- cons/nc
+- X
+date: 2017-08-03 00:00:00
+---
+
+Driving through the busy early morning rush hour traffic was Emily, she was behind the wheel of a brand new black Ford van. It was a warm start to the day as she listened to the radio. She was a beautiful women in her mid 20’s and she had a well looked after body, she worked out a lot and was always eating the right things. She had both windows up and she was sweating badly, the air-con was off as her suffering was worth it. She was wearing a full black latex catsuit that flowed over her sexy body like water. Knee high black leather boots with 6’ heels completed her mistress like look. The reason her windows had been shut was to stop sounds and smells leaving the van.
+
+As her boyfriend. Or should that be ex-boyfriend and the stupid dirty slut he had fucked. Had been put in the back of her warm black van. She had found out about their cheating a couple of months ago and had planned her revenge. She had waited for them to get drunk one night. She had forced their helpless bodies into the most humiliating of outfits. She had spend so much money on ruining their lives and to add to the humiliation. She wanted them to find the whole thing very painful. She wanted them to be driven apart and to have a moment they would never forget.
+
+**Outfit One. Ex-boyfriend. Sissy Suit**
+
+Emily loved his outfit and had made it as degrading and sickeningly horrible as possible. First up was a shockingly bright pink rubber gimp suit, which squeezed his whole body from his neck to his toes in very tight and very thick rubber. The over lubed suit was made to fit him perfectly in this bondage position. Built into the suit was a penis shaft, gloves and fake rubber boobs. A thick transparent latex suit was put over that lot. Which made the boobs look almost real in the way they acted with the latex. The second suit was also covered in lube. She wanted him to stink of wet latex and rubber.
+
+His cock had been placed in a stainless steel chastity cage, which was so small it was painful. The pink rubber penis shaft from the first suit was made for his dick to be locked up. The second suit trapped the cock under a layer of latex as well. To keep things fun she had placed a small metal ball crusher around his rubber covered manhood. It was bitting down through the first layer of rubber. The chastity cage also had a built in e-slim. She had placed a huge rubber butt plug up his ass and that too had e-slim built in. The wires went into a control box, which was in his fake boobs. The wires had been made as see through as possible.
+
+His feet had been locked into leather knee high boots with a 8’ heels. They had been closed so tightly they folded in the latex suits and more then likely cut off some blood. A transparent re-enforced latex corset had been worked shut around his stomach. This made his fake tits lift up and kept him compressed and under pressure for air. She had filled his mouth with her dirty underwear. She had then covered his mouth in electrical tape.
+
+The tape was wrapped so tightly around the bottom half his face it was making his teeth hurt. The layers of tape stopped him from spitting the underwear out. She had then placed a very dirty and smelly pair of panties over his head. It covered his gagged mouth and nose. The bright pink colour added ever more humiliation. A very tight transparent latex hood was next. Which kept everything under it in place. Anyone would be able to see the details of what was under the hood.
+
+It was not the only thing around his head. A massive black leather collar was tightly locked around his neck. This stopped him from removing the hoods and the gimp suits. The next item had cost her a lot of money to get made for him. It was a transparent reenforced rubber gas mask, which was padlocked shut. It had two rubber tubes which connected up to a couple of large rubber bottles at the top of his back. Two small tubes pocked out the top of each bottle. This was a bottle rebreather set which had been filled with liquid. She was making him breath in (through his nose) her old smelly piss and her liquidised shit.
+
+Both bottles were bubbling hard as he tried to break free. Thankfully he was very well restrained in a set of solid metal cuffs and a mile of chain. He had cuffs around his ankles, below and above the knee, thigh, wrist, below and above the elbow, neck, stomach and linked to his cock cage. His legs had been chained very close together, he was still able to walk. But with only small steps. His arms had been chained to the side of his body with his hands pointing towards each other at a 90 degree angle. Right a cross the stomach. With the aid of the chains his arms had been linked to the very tight metal cuffs around his stomach, chest, hip and neck. Plus the chains from his legs had been joined to the stomach cuff as well.
+
+To stop his fingers playing with anything they had been placed in heavy duty rubber mittens. The thick black rubber enclosed his hands with easy and removed his sense of touch. She had wrapped him in chains that linked one cuff to the next. The pink and transparent rubber suits had been design with this level of bondage in mind. They flowed over the areas of open skin in a perfect fit. The chains stayed right up against his body as he tried to see where they were all linked to. Oddly he still had a bit of movement with his legs being able to walk and he could fold and turn his back. His neck could be moved, but the collar stopped it being too free. His arms on the other hand had no movement. They had been nailed to the side of his body and stomach. The restrain system worked like a straightjacket.
+
+**Outfit Two. New girlfriend. The slut.**
+
+His willing fuck friend would be humiliated as well. She had let him cheat on her and had acted like a real slut. Which is where she got her outfit idea from.
+
+Emily had squeezed the dirty slut into a crimson red latex catsuit. Which was partly transparent and covered the whole body in very tight latex. Over the catsuit was a full body fishnet outfit. That was followed by a bra and panty set in black latex. The idea was to make her look sexy. Apart from the head. She had been placed in a new design of hood. The hood was made from thick transparent latex and mixed together a few different fetish hood ideas into one. So the hood had elements from a pigs mask and a dildo hood. It had a 9 inch dildo sticking out the front of the hood, where her mouth should be. On the inside of the hood in the same spot was a dildo gag which was 5 inches big. Meaning she would be sucking cock at all times in the hood. The hood had also been made to look like a pig’s face and it even had ears. It also had nose tubes, ear plugs and bells hanging from the end of the penis gag. A massive leather collar was keeping this girls neck pointing forwards and straight. She had placed a leather corset around her body and pulled it so tight it was cutting into the latex.
+
+She had added zip ties to the base of each breast and closed them as tightly as she could. She had then put huge nipple clamps on each breasts to bite down on them.
+
+She was also in heavy bondage with her arms trapped inside a latex arm-binder. Which forced her elbows together and with the help of some straps the arm-binder was kept against her body. Once again her legs had been cuffed together, but with enough of a gap for her to walk. She had a set of restraints around her ankles and another set just above her knees. The arm-binder was linked to the upper set of restraints by a chain. The double set of cuffs also kept her knee high ballet boots on her feet. The extreme footwear was a nightmare to stand up in, let only walk.
+
+Something that was not visible, were the sex toys in her pussy and ass. Emily had found two of the largest rubber toys online and after some lube and force. They now both rested in this poor girls holes. The bases of the sex toys could be seen through the catsuit and it was even poking out. She had also put a cow bell on the collar so the little bitch made some noise. She also put a used condom on the penis gag/hood as well. With that done she emptied a 500ml bottle of cum over her face and body. She had rubbed it in and left the stupid slut covered in it for the ride down.
+
+They had finally reached the drop off point which was somewhat out of sight. Emily quickly parked the van and got out. She was still wearing her stunning latex body suit and did not care one bit if someone saw her. She opened the back doors to the van. She pulled the two gimps out of the van one by one and pulled them up against a wall. She closed the van doors and got back inside. She then drove off. Leaving the two latex and bondage covered gimps in the heart of London. Without money and the keys to the restraints. The heat was beating down on them as they stayed in the alleyway they had been left in. Their eyes trying to see clearly through the latex hoods.
+
+It did not take long for someone to spot them in all their glory. As Emily headed for home. She was laughing all the way as the thought of them being found made her smile. Meanwhile back in London. The two latex gimps had people all round them. Touching them and joking. Under the hood, they both cried out in despair for someone to free them. They tried walking or jumping around. But the bondage stopped them coming a quick escape. The latex was asking to be slapped and gripped.
+
+The suits had become sweat fill prisons. All they could see where people taking pictures and videos. They struggled to get people away from them. Moaning loudly through the gag. Panic filled their bodies as they walked down the street. They could only take small steps and they had no hope of getting away from anybody. The minutes trick by as they were played with by the the public. Somehow it took the police about three hours to turn up. They had also reached the other end of Oxford Street in that time.
+
+They got put in the back of a police car and driven to the nearest station. Emily had been watching on twitter for news and was happy to find it.
+
+What would she do to them next time?
+
+M88

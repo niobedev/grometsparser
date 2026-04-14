@@ -1,0 +1,422 @@
+---
+original_url: https://www.selfbound.net/storiessz/sara_christina_lynn1.html
+subcategory: Selfbound Stories
+title: Sara, Christina & Lynn
+authors:
+- Voodoo
+tags:
+- Sbf
+- caught
+- F/ff
+- F+/fff
+- bond
+- wool
+- straitjacket
+- wrap
+- chast
+- cons
+- X
+---
+
+This story merges 'A Nice Surprise' 'Going Out' & 'Lottery'
+
+**1: A Nice Surprise**
+
+Let me start by introducing myself, I am Sara, during the summer I am
+a part of the animation team in one of the more well-known vacation retreats.
+This not only keeps my body well-toned it also pays enough to survive the
+winter months quite comfortably. I am about 1.70m with brown hair which
+people say fits beautifully with the tan I also get from my job.
+
+Enough explaining back to the story, I arrived home after a long season in the resort. It was already getting
+quite chilly and I immediately put on the heating. I wanted to treat myself
+so I decided that it was time for a little selfbondage and started to set
+things up. I called my best friend Lynn and arranged to get together for
+a drink later on as we hadn’t seen each other for several months, she watches
+my house when I am working in the summer so she has a copy of the key,
+which also provides me with a good backup for my games.
+
+I started by locking a chastity belt, the key of which was together
+with all the others in an envelope in the closet. There would only be one
+key available, which in turn is frozen in ice. I put on a white woollen
+bodysuit, which covers every inch of my body from head to toe; it also
+has a hood, which I didn’t close yet. I inserted a sponge tennis ball in
+my mouth and started to wrap an ace bandage over my mouth to keep it in.
+When I was finished I couldn’t utter a sound. I zipped closed the hood
+and connected the two zippers with a small padlock, the only part of my
+body still exposed were my eyes. I tied my ankles together with a black
+scarf making sure the knot was in front. I then proceeded by wrapping a
+few 3-meter scarfs around my legs turning them into one big leg.
+
+I jumped to the kitchen and took the key for the handcuffs out of the
+freezer and put a string around the ice-cube hanging it from the lamp in
+the middle of the room over a plate with a few coins in it so I would hear
+it drop. This would keep the key out of reach for about three hours and
+would give me an hour to clean up afterwards. I then put a leather belt
+several inches wide around my waist and padlocked my handcuffs in the back.
+I added a large posture collar, which now kept my head firmly in place.
+I jumped over to the living room and position myself in front of the sofa
+I then wrapped another scarf over my eyes and quickly closed the handcuffs;
+I then dropped onto the sofa. I was now mute, blind and helpless, I loved
+it.
+
+After about twenty minutes, I heard the front door open and a voice
+calling my name. I struggled to get free but to no avail and although Lynn
+was my best friend I didn’t really want her to find out about my little
+secret. Only it wasn’t Lynn’s voice. Christina is another of my closest friends
+and had been invited by Lynn to join us. She had gotten the key from Lynn
+and had come over to see if I needed any help unpacking. She entered the
+living room and saw me lying on the sofa. She untied the scarf around my
+eyes and tried to open the bodysuit but without result, all I could do
+was moan into my gag. When she saw it was locked she went to the kitchen
+to find something to open it with but returned immediately with a grin
+on her face.
+
+She looked at me and said, “I’ve read about this but didn’t really believe
+people did it”.
+
+I flicked my eyes to make her release me but instead she
+left me and started to explore the closet with my toys. She came back with
+a whole lot of stuff and dropped it on the floor but without the envelope,
+this is because I had hidden it well in the back of the top shelf. Then she
+proceeded, ”I see it will take a while for the ice to melt so I can’t get
+you loose, but as I don’t want to be bored and I have always wanted to
+try this I think I might join you”. My eyes grew with amazement but it
+turned out she meant it.
+
+The first thing she did was phone Lynn and told her to come over a bit
+sooner so she would be there before the ice melted, she also told her to
+come in via the backdoor as the lock on the front door was ’stuck’. Then
+she wrote a note to Lynn saying that we had been ‘bad’ and had been left
+for her pleasure, she also explained she hadn’t found the keys so would
+just have to wait for her releasing my hands in order for me to get the
+keys. Christina left this on the table next to the backdoor. She then put
+on a black bodysuit which contrasted well with her white hair, she then
+proceeded to gag herself with her panties and a cleave gag, she yelled and
+seemed to decide that she was still too loud as wrapped a silken scarf
+over her mouth, she tried again and was satisfied with the result this
+time. She then pulled a hood over her head leaving only her eyes free.
+She took one my posture collars, I have several, and immobilized her head.
+
+She pulled up a high-back armchair and attached a pair of handcuffs
+to the back with a scarf the keys of which were also in the envelope in
+the bedroom. Christina also took a whole bunch of woollen scarfs over to
+the armchair. Christina beckoned to me that it was time for lights out;
+she wrapped the scarf back around my eyes and then wrapped another one
+around my elbows immobilizing me further. She then proceeded to tie a scarf
+around my ankles and tied it off to the sofa making sure I too had to wait
+for Lynn to release me.
+
+She later explained to me how she proceeded to tie herself to the chair
+using almost all of the scarfs. She then blindfolded herself and clicked
+the cuffs shut. All this had taken about 45 minutes so we had still some
+two hours to go. I heard her squirm and the idea of both of us helpless
+by our own hands got me very aroused. I started to squirm as well but the
+belt did its work beautifully and kept me on the edge but didn’t let me
+pass it. Christina had tied her legs spread to the chair legs; she had
+done such a good job tying herself that she couldn’t move an inch. This
+kept also her on the edge but not beyond.
+
+An hour later Lynn arrived and read the note and came in laughing. She
+briefly untied our blindfolds just to tell us that she was going over to
+her place to get a few things and left us looking at each other. When she
+returned she had five very large boxes with her, she spilled the contents
+on the floor and for the second time that night my eyes grew with amazement.
+The floor was now covered with bondage paraphernalia and woollen garments
+and accessories. She then said with a smile “prepare for a selfbondage
+weekend girls” and with that retied the scarfs over our eyes.
+
+After about two hours of struggling I felt the scarf around my elbows
+and the one tying me to the sofa being loosened. My cuffs were opened and
+then nothing. I undid the scarf around my eyes and saw Lynn sitting next
+to me; she simply said, “I suppose you know were the rest of the keys are?”
+I nodded and glanced over to Christina, she was still securely tied to
+the chair. I quickly removed the scarfs from my legs and started to make
+my way to my closet. I took the envelope and removed the lock on the zipper.
+After removing everything I went back in and released Christina. Afterwards
+we talked about what just happened and what was ahead of us.
+
+We started sorting out all the stuff I had and all of Lynn’s stuff.
+We decided that one would tie up one of the two others and then tie herself
+up. If the victim would get loose, the “binder” would become the victim.
+The third girl would act as a backup. Christina volunteered to be Lynn’s victim.
+
+Lynn smiled and started to put Christina’s hands in fist mittens rendering
+them useless. She then proceeded to fix the chastity belt on her, which
+made Christina sob a bit. She then took a straightjacket; her arms were
+fastened in front of her immobilizing them further. This one was made out
+of wool with the shorts attached. The seams were all reinforced making
+it as strong as a real one; it also had a zipper in the crotch making long
+term use possible. Lynn then folded two handkerchiefs and inserted them
+in Christina’s mouth and sealed it with tape. She then pulled a hood over
+Christina’s eyes and fixed a posture collar.
+
+She then sat her down in a single seat sofa and proceeded to tie the
+legs keeping her put in the seat. Lynn stood back and looked at her handiwork
+She fixed the scarf over Christina’s eyes and started to work on herself.
+Unlike me Lynn used an electronic timer, which opened a really small safe
+with the keys. She put on a bodysuit with the gloves attached. She then
+put two leather cuffs on her wrists. She gagged herself with a harness
+ballgag. I just sat back and enjoyed the view. She set the timer for two
+hours and tied her legs together with some rope. She sat down on the floor
+fixed a latex strip over her eyes and then closed the padlock between her
+cuffs. She too was now helpless. I watched some TV and waited for the time
+to pass.
+
+After two hours the safe popped open and Lynn started to make her way
+towards the safe. It was then that my evil side took the better of me.
+I took the keys from the safe and put them out of Lynn’s path, when she
+arrived at the safe she started to look for them, naturally she didn’t
+find them.
+
+I removed both girls’ blindfolds and asked them if they were staying
+the night, they both nodded. I replied that if they were staying I had
+to make sure they wouldn’t hurt themselves, so I had decided to keep them
+both bound. I told them they had to have their exercise so I would take
+them for a walk. I undid Lynn’s gag, she immediately started protesting
+but I refixed a gag similar to Christina’s I added a hood and a collar.
+I then connected both collars and lead them outside.
+
+When we got back I informed them I was getting them ready for bed. I
+padlocked Lynn‘s collar to a hook and said she would be prepared soon.
+She resigned quickly to the fact that even if I untied her hands she would
+still be at my mercy.
+
+Christina followed me to the spare bedroom where I removed the collar
+and hood. I inserted earplugs and started to wrap her legs together with
+some scarfs and the motioned her towards a heavy woollen sleeping bag which
+was laying ready for her. She got in and I started to fix her to the bed.
+The bag only had two reinforced nose holes so she was again surrounded
+by wool. When I was finished she was completely one with the right side
+of the bed, robbed of all her senses except touch. I then went back in
+the living room where Lynn was still attached.
+
+I asked her to participate, she nodded and so I proceeded. I looked
+through Lynn’s pile of clothes and immediately found what I was looking
+for. I took a sweater with the longest sleeves you have ever seen and made
+Lynn put it on. I put her wristcuffs back on over the sleeves making it
+impossible for her to take the sweater off. I tied the sleeves improvising
+a straightjacket. I then took her up to the bedroom and put her in a similar
+bag and position as Christina. They were like two identical cocoons unable
+to utter a word or communicate in any way. I then went to bed myself in
+some light bondage.
+
+In the morning before releasing the other two girls I prepared them
+a huge breakfast but to no avail. They got their revenge I was the victim
+for the rest of the weekend and didn’t get released from all forms of bondage
+till the Monday morning. We had regularly had real selfbondage weekends
+afterwards though.
+
+**2: Going Out**
+
+Christmas was coming up and I was lying on the sofa thinking about the
+presents I should give Christina and Lynn. We had spent several weekends
+since the summer tying each other up and I felt I had to incorporate this
+in their present. Then it came to me but I wanted to test it on myself
+first, as I wanted it to have the desired effect. It also seemed like a
+good payback for the first weekend I had spent completely tied up at their
+mercy. By the way I am Sara. I had been thinking for a while how I could
+go in public in bondage but not have people notice I was restrained in
+any way.
+
+A year ago I had met a man in the resort I worked in who had told me
+he did makeup and visual effects for movies. He told that whenever I wanted,
+he could give me a tour of his company and all the weird stuff he had had
+to make over the years. So I called him and arranged to meet with him the following day. I
+then phoned my two friends and invited to go with me, both were game. My
+little plan was working.
+
+We spent most of the day in the effects department when John asked if
+we would like to have moulds taken of our faces and he would then prepare
+special lifelike masks for Halloween or costume parties. Lynn and Christina
+immediately accepted the offer. John said it would take a while but promised
+us to send the masks after New Year.
+
+A few days later John came over to my place and delivered all the masks
+and the extra ones I had asked him to make, he explained how to put them
+on and take them of and all the other things I should know.
+
+After he was gone I felt I should try several of the items and bondage
+ideas for public bondage. I inserted a small foam ball in my mouth and
+taped it shut, I then took one of the masks, which was an exact copy of
+the lower half of my face and glued it on to my face and neck. After that
+I looked at myself and was astonished, looking back it was me but when
+I tried to speak nothing could be heard. The mask had my complexion, lips
+and skin colour yet my ability to speak was gone.
+
+I put on my coat, scarf and hat and proceeded with the next part of
+my bondage. For what I had in mind I could only do to myself to one hand
+but that would be enough for now. I took five metal strips and taped them
+on my palm and underneath my fingers and thumb. This took away my ability
+to bend my fingers, which I then taped together. I slid a modified wrist
+protector over my hand and wrist and this took away the ability to move
+my hand at the wrist completely. I the pulled a mitten over it and I was ready to go out. I closed the
+door and went for a walk into town and encountered several people and even
+went into a few stores. Nobody seemed to notice anything, as I didn't even
+get people staring at me.
+
+The day before Christmas there is always a big open-air disco in town
+and this year as like all the years before it was very cold. It was time
+to set my plan in motion.
+
+I called Christina and asked her to come over in 15 minutes to get an
+early present. I then called Lynn and asked her also to come over but in
+1 hour's time, this would give me time to prepare Christina. When Christina
+arrived I told her I would give her present if she promised to wear it
+to the dance... she agreed. I proceeded to prepare her but first I put
+a blindfold over her eyes as to keep it a surprise. I then gagged her and
+applied the mask, she wanted to protest but couldn't as I reminded her
+of her promise. Within 30 minutes she was sitting in my sofa with two useless
+hands and no ability to speak. When Lynn arrived she too agreed and joined
+Christina in her bound faith. I then put on their coats, scarfs and mittens
+and led them to the dance.
+
+We danced the night away and each time a guy came up to them all they
+could do was wave him away with their mittens. When we got home I released
+them and both agreed that it had been a wonderful experience. They promised
+me I would be sorry for this prank over Christmas. As we were celebrating
+this holiday together they started on me right away. First they put me
+in a chastity belt and then they locked a couple of fist mittens over my
+hands. They had already rendered me quite helpless and decided to let me
+wander around the house but not before adding a blindfold and gag. I had
+to stay like this until the next morning.
+
+As it was a beautiful day Christina said that I should enjoy it in the
+garden, but not without the proper preparation. I had to put on thermal
+underwear, a full bodysuit actually. They added a corset, which restricted
+my waist and kept my back completely rigid. Lynn added a chastity belt
+and told me that this concluded the first layer. After this I had to put
+on one of my woollen full bodysuits with gloves and hood attached. They
+gagged me and locked everything with a padlock. I looked in the mirror
+and only saw a silhouette with a narrow waist.
+
+And they went on, they gave
+me my present, I was put in a posture collar but this was a special one.
+It had an open face hood attached, which I discovered had padded areas
+over my ears. The collar also had a body harness on it which was connected
+to my corset and had several metal rings in it where to attach all sorts
+of cuffs. It turned out that the body harness could be used separately
+from the collar. I had to make fists again as my hands were wrapped in
+ace bandages.
+
+I was almost ready, they produced the piece-de-resistance.
+This was a double cape, double as it had two layers.
+
+The outer layer was a normal cape in wool with the difference that the
+hood was replaced by a balaclava leaving only the eyes free. The inside
+layer is the one that got my attention however. It seemed to be made out
+of some sort of very thick and almost rigid rubber. My arms were locked
+in special cuffs on the inside, as were my legs. The inner layer was wrapped
+around me and as I discovered was also very form fitting as it pinned my
+arms to the side of my body. They adjusted some straps on the outside of
+the layer and I felt like had been mummified.
+
+The outer layer was added
+and taking only very small steps I was led outside. If anyone had seen
+me they wouldn't have noticed anything but a person with a hood and a cape.
+
+Around dinnertime Christina came to get me and after releasing me told
+me to take a shower and wait for her in the bathroom. I was taken downstairs
+and saw Lynn had been completely mummified with ace bandages and scarfs
+to a high back chair except for her eyes and mouth. She was gagged with
+a red ballgag. Christina explained that Lynn had gotten in the way in the
+kitchen and that this way she couldn't break anything.
+
+I soon joined Lynn
+in a similar position and we were later handfed by Christina.
+
+Near midnight
+she released us both and let us have our revenge.
+
+**3: Lottery**
+
+Since I was first found by Christina and Lynn, we had had several bondage
+weekends and a lot of selfbondage. I was presently tied to a chair with
+at least 10 3m scarfs all thick but very strong. I was thoroughly gagged
+by Lynn when Christina came in and shouted, “WE WON, WE WON”. I myself
+was not very responsive but as it turned out we had won the lottery. We
+had played for years and never won anything, now we were millionaires.
+
+We moved to a larger house and started with the decoration we had one
+wing completely devoted to our hobby. It was stocked with mainly scarfs
+and a lot of woollen garments, but it needed more. Then we saw an announcement
+for a shop in London, we had found our supplier. We called them and arranged
+a meeting for a large order. They told us that they had a special hotel
+for clients who had the time and money, so these clients could try out
+all the material they needed. We filled in some lists and prepared for
+three weeks of try outs. We were going to be picked up by a private plane
+and be transported to the ‘resort’.
+
+On the day we went to the airport bright and early where we were met
+by some employees of the firm. They took our luggage and showed us to a
+room for the travel preparations. We were asked to strip to our underwear
+which we promptly did. We were all three fitted with fist mittens, which
+were lined with wool; our hands were now rendered completely useless. They
+then proceeded to wrap our whole body in ace bandages.
+
+Our arms were then
+attached to our bodies and our legs were wrapped together. Three backboards
+were produced and straps were passed over our bodies we were now immobile
+and strapped, ready for transport. The last item added was a head harness
+with a blindfold and ear covering. I felt myself being carried and the
+backboard being attached to something. It was a trip filled with anticipation,
+if this was the way they transported us what would it be like during our
+holiday. By the time we arrived I was very hot and bothered and in no position
+to do anything about it.
+
+We were welcomed at the hotel and after a good nights rest we went down
+for breakfast. The manager Jess was a stunning blonde, she told us that
+we were going to be shown the grounds but were to be kept in bondage the
+whole time we were staying here. She also told us that they had studied
+our list and had selected several items and positions to try. We also got
+the news that we would get lessons in tying and selfbondage as to heighten
+our bondage levels.
+
+One of the major rules was, no sexual satisfaction without prior permission
+so we were fitted with a chastity belt each which was the first thing for
+us to try. We looked at each other and smiled. This stay was going to be
+fun, a lot of fun. A hood was fitted leaving only our eyes free, the mouth
+was kept closed and again our hearing was impaired. But then the ingenuity
+of the helmet came through, well one of the features, everything Jess said
+came through, other sounds were completely blocked. The audio was not the
+only thing, our hoods had neck corsets built in so our heads were kept
+very rigid and turning would take our whole upperbody.
+
+Our hands were fixed in leather cuffs, which in turn were fixed in a
+cowhide muff. This muff was locked on the outside and fixed to a wide belt,
+which was fitted around our waist. It turned out that this came straight
+out of an insane asylum. We were now ready for the tour, we thought. But
+we were fitted with a heavy woollen poncho so as not to catch a cold. The
+tour began and we saw several other guests in different types of restraints.
+The one thing I noticed was that everybody was unrecognisable and mute.
+That did wonders for the atmosphere in the resort.
+
+When we got back we were put in a full padded room. The staff started
+to prepare us for our next position. Our hands were released but we were
+told to keep them to our sides. After they removed the chastity belt was
+removed. We were put in woollen overall with attached gloves and feet but
+with the crotch open thus exposing our intimate parts. The hoods were kept
+on. Then Jess and a few of her helpers produced some bars. Over the overall
+a specials harness was fitted, my hands were attached in front of Lynn
+and Christina’s pussy. In front but at a small distance by a bar so that
+I couldn’t touch them no matter how hard I tried. Christina was to my left
+front and one hand was covering my pussy in the same manner I was. Her
+other hand was just short of one of Lynn’s breasts. Lynn’s hands were kept
+short of my and Christina’s breast. Kept short is not quite correct the
+hand was able to brush the object of its desire.
+
+Our neck corsets were the attached by bars as was our body harnesses.
+We were now forming a perfect triangle cupping breasts and pussies without
+being able to come. And then we were lifted in the air by pulley. So now
+swinging from the ceiling were three forms deaf, mute and frustrated and
+it was only the first day. After what seemed ages we were taken down and
+allowed to go to the toilet and were fed. After that it was bedtime.
+
+Our beds were very soft but had a leather sleeping bag on each. One
+of the staff explained that these were selfbondage mummysacks and showed
+us the zipper on the interior sleeves. But as we were under their control
+this would be solved, they simply locked the zippers on the sleeves so
+they couldn’t open. We were put in and immediately fell to sleep, what
+would the next days bring?
+
+2001

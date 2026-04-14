@@ -1,0 +1,959 @@
+---
+original_url: https://www.latexstories.net/storiessz/special_delivery7.html
+subcategory: Latex Stories
+title: 'Special Delivery 7: Playing Doctor And Patient'
+authors:
+- rbbral
+tags:
+- M/f
+- D/s
+- latex
+- exam
+- insert
+- vacuum
+- toys
+- oral
+- anal
+- mast
+- outdoors
+- cons/reluct
+- X
+date: 2006-03-09 00:00:00
+---
+
+continued from [part 6](special_delivery6.html)
+
+**Chapter 7: Playing Doctor And Patient – And More!**
+
+He was standing by the gyn/ob examination chair. Over his head he had
+placed a large white rubber smock covering him from chest, and under arms
+down to his shins. It shone under the bright lights over the chair. So,
+she was going to get a thorough “examination,” was she? Over his black
+helmet he had pulled a white rubber surgical mask, with straps holding
+it firmly in place. She could see the mask billow as he breathed in and
+out through his nose. He was clearly getting turned on by the rubber aroma.
+She assumed he was smiling at her nervousness. He motioned her over and
+held open the back of a white latex catsuit.
+
+“We must be telepathic Latexa, I do admire your matching mask, how
+thoughtful.”
+
+“So are you going to operate on me? Am I to be your experiment?” She
+said as she stepped into the cool white leggings.
+
+“Don’t be sour Latexa, you might enjoy this, I think you will, and
+you will come to no permanent harm.”
+
+She didn’t like the sound of “permanent”
+so whatever was going to happen was probably going to be painful. She pulled
+up the suit past her hips and noticed two large holes opposite her pussy
+and arse; she wasn’t really surprised at this if she was going to be “examined.”
+As she pushed her arms through the sleeves she noticed two large holes
+for her breasts to poke through. The holes were slightly smaller than the
+base of her breasts, such that she had to grip each one and pull it through!
+The effect was to grip each one and push them up and out in an exaggerated
+way.
+
+“Jesus, I feel ridiculous, like some cartoon.” She said, adjusting
+the suit as he zipped her up the back, covering the collar of the mask.
+
+“Quite the contrary Latexa, you look fabulous; now sit here, you will
+find the next couple of hours interesting, I think.”
+
+No need to argue,
+so she settled into the seat, leaning back into the headrest and placing
+her forearms on the armrests and feet in the stirrups. It was a position
+she was not unused to, like all women she had been in a chair like this
+before, but not dressed as she was, nor with a “doctor” dressed like he
+was!
+
+She breathed deeply, settling into the chair, her feet were stretched
+wide, maybe four feet apart and she felt very exposed, her pussy stretched
+and peeking through the hole at her crotch. Likewise her sphincter was
+exposed as well, as she lay back at a 30 degree angle. Moving between her
+legs he quickly strapped her ankles to the stirrups and then her thighs
+above the knees. With nothing spoken, her wrists and elbows were strapped
+to the armrests. Now she was going nowhere, and he could do anything with
+her as he pleased. Yet although she felt exposed and vulnerable, she didn’t
+feel threatened in any way. He could have done anything he wanted to her
+over the last few days. And well, he had done, for his own sexual gratification
+and she admitted some of her own! But her life was never under threat,
+no, she was going to be plugged and tormented, of that she was sure. With
+her strength of will she was convinced she would survive. Further straps
+went round her waist and a loose one round her neck. She could breathe
+fine and move her head, and wriggle slightly in her chair but that was
+about it! He fondled her breasts, twisting her nipple rings gently and
+she winced, partly in discomfort and partly in pleasure.
+
+“Latexa, over the next couple of hours you are going to be subjected
+to my undivided attention. You will be attacked from all sides, as they
+say. All your orifices will receive my ministrations. I will explain everything
+to you nice and slowly. I can assure you it will be an experience you will
+never have remotely had before. No talk or comments from you are necessary.
+Any questions will be answered soon enough. We’ll start at the bottom –
+yours. In your arse I am going to shove this!” He held up in front of her
+a gleaming black rubber dildo with a long tube attachment. “It doesn’t
+look big now, but it is inflatable. The air passes through the tube and
+inflates the dildo in your bum. However the interesting feature of it is
+that it can be put on a cycle, so that it can be blown up in side you for
+a period, then deflated and then inflated again, and repeated ad infinitum.”
+
+He smeared some lube over the dildo, and knelt down between her widely
+stretched legs.
+
+“Open wide.” He smirked, and firmly pushed the rubber prong against
+her sphincter. She looked down and saw his black head and white mask, and
+he concentrating on the task. She tried to squeeze her cheeks but to no
+avail. Various intruders had loosened her over the last few days and her
+puckered hole was soon yielding as, inch by inch, the rubber entered her.
+Soon she felt the base plate at her opening. She felt impaled, and let
+out a small moan.
+
+“You feel a bit tight Latexa, but over time this will stretch you out
+some more. Now for the next hole, and a small variation on the dildo. This
+will go into your sweet, shaved pussy; however at the base here you can
+see two minor variations. This small ring when opened passes through your
+labial rings and it then snapped shut, so the dildo is locked inside you!
+The second feature, and I think you will like this, is a small clip, which
+I will attach to your bud, your sweet clitoris. Not tightly though, and
+through this wire a small variable current will pass, sending you a flow
+of pleasure, maybe too much pleasure. We’ll start off with low current
+at long breaks and maybe work our way up from there. Oh yes, and it will
+be at different intervals to the inflatable dildo up your bum and in your
+pussy here.”
+
+She cringed, saying. “Christ, Rubberman, where did you learn this? What kind of mind comes
+up with this?”
+
+“Easy now Latexa.” He said, looking up from between her legs, his voice
+stern behind the surgical mask. “My mind is fertile and without boundaries,
+and the sole aim is sexual gratification, and you may even surprise yourself,
+not for the first time, by sharing my pleasure.” With finger and thumb,
+he prised open her pussy and eased the rubber inside her. She was surprised
+to feel it slide in quite easily and he noticed with a wry smile behind
+his mask that she was actually quite wet inside. He flicked and pinched
+her bright red clitoris, and she panted.
+
+“Fuck, fffffffffff.” She stuttered as the bud enlarged. She let out
+a slow sigh as he slid the rubber dildo into her and deftly clipped the
+attachment to her clit. It didn’t hurt but she was certainly aware of its
+presence. She was now well plugged, back and front and tubes trailed out
+from her to a small compressor and battery with an adjacent timer. He then
+took from the table next to her two plastic cones shaped like breasts and
+held them up to her.
+
+“You have superb breasts Latexa, firm and large – quite the centrefold
+you would make, particularly when they are pushed out, like they are now
+by the suit.” She looked down and had to agree reluctantly; there was a
+balloon effect as they were squeezed out by the holes in the rubber suit.
+
+“But every thing can be improved, you cannot have too much of a good
+thing, I say. So I am going to attach these to your breasts and these tubes
+at the nipples will vacuum air out and pull your boobs into the vacuum.”
+He leaned over her; she glared at him but said nothing. He placed the clear
+plastic cone over her left breast, at the base of the cone there was rubber
+edging and two bayonet attachments which he lined up with the slots in
+the holes in her suit and twisted it shut. It was now firmly attached to
+her suit and her breast was imprisoned in a tight plastic vacuum cone!
+Studiously, he repeated the procedure with the right breast and then stood
+back to admire his work. She looked down at herself, the obscene plastic
+cones sticking out like torpedoes, her brown ringed nipples trapped inside,
+and in the mirror opposite (he always had strategically placed mirrors)
+she could see the tubes hanging down between her legs.
+
+“You should have been in the Spanish Inquisition.” She said, taking
+a breath and leaning back.
+
+“No, no Latexa, I’m much more inventive, and I am doing this to push
+the boundaries of pleasure, mine and yours, not some warped mission from
+God. This torture you will undergo will be quite exquisite!”
+
+He then raised the final device and dangled it in front of her, almost
+taunting her, she thought.
+
+“Finally, the piece de resistance – I hate that phrase – anyway, this
+serves several functions. It is an anaesthetist’s mask, which is strapped
+around your head. However when I turn it inside out you will see inside
+is a nice rubber cock for you to suck on and keep you quiet. Through the
+cock you will see a hole through which, via this tube you will have your
+breakfast pumped into you. Don’t give me that look; there is no negotiation
+here. The tube here goes down your throat into your stomach; remember you
+had one when you were in the crate. I know you can handle it. This other
+tube above the gag provides you with rubber-scented air or, should I decide,
+a mild anaesthetic to put you in a happy half-sleep. Open wide Latexa,
+no tantrums now.”
+
+She dipped her head as far as the collar strap would allow and he pressed
+the mask over her nose and mouth. She opened her mouth and meekly accepted
+the rubber cock. It was thick and had two slots at the base, which her
+teeth slid into. She ran her tongue over the contours, it had a large head
+and she even felt veins, it was amazingly life-like.
+
+“Just in case you were wondering, I took a cast of my cock a while
+ago, quite exciting though I had to shave for it. Then I filled the cast
+several times with liquid rubber or silicone to get perfect casts of my
+cock. So you are now sucking on a perfect facsimile of me; it will give
+you good practice for later perhaps, if you behave yourself, anyway, enjoy!”
+he could see her somewhat startled eyes as she mmmffed into the gag as
+he pulled the straps over her head. She lay her head back in the headrest
+and breathed slowly the rubber scented air.
+
+Glancing down beyond the mask
+she saw him take a tube attached to a large bag of fluid hanging from a stand by the chair and
+slowly push it through the front of her mask. She felt it touch the back
+of her throat, and naturally started to gag, but he held her forehead firmly
+as he pushed the tube down into her, while she silently breathed in the
+rubber-scented air through her nose. It was difficult for her to swallow
+with the cock gag, and he had little trouble in pushing it in to its full
+length. He locked it at the front with a metal locking screw. She breathed
+slowly, her plastic-coned breasts rising and falling. How ridiculous she
+looked, she thought. Her nasal tube split into two and was attached to
+two breathing apparatuses at her side, one she knew held the old rubber
+pieces that sent the strong aroma to her now and the other to a metal canister
+which she assumed was the anaesthetic. She tried to relax, which was difficult
+as she could see him between her legs twiddling with the dials on the pumps
+and other machines. He looked up at her, his eyes sparkling with excitement.
+
+“All right, we are ready for take-off. Your tit-pumps will suck out
+the air, and then hold for three minutes and then release, and repeat.
+Your arse and pussy dildos I’ll start on alternate cycles of two minutes
+– arse expands, pussy contracts, et cetera. I might as well start your
+feeding now.” He released a clip on the bottom of the bag and the tube
+twitched slightly as the fluid passed down and into her. He sat down in
+front of her.
+
+“You must allow me to enjoy the performance – front row, centre stalls,
+I can see why these are the best seats in the house! I can’t tell you how
+exciting it is to see a full-grown formerly independent woman reduced to
+a plaything, plugged, pumped, gagged, fed and most important, aroused.
+I’ll turn the controls on now and send you on your new journey of discovery.
+Oh, one last thing I forgot, once your tits are expanded in the vacuum
+cones, your nipples and rings will contact a metal pad at the ends, and
+this transmits a low current, so you will get a little “buzz” there too.
+Tit and clit, both under electro shock control. Enjoy the ride!”
+
+She glared at him as best she could, and screamed obscenities into
+the cock gag, all the while fluid was seeping into her stomach, then with
+a hiss the vacuum pump started and she felt her breasts being pulled to
+the cones surface. At the same time the dildo in her arse began to expand;
+she tried to clench her cheeks, but that wouldn’t work. Her tits were now
+glued to the cone and she immediately felt a sharp tingle in her ringed
+nipples. This was not painful, which was a bit of a relief. She peered
+at him over her mask, sitting relaxed in his chair, enjoying her torment
+and rubbing himself through the apron and the catsuit. Two minutes passed
+and the arse dildo deflated to her relief, but then her pussy dildo began
+to grow in her and once fully inflated she felt the clit clamp come on.
+She started to writhe in her seat as all the devices went to work. This
+is crazy, she thought, there was no way she could take two hours of this.
+Her nipples were now terribly sensitive to the electric pads inside the
+cones and the clit clamp was sending shivers through her, not to mention
+the dildo in her pussy. And all the time she was being fed by a tube down
+her throat, she was sucking on a rubber cock and was breathing in the pungent
+rubber aroma!
+
+She looked at him, imploringly, pleading with her eyes, but this had no
+effect. She was being plundered in all orifices and on all appendages.
+He was controlling her feeding, breathing and her sexual reaction; and
+he was sitting in front of her, almost motionless, thoroughly enjoying
+himself. Yes, she was his rubber doll again. Her breasts deflated and she
+relaxed for a moment, but then her pussy dildo deflated and then the one
+in her arse began to grow again. Within ten minutes, it seemed like an
+age, she had her first orgasm, shaking silently in her seat, clamping down
+on his cock gag, breathing the sweet rubber air.
+
+She was a puppet, and he was her puppet master. Shortly another orgasm
+took her, while he sat, almost impassive, looking at her reactions. He
+was in control and she had yielded to his precise plans; that her orgasms
+and her pleasure were to be associated with the feel, look, smell and taste
+of rubber, and all the accoutrements – electro-shocks on tit and clit and
+dildos in her orifices. She was to be a rubber slave and her body’s reaction
+confirmed this. As the minutes rolled by, her tits expanded and contracted,
+her arse and pussy were stretched and her nipples and clitoris were aroused
+by electrical stimulation. She sucked on his rubber cock and was fed a
+liquid breakfast, goodness knows what was in it for she tasted nothing
+but rubber.
+
+After maybe an hour, she did not know, she was exhausted, and sat the
+chair, soaked in her sweat and, she was well aware, her own copious juices.
+She screamed into her gag, “no more, no more, you bastard.” He stood up,
+as if he had heard her, but did so only to change her breathing tube from
+the aroma casket to the anaesthetic canister.
+
+“I don’t want you completely out, you must take pleasure in your predicament,
+but a mix of anaesthetic and air will keep you on the edge.”
+
+The smell
+of the air changed and she began to feel a little drowsy as he removed
+the feeding tube and plugged the hole in the mask with a small stopper.
+He resumed watching her as she drifted in her reverie of semi-conscious
+arousal. She glanced down as her boobs continued to rise and fall, and
+her arse and pussy were stretched.
+
+She drifted off on occasion, and then would awake to be wracked by
+one after another orgasm, rocking her body. She wondered if it was possible
+to die from too many of them, the French called an orgasm “le petit mort”
+didn’t they? Well, there was nothing “petit” about the ones she was experiencing!
+Time past by and she would glance at him, sitting passively, thrilling
+in her defenceless plight. After an eternity it seemed, he replaced her
+breathing tube again for the rubber casket, and she was assailed again
+by the sweet smell of latex. She was now less drowsy, but still exhausted
+by the continuous assault. Her arse was sore, and her pussy and boobs too.
+His perfect replica cock in her mouth seemed to have grown. After the initial
+wriggling she sat back and accepted her shuddering climaxes, almost hating
+her own body for betraying her. But she had no choice, for now she was
+a rubber doll, a latex, cock-sucking slut! What also frightened her was
+that despite the exhaustion and indignity, she was aware that it was a
+pleasant feeling and she was almost ashamed of herself – almost!
+
+Finally, after an eternity, he rose and turned off the vacuum pump
+and took the cones off her breasts, oh, the relief, she silently thanked
+him; they were now more pink than brown and her nipples were on fire. With
+a rubber gloved hand he tenderly wiped the sweat from the enlarged boobs,
+she groaned and he smiled behind his mask. Next he removed the anal dildo.
+Her sphincter gripped it firmly and seemed as if it didn’t want to release
+it. But he withdrew it, smeared with her juices. Her anus felt strange,
+almost hollow, but she didn’t miss the intruder. He released the clamp
+from her clit and that really was a relief. Then the dildo was withdrawn
+from her pussy, after he had opened the locking ring which had locked around
+her labial rings. It came out with an audible plop and a considerable flow
+of her juices. She sighed and felt, again, a strange emptiness. He bent
+her head down and pulled the straps over her head. The cock slipped out
+of her mouth, coated in her saliva. She gasped, drawing in a lungful of
+clean air.
+
+“Oh God, oh my God, Rubberman, is this ever going to end? I think I
+was near death there. Jesus, I am shattered, I must have come a twenty
+times.”
+
+“More than that, Latexa, but then who is counting? I’d say you had
+as much fun as I did watching you.”
+
+“I don’t know about fun when I am played like a marionette. Well, you
+must be happy, I certainly was your little rubber doll, your obedient rubber
+slave, your… rubber-sucking puppet.”
+
+“And you were magnificent, why are you so upset? You had twenty climaxes,
+nobody can fake that. That’s more orgasms than some people have in their
+whole lives, for God’s sake.” He released her bonds and pulled her out
+of the chair. She stood groggily, and glanced back to see the seat glistening
+with her juices. She felt the sweat within her suit, there must have been
+a glassful, she thought. He handed her a towel and she wiped herself, tucking
+it through the holes at her crotch and mopping up!
+
+“Come with me,” he said and moved to the bedroom, she waddled behind
+him, her arse and pussy tender, and her large boobs pushed out by the tight
+suit. She stood silently by the bed as he took out some more clothes.
+
+“One thing we haven’t done since you arrived is your corset training.
+There is nothing like a firm figure held in a rubber corset’s tight embrace.
+You have a fine body, a great body already, but you will find a corset
+will even improve it. It is wonderful for posture and confidence. I admit
+I have worn them, and I love them, you feel sort of….. empowered in them.”
+
+He held open a black rubber corset with red lacing at the rear. It was
+heavily reinforced with hidden steel strapping and fitted to under her
+armpits and bulbous boobs and down to just above her groin. He started
+to lace the rear, starting at the top and lacing to her waist, then at
+her arse and lacing to her waist again. Very soon she was teetering on
+her toes and taking short breaths. He made two bows at the ends and tucked
+them in. There would be no way she could extricate herself from this tight
+embrace. Again, she had to concede to his devious mind; in the mirror she
+looked quite fantastic. White mask and white suit with brown orbs jutting
+out, and all offset by a shiny black corset squeezing her into an hourglass
+figure and keeping her posture erect. He was right, somehow she felt powerful
+again, confident, proud. The mix of emotions he was forcing on her was
+confusing. Always, he seemed a step ahead of her, and she had to admire
+his guile.
+
+She noticed D rings strategically placed at various locations, for
+bondage, no doubt, and this was confirmed when he produced two fingerless
+latex mittens and motioned her to hold her hands out. She slipped her hands
+into the cool latex and he tied them tight to her wrists. At the ends of
+the mitts there were similar rings and he brought her hands behind her
+back and fixed them to two rings embedded in the corset in the small of
+her back. There was some play in her arms but for all practical purposes
+she was again made powerless. Having her hands behind her back pushed her
+boobs out even further, and although she was subjugated she was rather
+aroused by her sexy appearance.
+
+He produced a pair of black ankle boots with five inch heels which
+he laced up tight. The next piece she was not so keen on but had little
+choice about was a rubber gusset piece with two attached rubber plugs.
+She obediently widened her stance and he attached two straps to the front
+of her corset and drew the single strap between her legs. She was still
+moist in both back and front and she was amazed how easy it was as they
+were forced inside her. A week ago her arse wouldn’t have accepted this
+plug so easily, but now it slid in with very little trouble. He pulled
+the strap tight at the back, pushing the one inch diameter plugs deeper
+inside her, and fixed the strap to the corset.
+
+He stood back and she walked
+around the room, feeling the probes move inside her. He sat on the bed
+and, not for the first time, admired her. She on the other hand, felt utterly
+subjugated, rubberised, corseted and plugged, and yet, again, not for the
+first time she felt aroused as the plugs moved within her. She jiggled
+her boobs and smiled at herself in the mirror. She was incorrigible, and
+although subjugated, certainly not defeated. Strangely, she also almost
+felt contented, was this her role in the future? To be a rubber slave,
+a latex doll to play with. No, but she’d had more sexual “experiences”
+in the last week than in her whole life. If before she was a candle, well
+now, she was a fire! Having lived as she had this last week, she could
+not give it all up.
+
+She strutted over to him and jiggled her breasts at him, he grabbed
+and fondled them, and she gasped at his touch. He stood up and took off
+his surgical mask, gloves and apron. He stood in front of her, in his three
+inch heels and her in her five inch heels; they were level with each other.
+She felt her heart pounding under her corset, her mouth was dry but her
+pussy was wet. She leant against him, breathing in short bursts as her
+tender ringed nipples brushed his latex chest. He leant against her too.
+Who took the initiative it was hard to tell, but now they were kissing,
+rubber mask leaning in to rubber mask, black on white. She rubbed her body
+against him and he wrapped his arms around her, squeezing her pinioned
+arms into her back. With only small nose holes in their masks they breathed
+noisily as she sucked and explored his mouth. It was a nice mouth and he
+was a good kisser, his tongue moving around hers. He pulled apart from
+her and held her at arms length, he swallowed, his mind in turmoil.
+
+“Well…. we have really moved on Latexa, part of me wants to take you,
+to fuck you, right here, hard and long but…. I have many more adventures
+planned for you and I don’t want this…. interlude to interfere with that.”
+
+She was regretful but not hugely surprised, he was a great kisser though,
+and she felt a little woozy, or maybe that was the dildos! But he seemed
+a little confused now.
+
+“Time for a walk now Latexa, we both need some fresh air I think.”
+
+She was enjoying the effect she was now having on him, he was clearly a
+little out of sorts and yes, she was getting to him. But equally true,
+it was clear that he was getting to her! He brought over a short black
+latex cape and placed it, somewhat tenderly, over her shoulders. It had
+a high collar and stud fastenings down the front to mid-thigh, covering
+her crotch strap and hands pinioned behind her. Apart from the strange
+material and the mask no one would know her predicament. The black cape
+nicely offset her white legs and mask. He also put on a cape which went
+down to his calves and had slits for his arms to pass through. He looked
+away as he said quietly.
+
+“I think we can dispense with the goggles this time, don’t you?” Her
+heart leapt, he was trusting her.
+
+“Yes Rubberman, and thank you for your trust.” She lowered her head
+in obedience and he gently placed his hand on it, then he nodded and went
+to the door. He seemed in a bit of a daze and with his guard down as he
+punched in the code she saw the third and fourth numbers! Yes, she was
+sure, a six and a three. So now she knew the full combination! It was 49637,
+she committed it to memory – for God’s sake, don’t forget it now, she told
+herself. Now she had to pick the right time to properly wreak her revenge.
+
+As they walked out into the garden, she realised what had gradually
+been dawning on her before was now a self-evident truth. She liked the
+rubber, maybe loved it, and the corset, the high heels, the tight anonymity
+of the mask and even the bondage. She wanted this in the future but on
+her terms, and that might well include Rubberman – for a while anyway,
+and with the tables turned!
+
+She realised that escape was not necessary; she would stay here awhile
+and indulge herself – with her own rubber slave to play with! It would
+be payback time, he might like it of course but that would be fine as she
+would be calling the tunes – and he would be the one dancing. The sun was
+shining and she was soon sweating under the cape and mask. She stopped
+to admire the view, her first “view” in ten days or so. And what a view
+it was. The country was beautiful, and she turned and saw how big the house
+was. She still had no real idea where she was, but that did not perturb
+her.
+
+“Penny for them?” he asked, slipping a hand under her cape and rubbing
+her latex cheeks. She leaned into him, almost unconsciously.
+
+“Well I was thinking how lucky you are, a beautiful house, wonderful
+setting, obviously tons of money – and now me, a real, live pet to play
+with, to use and abuse……..and then I was thinking of me, and how in the
+last ten days I have been transformed. Yes, I am your rubber doll and rubber
+pony, and a very good one I might say,” she noticed him nodding, “and I
+pride myself in my appearance and strength of character. I am your slave,
+but if I enjoy being a slave then does that mean I really am one? Yes,
+I now admit I like rubber, I see no shame in that; its sheen, its strange
+almost intoxicating smell, its impermeability and feel. I like it all.
+And I like the bondage, of being helpless as you play with me, and I can
+do nothing to stop you. The dildos get me going too, as long as they don’t
+split me in half!” they walked slowly along a cobbled path, she feeling
+the warm latex of the cape brushing against her ringed nipples. Despite
+the hundred orgasms, she felt as if she could have one out here right now.
+
+“So I don’t fear you, I now know you will not harm me, you will hurt
+me I understand and I will experience pain but I feel I can now trust you.
+I trust you as my rubber master, who will control me, but I have shown,
+as least up to now that I can take pretty much anything you throw at me.
+Oh yes, I am aware that you will have some other tricks up your sleeve.”
+
+“Yes, I have, but your victory over every challenge I have put in front
+of you has meant you are well ahead of me. You are an incredible woman
+Latexa, beyond my dreams.” He was almost stuttering now in his praise for
+her. She decided to take the bull by the horns, she didn’t now why.
+
+“Well why don’t you show it Rubberman? Be a real rubber master, come
+on I am asking you, fuck your slave, prove your dominance, grab you rubber
+dolly and fuck her blind. Fuck her in her pussy, ram your cock in her arse,
+stick it in her mouth….. you know I don’t think you really want to.”
+
+Had
+she pushed too far? Well, too late now. There was a bench with a high back
+overlooking the valley at the end of the garden. She walked over to it.
+
+“Come on Rubberman, fuck your submissive rubber dolly.” She turned
+round and saw that he had gone!
+
+Wonderful, she thought, I’ve frightened
+my slave master away. Now what? She couldn’t run away, not in this gear,
+so she sat down gingerly on the bench, the two probes being pushed up further
+inside her. As she sat she realised she loved the idea of being powerless
+here, wrapped warm in her cape with her arms pinioned behind her and the
+corset gripping her like a vice. She raised her head to the sun, and felt
+the warmth through her mask. She had lost track of time when she opened
+her eyes and there he was sitting beside her, looking at her with a wry
+smile.
+
+“How long have you been there?”
+
+“Never mind,” he smiled again, “if it is a fucking you want, then it
+is a fucking you will get and perhaps a little more than you expect!” He
+was holding a pack of condoms in one hand and a large rubber pillow in
+the other. He draped the pillow over the back of the bench. Now it was
+her turn to be nervous, but then she was excited as well.
+
+“Kneel.” He commanded and spread his legs and raised his long cape.
+
+“Unzip me, take my cock out and suck me, and do it well or you will
+really be punished.”
+
+Well, it’s now or never, she thought, hoping she hadn’t
+bitten off more than she could chew (bad pun, she thought). She knelt in
+front of him, and got comfortable; she may be there a while. She slipped
+her head under his cape and he draped it over her. In the dark she breathed
+in the strong rubber perfume as she sought out his zip at his crotch. God,
+she couldn’t get it between her teeth.
+
+“Hurry, Latexa, time running out.”
+
+She started to panic, but finally
+gripped it in her teeth and pulled it down slowly. Then she nudged the
+panels either side wider with her nose. The smell of him and the rubber
+was almost overpowering. She was panting in the dark heat. Jesus, it wouldn’t
+come, pressed against his stomach, it was very hard and very big! She licked
+it; revelling in the taste of rubber and his salty, manly taste, a sublime
+mix. With her nose she finally prised the big bell-end out. With relief
+and no small amount of lust, she opened her mouth and slid down his thick
+shaft. She heard him moan and smiled to herself. Strange as it seemed,
+she had him where she wanted him, whereas he probably thought it was the
+other way around! Now I will show you, she thought, and got to work.
+
+He was bigger and wider than she had ever had before, and she was no
+nun. She sucked hard and hummed to herself. It tasted salty and rubbery;
+it had been trapped inside his suit for a long time. She took him fully
+without gagging, then licked and nibbled him; she was genuinely having
+a good time, despite the shortness of oxygen and the heat. She wanted to
+make him come, to prove her skills and her trust in him, but after ten
+minutes or so he hadn’t, and he was still rock hard! He was a real control
+freak; that was for sure. She felt a tap on her head.
+
+“Time to come out Latexa; that was very pleasant indeed. You have great
+mouth skills. But I have to tell you I have equal skills of self-control.
+What is the point in coming fast when I can enjoy your fellatio skills
+for a long time? Well, now it is my turn to return the compliment, and
+I have much to live up to!” She popped out into the sun, her mouth and
+mask smeared with her saliva.
+
+”Come round and lean over the bench here on this pillow, and you can
+enjoy the view.” With difficulty she stood up, her arms still tied behind
+her back, and a little wobbly on her high heels. She leaned over on the
+pillow and stuck her arse out, and felt him behind her. He raised the cape
+and released the strap holding her plugs in, and withdrew the plugs with
+a double plop. The straps hung beneath her obscenely, plugs glistening.
+
+“Two nice firm holes here, moist and inviting, and I have two condoms
+here, one on top of the other, we have to be sensible here.”
+
+He draped
+his long cape over his shoulders and pressed into her. She felt a nudge
+at her bum hole. Oh, she thought, arsehole first eh? There was a time when
+maybe she would have been offended at this approach, but after the last
+ten days she now just took it in her stride. Okay, let’s see how good this
+can be. Suddenly he pressed into her, she tried to ease her sphincter to
+accept him. He really was very big, and he pushed firmly, not wanting to
+hurt her. She felt her hole relax, and then his head had moved into her,
+then he pushed again and he was in her moist inviting channel.
+
+“Oooohhh, yessss, fuck, steady now, aaahhh.”
+
+And he did take it easy,
+gripping her hips and withdrawing gently and then moving back into her,
+all seven inches and a good one and a half in diameter. Then she felt a
+hand on her clitoris and the other reach under for her nipple. Both were
+twisted expertly, and within seconds she was shuddering and grunting, as
+her first climax overtook her, her high-heeled feet almost coming off the
+ground. She’d never come so fast with anal sex before, although she liked
+it on occasion for variety. But this guy, he knew what bells to ring. Maybe
+it was the rubber around her, or maybe it was the fact that she had had
+two dildos in her previously. Anyway he wasn’t stopping now and she groaned
+and grunted as he pumped into her and she looked across the valley and
+listened to the birds in the trees. How long could this man, this Rubberman,
+this master, go on for?
+
+He would be happy to answer her; he could go on
+for a long, long time. For years he had been dreaming of this moment. A
+bright, beautiful (for he was sure she was) girl; trussed and rubberised
+and he was screwing her – in her arse! Clearly the dildos had stretched
+her, but her sphincter was still very firm and gripped his stiff member
+wonderfully. She had already surpassed all he had dreamed of. She liked
+rubber, for God’s sake, and she clearly had a masochistic streak; the plugs,
+the gags, the enemas. She’d been ringed and shaven and she had taken it
+all. If he wasn’t careful he’d run out of ideas. She’d even taken the initiative
+and asked, pleaded, ordered him to fuck her. At first he was reticent,
+but as he drove into her arse, what a wise decision it was!
+
+With the two condoms on, he could control himself, and soon he would
+be able to invade her moist pussy, but for the moment he drove into her
+rear, and looked down at her shuddering frame below him, her white head
+bobbing as she grunted loudly. She wasn’t fighting him; she was in heaven,
+and in hell. She’d come so many times that she was exhausted again and
+sore again! She had come a hundred times with dildos and gag, but now this
+was the real thing.
+
+Despite her bent-over posture, she knew that she had made some headway.
+She had very much enjoyed blowing him, and now getting fucked was even
+better. He was very good, fast, slow, turn, stop, twitch; he held her on
+the edge and then let her come, rested and started again. After about forty
+minutes she was just a rag doll, when he finally came, thrusting into her
+as he grunted in exhaustion. Withdrawing from her, he pulled up the crotch
+strap and the double dildos slipped into her, easy as pie. She would have
+no respite. She stood up, gasping and turned to him.
+
+“Thank you, thank you Rubberman, that was truly… amazing.”
+
+“Mmmm, for me too Latexa.” He gently rubbed her erect nipples through
+the cape and she shivered.
+
+“Care for a walk? Not too far.”
+
+She nodded and teetered on her high
+heels before him, across the lawn and he admired her from behind. Clad
+in white, with black cape and boots and of course corset underneath. He
+really wanted to take her again, right now. He moved close and rested his
+hand on her neck and she leant into him. They made an endearing sight as
+they walked through the garden, the man with his hand under her cape. An
+observer however would not know that she was mittened, corseted and with
+dildos up both of her love channels, and her admirer was gently playing
+with the anal dildo embedded within her. She did not try to run, but moaned
+quietly as they continued their walk. She remembered the route when she
+had been a pony girl; bitted and bridled, a role, on reflection, she took
+some pride in.
+
+As they returned back to the house, he turned her to him and kissed
+her gently on her rubber forehead, and then he took her head in both hands
+and kissed her longingly on her lips. She thought he was a real expert,
+and she kissed him back fiercely. She could not use her arms, but she pressed
+her body to his. They parted saying nothing, each with their own thoughts
+and returned to the house, side by side, but not touching. On returning
+to her room he released her mittened hands and then her corset. She had
+thrilled in its firm grip but was now grateful for the release. Then he
+unzipped the back of her suit.
+
+“You can have the rest of the afternoon off Latexa, I have things to
+attend you. We will eat tonight at eight. I will bring you down a casserole
+I have made. You can select and prepare the rest. I leave your dressing
+to you but the mask is still a requirement. Today has been amazing, and
+I look forward to the evening, and more.”
+
+He left her as she struggled
+out of the catsuit, she pulled the plugs out of her holes. The plugs were
+glistening and warm. She felt her bum hole, it was very tender and the
+muscle had clearly been loosened. He’d hammered away with his dick for
+a good forty minutes so she wasn’t surprised. She’d never been anal (!)
+about anal sex but had never really liked it a lot, before today. Rubberman
+had a technique all right, and a big hard dick didn’t do any harm. She
+stepped out of the gleaming wet suit and spent the next half hour washing
+and polishing all the clothes from her exhausting day. She had kept her
+mask on, she was now so used to wearing one – the silky feel, the smell
+and anonymity - but now she took it off and appraised herself in the mirror.
+Her short blonde hair was matted and there was still pink puffiness around
+her lips.
+
+She drew a bath and adding some bubbles she sank down into it with
+a moan of sheer pleasure. In the quiet and solitude of the bathroom in
+the steaming hot water, she again thought back to the day, and the week.
+Her transformation was virtually complete. She was an intelligent woman
+and was not fooled any more by her emotions. She was now revelling in her
+rubber encapsulation and education. The bondage and the probes and plugs,
+the servitude and submission, and the serious fucking were becoming addictive
+to her.
+
+It was a role forced on her, she had been kidnapped, ringed, shaved,
+enema’d and rubberised (she’d almost forgotten what cotton or chiffon felt
+like) but an inner sexual being had been awakened and had embraced all
+of this. But again, she reiterated to herself, if she was to live like
+this for the rest of her life, and she wanted to, then it would be on her
+terms. This was a sexual persona – pony, patient, schoolgirl, baby doll,
+maid; these were roles that she could theatrically play – and well – but
+they would be roles not a life. And now she wanted to explore her dominant
+side! She would be rubber mistress and Rubberman would be slave, captive
+to her. But what if it was a role she couldn’t play? Could she revert back
+to him as a master? She would need time to make those decisions. These
+would be days in which Rubberman, if her plans worked out, would be her
+slave, and much more. As she towelled off she began to think up some scenarios.
+First she would have to programme the door so that once inside, this evening
+he would become her captive! Slipping on her rubber gown she approached
+the door, keeping her fingers crossed. She punched the code she had memorised
+and turned the knob. It opened!
+
+She could run for it now, take some clothes – only rubber though –
+and belt for it, but no, that wasn’t in her plans now. She wanted revenge,
+not based on cruelty or hatred, for she was now aware that she was feeling
+a strange bond (!) with this man. What she was now on was a voyage of self-discovery.
+She was determined to have some fun, at his expense, to find out if she
+had even more hidden demons in her. There was a reset button on the door,
+now was not a time to mess up. She hit it and plugged in a new set of five
+numbers, 74947, and closed the door, it was locked, then she plugged them
+in again and it opened!
+
+Okay now she had got it. She had recoded it; she
+could leave at any time and he, once he had entered from the other side,
+which had no need for a combination, would walk straight into her trap.
+She was very excited at the prospect, and at leisure she would plan his
+training and subjugation. She went into the “torture chamber” and walked
+from one apparatus to another; the whipping post with fellatio training
+gag, yes, she remembered that one, the only way to breathe was to suck
+in the thick rubber gag. How would he like that as she tanned his arse?
+The vacuum bed would be fun, and the carnival horse -  oh yes, she
+could impale him on the cock and send him on a long ride, now that would
+be a sight as the rubber cock reamed his arse. She even had some ideas
+for the gyn/ob chair; she could do some devilish things with his cock and
+balls in that.
+
+She was getting hot thinking about these things and returned to the
+bedroom. She needed to sleep for a couple of hours and charge her batteries,
+and then turn the tables. She pulled out a pair of thin grey latex tights
+and after powdering herself drew them up her legs with a shiver. Over the
+years she had pulled on the finest silk stockings, some very sexy black
+come-fuck-me types, but they had never, ever given her the buzz that the
+rubber ones did. This was simply another confirmation of her inner feelings.
+They had small nodules on the inside of the crotch, to rub her pussy. She
+decided on a pretty red tank top with puffy sleeves and tight cuffs. She
+selected a black mask with only two small nostril tubes. She sat on the
+bed, set the alarm for seven and pulled the mask firmly over her shorn
+head. She had a slight panic before lining up the tubes in her nostrils,
+but then she lay back on her rubber pillow and drew the sheet over her.
+Within seconds she was contentedly asleep.
+
+She awoke with the alarm, feeling wonderfully refreshed. She felt the
+rubber nodules against her pussy and massaged herself, her groans muffled
+by her mask. Time to get up; there was much to plan. After taking off the
+damp mask, she looked at her fine figure in the mirrors. Latex really did
+wonders for the body, and the mind she thought. And she felt so horny all
+the time.
+
+She laid the table, made a salad and opened a bottle of red. She removed
+her clothes and cleaned them then put them away. She wanted something special
+for her last night as a rubber slave! She showered quickly, and decided
+on her costume. She liked the idea of a nun! Yes, a sluttish nun. She took
+out the costume and laid them on the bed. She powdered herself and started
+with a heavily boned black rubber corset with front lacing, suspenders
+and six buckles. This was hardly nun’s apparel, but who ever looked under
+a nun’s habit anyway! She started to lace it up, it was hard going and
+soon she was sweating. Finally the laces were closed and she tied them
+with a bow under her breasts. She could breathe easily, but the tight grip
+over her ribcage made her feel empowered. One by one she pulled the straps
+through the buckles and produced a voluptuous hourglass figure. Next came
+a rubber bra that held and pushed out her breasts brazenly, each cup having
+a pointed nipple that brushed her tender ringed nipples.
+
+Then came the stockings, again in shiny black. She began to regret
+that she had put the corset on first as she had difficulty in bending down
+and drawing them up her legs, but she managed to do it. She attached them
+to three suspenders either side and ran her hands down her sides, no; silk
+had nothing on this material! She slipped her feet into six inch heeled
+court shoes, not functional but so sexy. She strutted to the mirror, arms
+on hips, legs spread and showing her shaven mons and ringed labia. At the
+moment she felt like no nun! Should she wear panties or be a really sluttish
+nun? She always thought panties were sexier than no panties – the mystery
+of not seeing what was underneath. So she selected a frilly pair, high
+cut and black. It was difficult pulling them over her shoes and the corset
+didn’t help but she drew them up her legs and soon they were snug around
+her buttocks and moist channel. She pulled on shoulder length black gloves
+and then her favourite transparent mask.
+
+Finally there was the full-length
+black cassock down to her ankles and her wrists; then the tight white headdress,
+which came down as far as her eyebrows and under her chin, allowing the
+black cowl to flow over her shoulders. She stepped around the room and
+lowered her head and brought her hands up in prayer, chuckling. Her costume
+did indeed cover all manner of sins, in clothing and in thought! She was
+a rubber nun, ringed and corseted, high heeled and suspendered, and masked
+of course. She applied bright lip red lip-gloss to complete the nun/whore
+image. Under the cassock she could feel herself get very wet, how could
+she come again after so many times today? She loved the slightly laboured
+breathing forced on her by the corset. She felt as if in a suit of armour,
+and you could punch her in the stomach and she wouldn’t feel it! She was
+ready for him, at eight she knelt by the door, in supplication, a good
+nun, palms together and head lowered, her heart beating fast in anticipation
+of the night to come.
+
+He entered wearing a black and blue striped catsuit, like a harlequin,
+black knee-length boots, dark blue cape down to his ankles and attached
+at his neck. However she noticed the blue mask with eyeholes had the lower
+half open so that half his face was now exposed. This was for him clearly
+daring, showing half his face to her. She stared up at him, a slender but
+firm chin with not too much of a beard line (and a dimple which she thought
+was cute) and a nice mouth with bright white teeth. She thought him slightly
+androgynous, not effeminate, but the high cheeks and light beard made her
+immediately think of dressing him up as a woman. Would he find that humiliating
+or pleasurable? Knowing him, probably both, she thought. He held a small
+bag, which he threw on the bed, maybe for later, she pondered. He took
+the casserole to the kitchen and put it in the oven. Then he returned and
+faced her. She saw his erection under the suit; no words were said and
+she leaned into him and licked his rubber-encased cock, placing her hands
+around his firm buttocks. He closed his long cape around her head and in
+the darkness she nuzzled his groin, he started to breathe heavily and stepped
+back, almost embarrassed.
+
+“Let’s leave something for later, shall we, Latexa? Again you have
+surpassed all my expectations, a rubber nun.” He took two glasses, filled
+them, handing one to her, as she stood up, then raised his hand.
+
+“To the future and the pleasures it may hold.”
+
+“Indeed; to the future.”
+
+No doubt they were thinking of an entirely
+different future. He would be the dominant and she the slave, but she,
+well she was thinking something different. As a submissive, yes, she couldn’t
+deny her feelings but as a dominant on occasion as well! Frankly she now
+felt that there was no role that she couldn’t play. He sat on the couch,
+and she stood in front of him, then raised her cassock up to her chest,
+exposing herself and proudly spreading her legs.
+
+“Wonderful Latexa, how does the corset feel?”
+
+“I feel empowered, it grips me in a vice, and the stockings and gloves
+cover any inperfec…”
+
+“You have none, Latexa, none, but the rubber does enhance, and how
+about your feelings?”
+
+“I feel sexy, sluttish and horny. I enjoy the role-playing, it allows
+me to be someone else, with no guilt or recriminations; you know that.
+And I like the sex. I know it may have been difficult for you, but thank
+you for exposing yourself to me; you are a very handsome man, what I can
+see of you. You should be fighting women off, not abducting them.”
+
+“I am naturally shy I suppose, and this fetish satisfies me, not many
+women would share it.”
+
+“Well I am, and revelling in it. I never thought I would, but there
+you go. You think far too much about what people might think of you and
+your obsession.”
+
+“I am very fortunate that you have taken to it so fast, I am happy
+for you and me, of course. Very soon I shall unmask you, personalise you,
+rather than retain you as my rubber doll. I have been thinking about this
+all day. Would you like that?”
+
+“Of course, I am a highly sexed woman, more so than I thought and I
+have to thank you for that. I can play any role; rubber doll, pony, nun,
+but I am still a real, live woman and sex with me, in any of these personas
+you will find will be much more satisfying.”
+
+“Yes, perhaps, it was certainly fantastic outside today, but then so
+was the dildo sex in the gyn/ob chair this morning. I loved playing with
+you, all your holes filled, and you could do nothing about it.”
+
+“You may be surprised, but I did too. I came a hundred times, so I
+may have been an anonymous doll to you but I was loving it as well if a
+little guiltily, although even now I am a bit sore.”
+
+They moved to the table and ate in relative quiet, each with their
+own thoughts, she the rubber nun and he the caped crusader. She produced
+decaf coffee – she didn’t want him awake all night.
+
+“As a treat tonight, for both of us, I would like you to sleep with
+me.” He asked almost tentatively.
+
+“Of course, I would love to,” she said without hesitation. Perhaps
+here was her opportunity.
+
+“Good, there is a slight catch, I will be wearing these.” He pulled
+from the bag on the bed a pair of rubber pants with a hood attached. It
+was quite clear where her head was going to go – into the hood against
+his groin, but she had no hesitation in nodding.
+
+“I shall please you Rubberman, and surprise you perhaps, have no fear.”
+
+“Good, another half cup of decaf and I will be ready for bed.” Now
+she had her chance. Returning to the kitchen she put the four sleeping
+tablets, which she had already crushed, into his coffee. Why he had provided
+her with them was beyond her, but she had everything else, so why not,
+she supposed.
+
+“How would you like me dressed?”
+
+“As you are for the time being.” They finished their coffees, and both
+of them used her bathroom. Then he took off his cape and boots and lay
+back on her bed. He patted the side next to him.
+
+“Panties off Latexa, then come here.” She did as commanded, quite nervously
+for some reason. She reached under her cassock and pulled down her panties,
+which she noted were damp. She lay next to him, like a nervous wife on
+honeymoon. He leaned over to her and raised her cassock, exposing her corset
+and stockings, and her ringed pussy. With a rubbered hand he played with
+her labia, flicking the rings side to side, then he rubbed her clit and
+she gripped the bed and started to shudder.
+
+“Fu uuuhk, jeeez,” she said through clenched teeth as he lowered his
+head and ran his tongue down her lips. And then she felt his thumb slip
+into her arse and press in the sides of her sphincter. She was gasping
+as he licked and sucked her insides. She wanted to reciprocate and while
+he was busy down on her, she unzipped his catsuit and moved her head under
+his thigh and prised out his cock. It already had a condom on; the sly
+devil came all prepared! She took him into her mouth greedily, and sucked
+and licked him. She didn’t mind the taste of the condom at all.
+
+They pleasured each other like this for five or six minutes and then
+he withdrew his head and lay on his back. She straddled him, facing him,
+and was going to, at last, get him in her, when he took her hips firmly
+and pulled her forward and with what seemed a very practiced move held
+her waist with one hand while piloting his dick with the other to her arse.
+She was so surprised at the speed and expertise that when he thrust her
+down on his dick she did not have time to react, and then he was in her
+arse up to the hilt. She screamed with surprise but there was little discomfort
+now, her arse was now clearly loosened and wider. He appeared to be quite
+strong as her lifted and dropped her onto him. Here she was, a rubber nun
+getting screwed in the arse, and really now quite liking it. She felt a
+finger at her clit and he started to work there. She seemed in a bit of
+a daze, and she came shortly after, groaning and shuddering. She couldn’t
+believe she would have such a climax, with a seven-inch dick up her arse!
+
+“Take off your cassock and headdress Latexa.” She did so and now wore
+just the bra, corset, gloves and stockings, and of course her transparent
+mask. She turned out all the lights as he removed his condom and stepped
+into the pants, pulling his cock and balls through the gap and into the
+pants. He lay on his back, the hood between his legs.
+
+“Well Latexa, are you ready to serve your master again?” She smiled
+and nodded and taking a deep breath poked her head into the pants. It was
+dark and with an overpowering smell of latex, which she no longer found
+unpleasant, quite the contrary. She stretched her legs out as he fastened
+two press-studs at her collar. Phew, she thought, I am not locked in. The
+hood had dozens of small holes to allow air in, but it was still dark with
+an aroma of sweet rubber! She felt his dick by her nose and eased it into
+her mouth, there was just something strange with this guy, he was always
+erect!
+
+“Thank you Latexa, have a good night.” He placed his hand gently on
+her head and pulled the sheet over them. He glanced down at the lump under
+the sheet and saw it bob up and down and he felt her smooth warm mouth
+around his cock. She started to suck him and he was now rock hard again.
+She was almost gagging on him in the rubber-perfumed darkness. Enjoy this
+Rubberman, she said to herself, you won’t be having much more of this.
+He drifted off to sleep, the last thing he remembered was her bobbing head
+and her moist mouth around his dick, but things were going to change!

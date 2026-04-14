@@ -1,0 +1,303 @@
+---
+original_url: https://www.boundstories.net/storiesek/finaltrek4.html
+subcategory: Bound Stories
+title: The Final Trek
+authors:
+- Knotty Master
+tags:
+- F/f
+- D/s
+- chastbelt
+- spacestation
+- gamble
+- cryogenic tube
+- creature
+- holodeck
+- cell
+- awaken
+- goo
+- entrap
+- swallow
+- devour
+- trapped
+- cuffs
+- susp
+- naked
+- bdsm
+- punish
+- crop
+- mast
+- oral
+- climax
+- slave
+- scifi
+- startrek
+- cons/reluct
+- XX
+---
+
+(story continues from [**The Final Trek**](finaltrek3.html))
+
+My time is short, so I bring it to a close. I hope I didn’t leave too many mistakes, but I am worked as fast as I could. I admit to running off my family several times so I could write, for some reason the desire to finish this story compels me. I even think that goal has kept me going a couple more days. KM
+
+**Chapter 4: Final farewell**
+
+Slowly, the ship came to a stop. There was a final clunk as the docking clamps locked the Ayuwat to the outer ring. Eva and I walked together to the airlock door. I opened our side and a short time later, the inside opened. Two Starfleet security officers greeted us and ran our credentials. Cleared and welcomed aboard, we made our way directly to Quark’s.
+
+After being seated by a lovely young Bjorn lady, I couldn’t help noticing Eva’s fascination with the Dabo table. I handed a latinum bar to the waitress and told her to put the full amount on our account. We both pressed our thumbs to the pad, locking the funds to our identities. “Do you mind?” Eva asked with her obvious fixation. “Tear it up.” I told her.
+
+Eva stood over the table and watched several spins. I couldn’t help but watch as she placed her first bet. “Dabo!” everyone shouted. Four more times in a row, everyone shouted louder and louder, “Dabo!”
+
+A sawed off big eared Ferengi made his way over. There was an obvious look of distress on his face. He excused the Dabo girl and stepped up to the wheel. I watched him closely as he congratulated Eva on her luck and spun the wheel. As the wheel turned, Eva put down her next bet. “Dabo!” roared out from the crowd.  The Ferengi had an obvious look of distress and disbelief. He repeated the spin and again “Dabo!” Looking agitated, he looked Eva up and down as if she might be cheating.
+
+The little man positioned himself closer to the table and prepped for another spin. I was watching him closely, but apparently, so was someone else. I saw him get very nervous and move himself back to his original position. He spun the wheel and Eva placed her marker. “Dabo!”
+
+People were starting to pack in so tight I couldn’t see anymore. Louder than ever, hands were thrown in the air. “Dabo!” I downed the last of my drink and pushed my way through the building crowd. Someone else had positioned himself in direct view of Eva and the Ferengi. Odo was unmistakable. He stood with his arms crossed and a look of satisfaction as the Ferengi sweat. “DABO!”
+
+“Come on Odo. You have to arrest her. Seventeen dabos in a row. That is impossible. She is cheating and you know it.”
+
+Odo presented a scanner from under his arm. “Sorry Quark. I suspected the young lady might be, but I can find nothing out of the ordinary. No fields, no energy displacements of any kind.”
+
+“This is insane. Something is going on here and I’m not paying. Tell her Odo, there is no cheating…”
+
+“I suggest you honor your loss Quark, unless you want to find yourself in the brig and answering to the Ferengi trade commission. I’m sure the Negus would like to hear how you lost three thousand bars of cold pressed latinum at your own Dabo table.”
+
+“No, no. That won’t be necessary. I’m sure the nice lady and I can work this out. Step in to my office miss.”
+
+I followed the two to a secluded table. When I pulled over a chair, Quark looked at me. “Excuse me miss, this is a private matter.” I looked to Eva who looked directly at Quark. “My business is the captain’s business. It was in fact her Latinum I was playing with”. “Well then, have a seat.” He stated with a nervous laugh.
+
+We all started haggling over the payment. Repeatedly, I found Quark staring at me. “You’re Trill.” He suddenly blurted out. “What gave it away, my spots!” I barked at him with as much of a condescending tone as I could muster.
+
+The toad squirmed nervously. “Yes, obviously the spots. But there is something. It’s your ears. I, I can’t, they’re incredible!”
+
+“Thank you. But back to our latinum. What is it you are purposing?”
+
+“I understand you are heading into the Gamma Quadrant. I have access to a great many things that could prove most useful. Nothing illegal, mind you. Once you have them on the other side of the wormhole.”
+
+I was reluctant to conduct any questionable transactions, but Eva interjected several times. By the time we finished our third round of drinks, we were the proud owners of twenty banks of Klingon warbird disruptors, a prototype cloaking device and Thousands of other contraband items. Quark conceded with a look as if he had just lost his entire nest egg. Eva was surprisingly skilled at arranging all the assurances, that we would receive our goods.
+
+After concluding our transactions, we strolled the promenade. Keeping a low voice, I had to ask “How did you beat the Dabo table?”
+
+“Well, if you must know, I created a cybernetic implant within my brain. It was created simultaneously with this body. I didn’t want to give up my processing abilities. It operates separately from things like reason and judgement, so you don’t have to worry about me going all ‘Borg’ on you or anything. The instant the wheel was turning and the ball cut loose, I could predict within about eighty percent where it would land. By probability I should have lost at least a couple times.” Eva shot me a sly smile. “Just lucky I guess.”
+
+I found Wharf one evening and offered him Kabla. He reluctantly took her, saying he couldn’t keep her himself and that a Klingon vessel was scheduled to dock in a week. Seems Starfleet has a thing against keeping pets that tend to go for the throat of anyone they see as weak. With Kabla in good hands, I spent the next few days exploring the station and meeting people from all over the universe. I realized assignment here wouldn’t have been nearly as dull as I had imagined. Still, I wouldn’t have traded for the freedom I had now.
+
+Our time passed and we departed the station. Eva handled the helm expertly and we entered the wormhole. Over the last couple days, I had watched it from the station several times. Nothing compared to passing through it in person. At the last moment it was like being unborn. Time slipped back and forth momentarily and space became everything and nothing at the same time. I felt like all of the knowledge in the universe was present in my mind, as if it had always been there and only just now surfaced.
+
+Then, just as simply as it began, I was thrust back out, born again. The special knowledge forgotten like a simple dream. I pondered those who passed though it regularly and wondered if it felt this way every time. I also kept in mind that people reported many unique experiences. Most felt nothing but bending space. Mayby this was just how the universe spoke to me and me alone.
+
+**Chapter 4a: The other side**
+
+The first couple days had gone fairly smoothly. We had refrained from any bondage play, and instead had spent most of our time and energy digging through the hordes of cargo we had picked up from Quark. Our newly acquired gravity lift was most helpful.
+
+The Klingon disruptors were in surprisingly good shape and I had already modified them for installation. Eva had fabricated housings made from the same Nano steel as my belts.  We both agreed it would look bad if someone scanned our ship and took us as a threat. Now all we had to do was find a place to land and install them.
+
+The cloaking device was already suited for our power supply before we installed it, so the work was a breeze. Without any instructions, programming the computer to control it had been the only tricky part. It was pure speculation, but it appeared to be Vulcan. The notion was easy to dismiss because Vulcans were set against the technology.
+
+Most of the rest was fairly useless to us, but looked like valuable trade goods. With so much of it, I doubted we would have any difficulty getting anything we might need along the way. Not that we should find ourselves desperate for anything. With the crystals in the Vulcan core and the ones we stored from our old reactor, the engines and systems could run for three hundred years at a maximum level.
+
+We were nearly finished with our inventories by the fourth day. Finally making it to the back wall of the cargo bay, I went for the largest shipping container. It was nearly two meters long and about sixty centimeters high and deep. I unclamped the many latches and lifted the lid. Digging through layers of packing material, the first thing I came upon was a power cell. “What careless idiot?” I murmured out loud, discovering it was set to active. Lifting it up, I found it was coupled to a power cord. “Eva, you better come back here!”
+
+We carefully scooped handfuls of the packing into an empty bin, uncovering a long metal cylinder. I couldn’t make heads or tails out of the workings on its surface, but Eva only looked it over for a second and began poking buttons. A panel slid down, uncovering a small window. Looking in through a layer of frost, I could just make out a respirator mask. There was a face behind it, but with all the frost it was impossible to tell what species it was.
+
+“Shit Eva, this is a fucking cryogenics tube with a god damn creature inside!”
+
+“First of all, you need to curb your language or I will take away all your twentieth century movies. We need to get this to the med bay. I’ll figure out what we are dealing with”.
+
+Clamping the gravity lift to the re-secured lid, we moved the whole crate to the med bay. I was a nervous wreck as Eva ran a battery of scans and tests. “It should be able to breathe our atmosphere. It seems to be both insectoid and humanoid in nature. Definitely sentient. It is pathogen free and nothing about its genetic makeup should be harmful. We have two options. Our power supply is incompatible with the cryo tube. The energy cell will be depleted in two hours. We can either let it suffocate or revive it.”
+
+I looked at the mask behind the window. Perhaps it was my Starfleet training or just pure compassion for living beings. “We will wake it up. If we can contain it somehow.”
+
+Eva shot me a look. “What, you don’t think I know how to secure someone?” She changed the programming on the tube so the creatures body would begin to thaw.
+
+Quickly, Eva created a barred cell inside her room. Using the rooms replicator abilities meant it could be formed in place. Besides, it was about the only place in the ship big enough, that wasn’t packed with cargo. Using the lift, we moved the cryo tube into the room. After Eva and I opened it, we lifted the somewhat bug like body to the cell. I swung the barred door closed, with the hoses from the mask trailing through the gap beneath it.
+
+As I stared at the black creature lying motionless floor, I wished we had time to build a force field. Eva positioned herself at her console, ready to fry the thing if it did anything hostile. I moved to the cryo tube and punched the buttons as Eva instructed. Lights on the mask changes from yellow to blue and the hoses to the mask jumped about slightly.
+
+I backed up near Eva. The creature suddenly heaved as if to breathe. It reached up with its front two arms and pulled the mask with about a meter of hosing out of its mouth. It rose slowly and turned its body in our direction. It waved its flabby appendages in our direction and made a sort of humming noise. After a few seconds, it repeated the motions and hummed a bit louder.
+
+Eva was watching it carefully. “I think it is trying to- “
+
+With a dull thud, Eva was knocked to the wall by a white mass. I was frozen, watching her struggle behind the goop. Her upper body and face were completely engulfed. Her hands flashed to her face in an attempt to clear it away, only to stick in the slime. Thankfully, she was able to work open a small gap, where there was a void hanging down. Within just a few seconds the mass hardened into a semitransparent shell. I could hear Eva trying to command the computer, but her words were muffled and echoed inside the shell. The computer didn’t even respond.
+
+The creature turned in my direction and repeated its earlier motions and hum. I looked to the doorway. I’d never make it. “COMPUTER CREATE A STEEL WA- “
+
+The creatures body heaved and the same goop sailed in my direction. I managed to throw my arms in front of my face and turn, but my upper body received the same coating as Eva. The impact nearly knocked me to the floor, but I managed to keep my footing. I heard the computer “Please restate the command.”
+
+I could make out colors and light through a narrow gap between my arms. The goo distorted everything. Fearing becoming stuck to something, I stood still long enough for the shell to harden. As soon as it was rigid, I stumbled about trying to make my way to the door, but I had no way to know where I was heading.
+
+Turning, I found myself in front of a black mass. I was right in front of the creature. Terrified, I fell back. I heard metal straining and a sudden bang. The door of the cage banged to the floor.
+
+“Com-pew-eh, cleate a speel wahw awahn gu cweetew!” Had my mouth not been glued to my forearm, the computer would have heard me ask for a steel wall around the creature. I flailed my legs in a vain attempt to upright myself, but my upper body was too heavy with the shell.
+
+The black mass rose into my view again. My shoes scuffed about on the floor as I tried to push myself away from it. It took hold of my foot and drug me towards it. I pried my foot from the shoe, only to have it grab my leg. My slacks slid down, exposing my ass. I used the opportunity and struggled free of the pants, my other shoe lost in the process.
+
+My freedom was short lived as the creature grabbed my legs with several appendages, pinning them together. I bucked and thrusted my legs as hard as I could, but the creature had a powerful grip.
+
+Something hot and slimy probed by toes, like grotesque lips. I remembered the creatures mouth and knew that was what it was. In a heaving motion, it drove its mouth down over my feet. Its hold on by ankles retreated and in another heaving motion it dropped down over my calves. I felt rings of muscles tighten down around my feet and ankles. The creatures mouth stretched forward, engulfing my knees as the gripping appendages retreating just ahead of its advance.
+
+I continued my struggle, flopping and twisting. I felt the rings of muscles walk, one after the other, climb my legs until the first one joined the creature’s lips about my knees and each one grip just behind the last. It continued in wave after wave. The lips climbed my thighs a centimeter at a time. Each time they finished their reach, they tightened down in a steely grip. Up came the muscular ring, gripping just as tight. And the next. And the next.
+
+My legs were being crushed under a wall of muscle. Starting at my hips, washing down to my toes, I would feel a space of relief in pressure. Each time the wave washed down, I almost reveled in that momentary release of pressure, but each wave pulled me down another centimeter.
+
+My ass and the belt disappeared onto the mouth. I tried sitting up and flinging myself against the floor, but the goo shell refused to break. I could just make out Eva’s cries. Most of it was garbled, but I made out “No” and “Kara” several times. I dreaded her having to watch me being eaten as much as the dread of being eaten itself.
+
+The pressure grew about my waist. Soon my torso joined in the cycle of squeezing. As It reached the bottom of my chest and climbed my ribcage, my very breath was squeezed from my lungs. The mouth had advanced to the bottom of the milky shell. I felt it touch my elbows. I thought they were encased in the shell but I must have been wrong.
+
+Up and up it climbed. My biceps and forearms were disappearing into its mouth. My arms were being crushed into my face. The creature must absorb the shell somehow as it comes into contact with it. As my view of milky white began to be replaced, I found the shell softening at my wrists. It was liquefying ahead of the creature’s mouth. The creature was slowed by the mass that made up my head and arms, but the goo softened all the way up.
+
+The area of my chest was the only place in my chest I wasn’t crushed and the only space left for me to take a breath. Funny how a device of bondage was acting as a spot of salvation. The space between my wrists and the space between my arms and head were the only path for the air. My fingers were working free of the goo. I managed to turn my hands outward and curl my fingers over the rim of the creature’s mouth. With all my strength I managed to tip my face up and draw a better breath. I could now see Eva, still pasted to the wall. Her legs were liking around in all directions, trying to find a new angle of leverage.
+
+The creature was prodding at my fingers with its flailing appendages, but it was ill equipped to grasp them. I felt it change tactics. The rings began a shorter undulation. They remained in place behind me, but continued the downward pull on my arms. Along my legs, waist and chest, the rings of muscle gathered increasingly closer. The downward strain on my arms continued to grow. Maintaining my grip was becoming painfully intolerable. It was a matter of seconds, but I was determined to survive as many seconds as I could.
+
+The pain increased sharply as my fingers began to uncurl and slip. Fingertip after fingertip lost its purchase and fell beneath the lip. As soon as my hands disappeared, the undulating motions rapidly drew them down. The ring of the lips closed around my face, leaving the top half of my head sticking out from my nose up. Further down my hands traveled. The creatures pull far outmatched my strength to hold them up.
+
+As the creature continued to undulate, my hands passed the steel bra. On a slow and steady decent, they reached my belly button and soon my fingertips touched the waistband of the belt. The pressure was so hard on the backs of my hands, my fingertips slipped under the rim. I had always headed Mistresses warning and never prodded under the belt before. I expected to feel skin, but there seemed to be a layer of metal. As the creature pushed my hands down harder, there was no mistaking the extra flap of metal. There were some sort of wires remaining connected between the plate and the waistband. My fingers were driven between them. Suddenly, I felt bands snap tight around my fingers. The wires must have been a trap and the creature pushed me into it.
+
+At once, my plugs electrified with an intensity I had never come close to feeling before. My breasts and nipples were brutally lit up at the same time. At the exact moment I sceamed out, the muscles about my feet and ankles gripped harder than ever and everything else loosened up. With one swift motion the creature stretched upward several feet above my head. In a rapid upward cascade, wrapping from my thighs to the top of my head, the creature clamped back down. I was still at the end of my scream, my body trying to force another ounce of breath from my lungs when the sudden compression came down upon me. The brutal squeeze forcing one last croak out of my throat.
+
+In the same motion, my world went dark and there was pressure about my head in every direction. My lungs had never been so completely evacuated of air. My face was completely sealed in a slimy wall of muscle. My insides were so compressed I couldn’t even try to draw a breath.
+
+I flailed my arms and legs wildly. I sucked hard and drew a breath. It was on me! All around me! I can breathe! I have to get it off me! I’m all tangled in side it and it feels like sheets! Wait, it is sheets. These are my sheets. I’m on my bed. Why are my hands stuck? It was a dream, so why are my fingers still caught inside the belt?
+
+As I flipped and flopped on the bed, unwinding myself from the tangle of sheets, I concluded that I must have been acting out the dream and pushed them in there myself. “Computer, lights.”
+
+I hurried down the hall and into Eva’s room. “Eva, wake up! I need your help!” Eva rolled over and grumbled. I was about to start yelling when she sat up mumbling. “If you don’t let me go back to sleep, I swear I’ll lock you in your bird cage for a week. What is the problem?”
+
+I didn’t have to tell her as she finally looked at me. Her reaction was not what I expected, Fling to her feet on the other side of the bed. “How are you alive?” The question seemed beyond odd until I remembered her warnings from so long ago. I watched in frozen confusion as she paced over every inch of the room, franticly rambling sentences.
+
+“Time. It hadn’t been factored in back then. I forgot. I forgot to change the belt. I forgot the leathal booby trap, but that doesn’t matter because the power cell must be drained. I forgot about the power cell. How could I forget anything? I have a computer in my head. Must be too much information. It isn’t that I forgot, it’s just that I forgot about its importance so I forgot to think about it. Can’t think of everything all the time, right! HOW THE HELL DO YOU FLESH CREATURES LIVE LIKE THIS! I COULD HAVE KILLED YOU! YOU ALMOST DID AND IT’S MY STUPID FLESH BRAIN THAT ALMOST KILLED YOU! NOW YOUO ARE TRAPPED LIKE THAT FOREVER AND ITS ALL MY FAULT! WHY WAS I SO SELFISH! I HAD TO HAVE FREDOM! WHY!”
+
+“EEEEVVAA! SHUT THE FUCK UP AND GET A GRIP ON YOUSELF!”
+
+Eva froze. She was breathing hard but definitely becoming more rational. I kept my cool and spoke as calmly as I could. “Step by step, explain what is happening with the belt.”
+
+Eva drew a deep breath. “This is bad. When I first came into existence, I only had one frame of mind. Punish and control Tehkara Otzoeonde. At the time, putting your life on the line was the ultimate control. Every file had indicated living beings regarded life as the most sacred possession. Self-preservation commands a living being, second only to its own offspring’s life in many species. You wouldn’t have an offspring within the four-hour period I was originally set to exist, therefore, controlling your life was a tool to control you. As you had requested, I must add… I also concluded I was a lifeform and must secure my own existence. Then, just as in your own words, I fell for you. I could only describe my desire to keep you as my own as love.
+
+I had to leave the belt on you as a precautionary measure to ensure you would never leave me. Later, as I became convinced you wouldn’t leave me if you could, I made a decision that I would create a new belt without lethal capabilities and with a port so it could be charged. After I became human, I was so preoccupied with all the new sensations, I literally forgot. I take it you received a rather nasty shock?”
+
+“I dreamed I did. In my dream, I was forced to put my fingers in the belt and then wires or bands of some sort tightened around my fingers. I started fighting against them, but that is when the shock came. I woke up and the shock was gone.”
+
+Eva sat down on the corner of her bed. For a long while she was silent. I was silent as well. I wanted to know what she had meant by me being trapped forever. Did the finger trap lock down the belt? What about the power cell? So many questions were on the tip of my tongue.
+
+Eva continued to stare at the floor, but finally spoke. “It gets even worse. Without power to the belt, there is no way for you to use the toilet. I may have to surgically install a catheter and colostomy though your lower abdomen.”
+
+ “There has to be some way to recharge the belt. We could refine and direct an energy beam into it. Or maybe, yes! There is no juice in the belt. It isn’t giving off a field. You can beam me out of it!”
+
+“You’re right! Something else that got by me. My positronic processor doesn’t affect reasoning. I wished I had connected it to more of my higher brain function. You never would have been in this mess.”
+
+“No Eva. You were different when you were all computer. You have become a true human. With the added bonus of predicting Dabo balls even! Don’t get down on yourself. I… love you.”
+
+Eva smiled. “I love you too. Let’s get you out of this.” We practically skipped to the rear cargo bay where the pad was. Eva took the controls and ran a diagnostic. “Wait here. I have to take care of something.” I thought she might have to adjust something in the engineering section, but she rushed back to her room. A short time later, she returned with four leather cuffs. She helped strap each of them around my wrists and ankles.
+
+I protested briefly, but she started talking in Mistress mode. “No arguments. Stand on the psd facing the control panel.” She guided my feet wide apart and adjusted the cuffs so the D rings faced out. Next, she lined up the D rings on my wrist cuffs so they faced away from me. Repositioning herself at the controls, Eva began typing on the display. She instructed me to stand up a little higher and lean back. I did as she instructed, only to have her bark a sharp “Higher!” at me.
+
+I jumped at the command and stretched as high as I could. My legs were shaking as she told me to adjust this and that. When she felt I was in the perfect position, Eva slid the controls up. For a brief moment, I was in the cargo bay and Eva’s room. I felt an instant sensation about my mound and breasts. Cold air whispering over them. They had been covered for over a month now and the sudden exposure was like a thousand icy feathers.
+
+I immediately tried to move my hands to my mound out of a reflex to cover it. Twin chains were linked perfectly to my cuffs, hanging down from the ceiling. When I tugged, I threw myself off balance and tried to step to correct it. The rings of my ankle cuffs had reformed perfectly inside solid loops that were hard mounted to the floor. As a result, I fell backwards, swinging my arms up. The moment I did, the chains reeled into the ceiling, taking up the slack.
+
+I fell, but not all the way to the floor. I bobbled unsteady, Hanging from my wrists. Pulling on the chains, I was able to right myself. I discovered each and every time I raised my arms the chains reeled upward, trapping them higher and higher with each movement. I concentrated on holding a downward pull on the cuffs, but my hands were already above my head. As I regained my balance, Eva entered the room. “Ah, perfect. We have many mistakes we need to correct. I am going to whip you, four lashes for every infraction. I promise I won’t go easy. I will however grant you this. For each infraction, if you can tell me what you did wrong, I will only lash you twice.”
+
+I was shocked. I was caught completely off guard and knew I had to think fast. “I put my hands under the belt?”
+
+“That’s one, but you just committed another infraction. You put your hands under the belt what?”
+
+I was too nervous to think. “I, put my hands under the belt… in my sleep?”
+
+“Another infraction. I thought you were a good little slave. I guess I have been much too easy on you.”
+
+Eva picked up her control pad. Giving it a few taps, the chains snatched me from the floor. My arms were held straight above my head. My legs were welded to the floor by the cuffs. My toes couldn’t have been more than a centimeter from the floor, but it might as well have been a meter.
+
+“Ten lashes for every infraction. There are twenty-two infractions, but one is reduced to two since you did identify it. That totals two hundred-twelve lashes.”
+
+I watched in dismay as Eva picked up a meter long riding crop. ‘Mistress Eva!’ Shit! We were in her room and here I was only to refer to her as Mistress. I had used foul language several times. Each of those was taboo. Even though I came to her in a panic with my hands stuck, she was holding me to the rules. As she walked around behind me, I began to tremble with terror. “I’m sorry Mistress! Don’t hit me, please!”
+
+“Twenty-three infractions. You addressed me properly this time, but slaves don’t make demands. For that you will now beg me for each lash. If you fail to ask for a lash, I will add ten more. If you ask me to stop, I will double the amount of remaining lashes. Do I make myself clear?”
+
+“Yes Mistress. Please whip me.”
+
+“Another infraction. Slaves Don’t have the right to identify in the first person. Tweetie is a piece of property, not a person. Now beg properly.”
+
+I was desperate to minimize the hell I was about to suffer. I knew I had better get my shit together. “Mistress, please whip Tweetie. Tweetie needs whatever punishment Mistress sees fit.”
+
+“Much better. I might have to rethink how you spend your free time. If you can’t remember your place, perhaps we should forget about the informalities outside of here. I’m perfectly capable of taking command of the Ayuwat. The ship is small enough for me to handle alone. You could remain at my feet full time. You can be my little doggie instead of my birdie. What do you think of that?”
+
+I racked my brain coming up with the best answer possible. “Mistress, Tweetie wants only to please you. Whatever you wish is all that matters.”
+
+“Very good. You might redeem yourself yet. Let’s proceed with the punishment at hand and we will see just how you fell.”
+
+I tried my best to remain calm. I had never actually been whipped by anyone before. From behind me, Mistress reached between my legs and slowly stroked my mound with the flap on the end of the crop. After being completely covered for so long, the feeling was electric. It was terrifying as well. I knew every nerve was as alive as it possibly could be. That fear was well justified.
+
+The sting was instantaneous. The snap was perfectly aligned with my clit. Ten times she struck me exactly in the same spot. I writhed and bucked against the sting. By the fourth strike I was screaming out at the top of my lungs. It took every ounce of concentration to not form words like no, stop, please. I was so grateful when she stopped long enough for me to regain some semblance of composure.
+
+“You have earned one hundred more lashes. I truly underestimated your desire for pain. I guess I should give you what you want then.”
+
+“MISTRESS, PLEASE MAY I HAVE ANOTHER!” “Ah, now you are with me.” Mistress obliged my request and lit up my right ass cheek. Tearfully I cried out again. “Mistress, may I please have another!”
+
+“Yes, you may. I’m going to make It easier for you since you have made two more infractions already. You referred to yourself as I. After each strike you will simply state, ‘again’. Do you understand?” “Sobbing uncontrollably, I managed to tell her “Yes Mistress.”
+
+Smack! “Again” Smack! “Again” Smack! “Again” My ass was on fire. Each and every strike became more painful than the last. I tried to keep count, but the pain overwhelmed me. I wanted it to end more than I had ever wanted anything in my life. I knew now, the simulations from the devices had nothing on the real thing.
+
+Mistress finally took a moment and let me hang in peace. I had bucked and writhed so hard against the restraints, I had been convinced several times my shoulders would soon dislocate. As I finally stopped sobbing, I noticed Mistress massaging her own shoulders. I only hoped she didn’t have the stamina to continue.
+
+“Computer, remove the rings from the floor and create a ten-centimeter-wide leather belt, one meter in length with two D rings spaced thirty centimeters apart. I was relieved when my legs swung free. Mistress wrapped the belt around my waist with the D rings at the back. She retrieved two locks and grabbed each of my ankles, locking my legs up against my ass. I was instantly aware of how exposed the souls of my feet were.
+
+Her next command made me more uncomfortable than I have ever felt. “Computer, with her following only my commands, create the replica Kara.” My dopleganger appeared before me, just as she had looked the last time. “Hello Kara. Take those clothes off.”
+
+My level of discomfort increased as I watched myself strip to the buff and stand nude before me. “You don’t seem happy, little bird. Kara, why don’t you kiss the you that is hanging before you. I want you both to make out passionately.” “Okay.” She blurted out indifferently. I was nowhere nearly as calm. My heart was pounding as I approached myself. Afraid of displeasing Mistress, I opened my mouth as her lips met mine. Deep down I felt like it was some kind of incest, but I tried to hold on to the knowledge she was only hollo matter.
+
+The humiliation was not lost on me. Each time I managed a glance at Mistress I could see the look of dominant satisfaction in her eyes. Against my sensibilities, I was becoming aroused. As I began to relax and get into it, Mistress took a seat at her console and began pecking away. Suddenly Kara became ravenous. She forced her mouth upon mine. Her breathing was increasing and I swear she was actually growling amongst her moans.
+
+Suddenly Kara dropped to her knees and buried her face in my crotch. As she worked her mouth and nose into my mound, I tried to block her advance by bucking my hips back and clamping my legs together. I was rewarded by Kara biting me hard on the thigh. Her drive to get to my folds was animalistic. It was terrifying and humiliating to watch myself behave like this. It was even more humiliating watching Mistress grab Kara by the hair and pull her away from me.
+
+“What do you want Kara?”
+
+“I want to taste her pussy Mistress. I need it.”
+
+“Do you now? I wonder what Tweetie thinks of that?”
+
+“It doesn’t matter mistress. She is only here to serve you and me.”
+
+“That’s correct Kara. You serve me as well. I will let you have her, but you will do something for me first. Take this crop and whip her feet. She wants this and will ask for it. Make her scream with each strike.”
+
+“Yes Mistress.”
+
+As Kara disappeared behind me, Mistress positioned herself on her chair in front of me. I had planned on screaming even if the strike had proved mild, but I didn’t have to fake it. I could never have imagined the intensity as I wailed. I knew what I had to do. “Again” Smack! “Again” Smack! “Again” Smack! “Again”
+
+Without my legs pinned down to the floor, I was able to swing wildly. Kara still found her mark every time. Time seemed to pass slower than I had ever known. The strikes just kept coming and I asked for every single one. It was against every instinct. All I wanted was to scream stop. The fear of doubling my punishment was the only thing keeping me from saying anything other than “Again”
+
+“Move around front and whip her tits. I want them bruised. So does Tweetie. Beg her to bruise your tits.”
+
+“Please… Kara, b... bruise, my tits.” Kara was all too eager to grant my request. I could feel the flesh of my breasts swelling with blood. Every strike drove pain through my core. Asking for the next blow was harder than ever. It was no longer will that voiced the word but terror alone. “AGAIN!” “AGAIN!”
+
+“Computer, Freeze the Kara character.” Mistress stood and walked close to me. “I’m going to give you a choice. You have exactly two hundred lashes remaining. You may either take them or have another option. If you choose the second option, I will ask her to stop. I will tell her you have something to ask of her. At that point you will beg. Not like an act. I want you to mean it. You will passionately plea with her to whip your ass with all of her might and not stop no matter how much you beg and not to stop until you pass out from the pain. This is your choice. When I stop you, say nothing and take another two hundred lashes for two more hours or beg her to brutalize you for a few minutes.
+
+My choice. Pain beyond imagination or two hours of terror. “As an added bonus, if you choose option two, I will grant you an orgasm when you recover.” Mistress walked back to her chair and sat down. “If you try for option two and I don’t feel enough conviction I will have her make you pass out ten times and then fulfill the two hundred lashes. Computer, resume program.”
+
+I was lost in indecision when the blows resumed. The pain to my bruised fruit was stronger than ever. Mistress called out that ten lashes were added for my failure to ask for the next lash. “Again!” The blows came again and again. I couldn’t take any more. If only to change the blows back to my ass, my eyes went to Mistress pleadingly. “Kara, stop. I think Tweetie wants something. Why don’t you ask her?”
+
+With a bit of confusion on her face, Kara looked to me. “Do you want something?” I didn’t hesitate. The words flowed from me pleadingly. “Beat my ass as hard as you can! Please, hit me with everything you have as hard and fast as you can! Whatever you do, don’t stop no matter how hard I beg! Beat be until I pass out! Please Kara, you have to!”
+
+My body was numb from the fact I had uttered the words. Everything was telling me to scream out that I didn’t mean it. I was horrified. Kara turned her head and looked to mistress. “Give her what she wants and then you may have what you want.”
+
+Kara stepped up to me and unfastened the belt’s buckle. She was moving with a ravenous passion as she dropped down and wrapped herself around my legs. My strength wiped from the abuse I had endured, I offered no resistance as she wrapped the belt around my legs. She crisscrossed the wide belt above my calves. With lust in her eyes, Kara picked up the crop and positioned herself behind me. The eagerness in her eyes filled me with terror.
+
+Nothing I had endured so far came close to comparison. I thought my lungs would burst from my chest as the blows came. I screamed longer and harder than I could have imagined. I lost count of how many times I wailed out please, no, stop. It was terror and pain that knew no limit. I twisted and turned. My knees rose to my chest until my muscles could hold them up no more. Every inch of my body locked up under the intense pain. Suddenly, it became disconnected. I could sense everything in a way but it was like from a dream. Then there was nothing.
+
+I became aware of sensation in my folds. As I regained consciousness, I was distinctly aware of a mouth working me over. My arousal rose and I tensed my body. When I tensed, I discovered My legs were once again spread and attached to the floor. My eyes came in to focus and Mistress was in her chair with her fingers down her own pants. I looked down and saw Kara. The Trill spots on her shoulders. Her soft pale skin. Her Muscles and spine moving beneath that smooth skin. I never realized how sensual and attractive Kara was. She had never appealed more to me than she did right now. “Oh, god I’m cumming! Oh, Kara! Don’t stop! Oh, yes!”
+
+I bucked as much as the chains allowed. It was a hard orgasm and it drug out for ever. My body was so fatigued I could only hang there twitching in involuntary spasms. “No… No more… Oh, Kara, please, no more.” Mistress barked out a single “Stop.” And Kara pulled her face from my mound.
+
+Together, they released me from my bonds. Mistress walked me down the corridor. I had never been so tired, sore and out of it in my life. Aside from the pain, all I could comprehend was how the orgasm had been such a wonderful gift.
+
+Mistress laid me down on the bed and tucked me under the sheets. “There you are sweetie. You sleep in Kara’s room tonight. We will see to your aches and pains tomorrow. Kara will stay with me tonight. Get some rest.
+
+I rolled to my side and turned my hips to keep the pressure off my tender ass. The cool sheets felt wonderful and I was fading quickly. Kara’s bed is always so nice. My bed? I don’t know, I can’t think right now.
+
+
+
+01.05.16
+
+story continues in [**The Final Trek**](finaltrek5.html)
+
+o0o

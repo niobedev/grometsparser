@@ -1,0 +1,196 @@
+---
+original_url: https://www.boundstories.net/storiesad/cornerbardominatrix.html
+subcategory: Bound Stories
+title: The Corner Bar Dominatrix
+authors:
+- Lady Tressa
+tags:
+- F/f
+- FF/f
+- M/f
+- bond
+- gag
+- collar
+- captive
+- strapon
+- lesb
+- hogtie
+- rope
+- drug
+- oral
+- anal
+- climax
+- cons/nc
+- XX
+date: 2016-05-17 00:00:00
+---
+
+Synopsis: a sadistic mean spirited dominatrix ruthlessly exploits her clientele
+
+For Margo it had been a day of intense anticipation, with the culmination expected within minutes.
+
+The twenty eight year old, two hundred pound blond, was tightly restrained to the bed in a face down spread eagled manner, in the bedroom of Elana, a BBW dominatrix, well known for her brutality and duplicity.
+
+Margo desperately wanted sex with a male, and was unable to procure such an encounter on her own. Most weeknights were spent at a local tavern, shooting pool, drinking beer and shots. It was the same tavern frequented by Elana, and the couple had been casually acquainted for some time.
+
+One day in desperation Margo confided her wishes to Elana. The White Russian dominatrix, who spoke broken English, offered to procure an evening of sex and bondage with a male, for a fee of two hundred dollars. Despite her marginal disability income, Margo paid the fee.
+
+Margo was not particularly enthusiastic about the bondage aspect, but was willing to accept it if it meant sex with a male. She was aware that Elana was a dominatrix with a reputation for torturing her submissives, and often robbing them of money and drugs. Margo had made clear her distaste for lesbian sex and was assured by Elana that the encounter would be all heterosexual.
+
+It was agreed that Margo would arrive at Elana’s home at 7:00PM on a Thursday in May. Elana refused to show Margo a picture of the male, nor offer any information as to his age or identity. Margo knew better than to persist with her queries, as this would incur the ill will of Elana.
+
+Margo arrived at the agreed time and was informed by Elana that the man of her dreams would be arriving within the hour. “Your date insists you be nude and tied when he arrive, so Elana take you up to the bedroom and do you”, she announced.
+
+Elana escorted Margo the upstairs bedroom where she was required to strip completely naked. The first step in restraining Margo was to attach a leather cuff to each of her wrists. A leather collar, with a one foot vertical strip, was fastened around her neck.
+
+Each wrist cuff was then attached to a ring on the vertical strip. This resulted in Margo’s wrists restrained well above the center of her back. Any significant movement caused the neck collar to act as a choker. “Elana not like her sluts to be too comfortable”, she chuckled.
+
+Margo was then made to lie face down on the bed, with two sets of leg irons used to attach each ankle to opposite sides of the rear bed frame. To complete her bondage, Elana wedged a pair of clean panties into Margo’s mouth, sealing them in place with three strips of transparent tape. She was blindfolded as well.
+
+“This put you in the mood for sex”, quipped Elana. Margo had no choice than to accept the rigid bondage, with the gag preventing her from saying anything. She was now fearful that her male date was a sadist, who would enjoy torturing a helpless female.
+
+Margo was in a state of extreme anxiety. Forced to breathe through her nose, she could barely move without the risk of choking. She realized that trusting Elana was a foolish move, and wondered what further depravities she might inflict on her.
+
+To compound the anguish Elana left Margo unattended for the greater part of the next hour, entering only twice to taunt her captive by saying “Your date come here soon”. Margo could hear conversation from a television downstairs, but not any movement by Elana and assumed she was watching some program.
+
+Finally Elana appeared in the upstairs bedroom and simultaneously her cell rang. The conversation was brief with Elana stating, “You be here in five minutes right, here I’ll let you talk to the subbie, she is gagged and won’t be able to answer you”.
+
+With the cell held next to her ear Margo was stunned to hear a female voice. “I am Mistress Michelle, a dominatrix and you will be serving me shortly, I can’t wait to fuck you with my strap on”, was the extent of the conversation as Elana pulled the phone away and assured the dominatrix that Margo was securely restrained and awaiting the joy of lesbian sex.
+
+Margo was furious that she had been duped. She had a strong distaste for lesbian sex but realized that she was at the mercy of two sadistic dominatrix, and powerless to resist. Michelle, unlike Elana, was a blond in early thirties, medium build, and wearing an ankle length leather coat, five inch dominatrix heels, and a black mini skirt with matching top.
+
+Elana customarily dressed in sweat pants and sweatshirts, her broken English belied her foreign nationality. Michelle was always attired in a professional and provocative manner. She was of British descent, high intellect, and had an air of haughtiness about her.
+
+Michelle had married, then divorced, a wealthy industrialist and had attained American citizenship, currently she was employed by a public relations firm. She had no dungeon and her bondage clientele was very limited. Ordinarily she rented a dungeon from a friend, after procuring the submissive on her own. Although bisexual, she only accepted female clientele.
+
+About ten minutes later Margo heard footsteps coming up the stairs and into the bedroom. Michelle removed the blindfold, enabling Margo to get her first look at the dominatrix she would be serving. “Great gag I think I’ll leave it on until I finish the strap on”, she added.
+
+“She much too comfortable, ordinarily I hogtie my sluts and use rope around the neck but it takes too long so I put her in handcuffs instead, when you finish maybe I hogtie and use her myself”, replied Elana.
+
+This only added to Margo’s terror, the handcuffs connected to the collar had prevented her moving about, it was difficult to believe that she could be restrained any more uncomfortably. Michelle removed the leather strip connecting the wrists cuffs to the collar, but her wrists would remain cuffed, and the collar in place.
+
+Margo sensed that both of her captors were hard core sadists, an assessment which would prove correct.
+
+“Elana have to go downstairs to take care of other business but I’ll be back”, she announced before leaving Michelle and Margo in the bedroom, then returning to the first floor.
+
+A pick up truck pulled into the driveway and three males exited before entering Elana’s house through the side door. The most conspicuous of the three was a twenty year old male of medium build, who was wearing a black hood, with his wrists cuffed behind him.
+
+The other two males were collectors for a local loan shark. Ken owed five hundred dollars and just ten minutes ago had been snatched from the streets and forced to sit on the passenger side floor. It had been agreed earlier, after Margo had been scheduled, that he would be transported to Elana’s, but the time was uncertain. Fortuitously it turned out to be ten minutes after Michelle’s arrival.
+
+Ken, terrified as to his fate, was led inside to the basement stairs, where his hood was removed. He was then taken to the basement, with Elana taking charge. He was made to sit on a chair and his wrists were recuffed to a pole behind the chair.
+
+The plan was for Elana to install a cock cage on the deadbeat, especially designed that only she could remove. It would remain locked in place until he paid his debt. “You look like a faggot to me, maybe I should make you dress like woman”, chuckled Elana. She proceeded to roll down his jeans and boxers, then locking the device into place.
+
+Elana knew that one of the two thugs was gay and would not object to some forced fellatio. “Now you suck cock”, she commanded. Chuck, who was gay, hadn’t been expecting this but was quick to drop his own jeans.
+
+Ken pled to be spared the indignity. Elana’s reaction was to use a dog leash to secure his neck to the pole. “Suck his cock and swallow the cum, or I put brace in your mouth so you cannot close it”, she commanded in an angry tone.
+
+Chuck had no trouble positioning his cock at mouth level, and Ken had no choice that to perform the degrading task, but he was too slow and sloppy, and was told several times to change his technique.
+.
+This visibly angered Elana, who was not pleased with Ken’s presence to begin with. She took a Whitehead gag, forced it into his mouth, and ratcheted so that his mouth was wide open. “Mouth fuck the faggot and get him out of here”, she ordered.
+
+While Chuck would have preferred teaching Ken proper technique, Elana’s patience was wearing thin. She personally did not care to do these types of jobs especially on short notice. The loan shark was only willing to pay three hundred dollars for the job, which involved little gratification for Elena.
+
+Chuck spent less than two minutes thrusting his cock in and out of Ken’s mouth before ejaculating, leaving him no choice than to swallow the load. This was the first time he ever had sex with a male
+
+The cock cage used on Ken was an expensive model and in order to assure that it was returned, Elena would have to remove it personally. This meant going to someone elses home. She did not want Ken to be aware of her address, which was the reason why he was kept blindfolded, except for the time he was inside the house.
+
+The two goons led Ken, handcuffed upstairs, then hood put on him again, and led to the truck. He would be released close to where he had been snatched from. Ken had a girlfriend, with whom he had sex regularly. He could never allow her to know that he was wearing a cock cage, let alone that he had been forced to have sex with an older male. The future of this relationship was clearly in doubt, as it would take days for him to pay back the money he owed. In addition the ever sadistic Elana increased his anguish, by commenting on the less than stellar size of his cock, and threatening to inform his girl friend that he engaged in gay sex.
+
+Elana returned upstairs to find that Michelle, clad only in stockings, had fastened a strap on around her waist, and was using it to vigorously cunt fuck Margo. Her legs were still spread wide and secured to the rear bed frame with leg irons, and two pillows had been placed underneath her stomach to allow better coital access.
+
+Margo’s gag had been removed and she was unable to suppress her erotic moans. It was humiliating for her to do so while engaged in lesbian sex, she longed to be fucked by a male cock. Michelle almost certainly sensed this, and to add insult to injury suggested that Margo might have a better chance attracting males if she were to wear Muslim attire, such as a burqa and veil.
+
+Michelle finally tired of the strap on fucking, what followed would be prove to very painful. Margo would receive twenty five strokes to the buttocks, with a rattan cane, after which she would be required to perform oral sex upon Michelle. If her performance was not satisfactory, she would receive an additional twenty five strokes.
+
+Elana, who thrived on instilling fear in her clients, assured Margo the caning would be very painful, leave red welts and that she might even pass out. Michelle immediately began the caning, with such harshness, that even Elana was impressed.
+
+The strokes caused Margo to cry out in pain. “You have fat ass it shouldn’t hurt that much”, chortled Elana. With the caning complete, Michelle assured her submissive that she would receive another twenty five strokes, should her oral sex be unsatisfactory.
+
+Elana had some ideas of her own, which she was keeping to herself. Margo would be kept overnight and she would attempt to procure a male to have sex with her. It would be a lucrative night.
+
+Michelle positioned herself at the head of the bead, forcing Margo’s face into her sex. For the next fifteen minutes Margo was forced to use her tongue at feverish intensity to satisfy Michelle’s lusts.
+
+The coital strap on fuckings by Michelle had been painful, leaving Margo with no orgasms. The current oral sex was uncomfortable and degrading, once again Margo was denied orgasm. Such was not the case with Michelle, whose appetite for oral sex was seemingly insatiable.
+
+At last Michelle gave Margo permission to stop. “You did very well and as a reward you will not receive another twenty five strokes”, she announced.
+
+Elana was very strict about the amount of time a visiting dominatrix could spend with a sub, and Michelle was on the verge of exceeding her time limit. After dressing she quickly departed.
+
+Margo’s hopes of being released were quickly dashed. “You’ll be here for the night, maybe I can find a guy who will fuck you, but if not I’ll use you myself”, decreed Elana, adding as an afterthought “I won’t charge you any extra”.
+
+Elana released Margo from the uncomfortable steel handcuffs, replacing them with zip ties on her wrists and ankles. Her wrists were tied in front of her, then attached to a metal chain which was fastened around her waist. The free end of the chain was looped underneath her crotch and padlocked to the other side of the chain. Elana smiled at the obvious discomfort the crotch chain was causing for Margo.
+
+The desire to humiliate her captive was too great for Elana to ignore, so she was made to hop about the second floor. This was not an easy task with her ankles bound together. Led by a leash attached to the collar, Margo was required to make continuing barking sounds, and twice received strokes to her sex with a riding crop as punishment for not barking loud enough.
+
+With the leash tour complete, Margo was made to sit in a wooden chair in Elana’s bedroom. A seven foot metal chain, already anchored to the front bed post, was attached to the neck collar. Margo was also fitted with a muzzle style ball gag and locked into place. Even with her hands free she could not remove it.
+
+Elana fully intended to keep Margo in restraint overnight, when the cell rang. One of her informants reported that Danielle, a twenty six year old skanky crack head, was at a nearby dive bar. She owed Elana two hundred dollars and had not been seen for nearly two weeks.
+
+As a loan shark Elana was as ruthless as she was a dominatrix. To be delinquent on a payment was almost certain to precipitate some type of violent or humiliating punishment from Elana. With the bar only ten minutes away, it was an excellent opportunity to confront Danielle.
+
+Elana felt it was safe to leave Margo unattended, bound and chained to a bedroom chair, there was no danger of her escaping. To prevent her from hearing the truck starting in the driveway, Elana played music over the stereo, at a high volume.
+
+Danielle was unpleasantly surprised as Elana strode through the front door of the tavern, immediately confronting her as she sat at the bar. The bar, like most of the bars frequented by Danielle, was a dive bar where drug dealing and prostitution were commonplace.
+
+Elana’s’s delinquent borrower was more or less a homeless person. She lived with males off and on, until her welcome wore off and she was evicted. Danielle was reputed to provide stellar quality oral sex, and able to command one hundred dollars for a half hour session.
+
+Danielle was clad in jeans, a halter top, and a black knee length imitation leather coat. “Time for you to pay up”, were the first words out of Elana’s mouth.
+
+She pleaded for more time, but Elana was not accepting any excuses. As the fifteen or so customers and staff watched in amazement, Elana produced a pair of steel handcuffs, using them to cuff Danielle’s wrists behind.
+
+“You come with me”, Elana tersely commanded. Danielle became quite vocal in her protests but no one in the bar offered her any assistance. Elana took the same metal leash she had used earlier in the evening, coupling it in place after wrapping it around her neck, then using the leather handle to forcibly led Danielle from the bar.
+
+Had Elana used handcuffs alone, Danielle would have resisted fiercely, but the chain was wrapped so tightly around her neck that she had no choice than to walk behind her captor.
+
+Elana forced Danielle into the front passenger position of her pick up, where she used a second set of handcuffs to connect Danielle’s wrists to the seat frame, assuring she would remain on the floor for the duration of the trip.
+
+ Her movement was further restricted as the leash was used to bind her ankles to the seat frame. Elana had brought along a pair of soiled, balled up panties, which were wedged into Danielle’s mouth. “That keep you quiet until we get home” chuckled Elana. She watched with delight as Danielle tried to expel the panties, but they were simply wedged too tightly.
+
+Upon entering her driveway, Elana had no difficulty removing Danielle from the vehicle. Using the choker leash she was led to an upstairs bedroom, directly across from the one occupied by Margo. Even with the loud music, Margo suspected someone new had arrived but the hallway door was closed.
+
+Elana’s plans were to strip and hogtie Danielle, then hopefully find a male willing to pay for her use. Danielle was not about to strip voluntarily, so Elana decided to use chloroform, at which her competence was adequate.
+
+For administering the gas Elana used a strap on face mask, which covered the mouth and nose of the recipient. The mask was first saturated with liquid chloroform, stored in a jar, with the mask re saturated as needed.
+
+Danielle was fully clothed, with her wrists cuffed behind her back. She wasn’t about to accept the mask without a struggle, so Elana forced her face down on the bed, straddled her back, and applied the mask. “This put you to sleep, Elana strip and hogtie you before you awake”.
+
+Elana first removed the panty gag from Danielle’s mouth, before applying the mask. She knew that it would take nearly fifteen minutes before unconsciousness occurred.
+
+Her timing proved to be correct, as Elana set about stripping the incapacitated crackhead. Danielle was wearing knee length boots and they proved to be quite a challenge removing. Three twenty dollar bills were found inside Danielle’s bra, and would be used to help satisfy the debt.
+
+Danielle was starting to awaken about twenty minutes later as Elana completed her ropework, from which no one had ever escaped. Danielle was tied using a breast harness arrangement in the front, and her wrists and elbows were tied in the rear, with each wrist tied above the other. Elana could easily have found work as a rigger for a bondage production company.
+
+Elana tied Danielle’s legs together at the ankles and at a point just below the knees. The ankle ropes were tied to the elbow results, resulting in a most restrictive and uncomfortable hogtie. By this time Danielle had regained consciousness. Not wishing to listen to her protests, the panties were reinserted into the mouth and secured with several pieces of transparent tape.
+
+Danielle could barely move. She had been tied a few times in her life, but never in such a painful and restrictive manner. “A couple of hours like that do you good, I try to find male tonight who will pay to fuck you so you can pay debt, if not I keep you here until I find one”, chortled Elana.
+
+Elana felt she could command two hundred fifty dollars for a session with Danielle.  Despite the lateness of the hour, she was aware of one middle aged male, who enjoyed bondage sex, especially oral, at which Danielle was so talented.  As luck would have it she was able to contact him by phone, he readily agreed to the price, and would arrive within the hour.
+
+That left the question as to Margo, who was still chained in another bedroom. Elana decided to give her john an opportunity to fuck her if he wished, at the least she would perform oral sex. Margo would stay the rest of the night regardless, she would later be given some sedatives, and given a meal before being released.
+
+Elana decided to keep Margo confined in the basement, so as to prevent her from being aware of Danielle’s presence. This was easily done and her collar chain was used to lead her to the basement, where another chain was attached from the ceiling beam to her collar. She would be allowed to sit on a mattress, her hands still cuffed, and with her irremovable harness gag staying in place.
+
+“I have man coming who will fuck you, if you do not please him you will stay her and I find another woman to do you, otherwise I will let you go”, Elana explained
+
+The john arrived within the hour, paid his tribute, and was taken to the upstairs bedroom in which Danielle was confined. She was still painfully hogtied. Elana removed her gag at this time so as to permit oral sex with the john.
+
+Elana had warned Danielle beforehand that if she was disrespectful, or otherwise failed to please the john, arrangements would be made with a female biker gang, who would be invited to the house and be able to use her as they pleased. Actually it was a bluff, but Elana always had a lesbian available, ready and willing to do someone like Danielle.
+
+Danielle was first forced to please her john with oral sex while remaining hogtied. He was immediately impressed with the quality of her mouth work. She was able to deep throat and lick him without any contact with the teeth. Her john was a busy man and knew the meter was ticking away, he would have enjoyed oral sex for several hours.
+
+After about fifteen minutes of mouthwork, the john climaxed with Danielle swallowing the load. Since he was paying for one hour, he also wished to ass fuck her, to which Elana consented.
+
+Danielle had an aversion to anal sex from painful encounters in the past. She was once again gagged, her anal region was lubed and the john began pounding away. Despite the lube, Danielle had pathologically tight anal anatomy, and extreme pain was unavoidable.
+
+Her wailing into the gag was a big turn on to the john, who continued his penetrations for about five minutes. Elana sensed the pain was genuine but did nothing to stop it. Finally the john ejaculated, withdrew and was soon on his way, a most satisfied customer.
+
+“Elana now knows your weakness and I might just fuck you with a strapon”, she announced. Danielle begged the best she could to be spared any further anal torture.
+
+Danielle was spared such torture, but remained hogtied, gagged and blindfolded, for nearly two hours as Elana went about her phone sex business. The hogtie was brutal, with the crotch rope tightly embedded. Elana knew Danielle would not be borrowing in the future, so why not make the bitch suffer for being delinquent on her payment.
+
+After about an hour of phone sex, Elana decided to release Margo from her basement confinement. After being allowed to dress she was permitted to leave the house, with Elana promising to find a male partner for her soon, at no additional. Obviously she had no intent of doing so, which Margo was well aware of but knew better than to question.
+
+An hour later Danielle was released from her bonds, allowed to dress and sent on her way, being informed that her debt was paid. She was never seen again in the Philadelphia area, reportedly moving to Cleveland. Margo never again frequented the bar where she had become acquainted with Elana.
+
+THE END

@@ -1,0 +1,104 @@
+baseURL: "/"
+languageCode: en-us
+title: Gromet's Plaza Archive
+theme: PaperMod
+
+markup:
+  goldmark:
+    renderer:
+      unsafe: true
+
+params:
+  defaultTheme: light
+  showCodeCopyButtons: true
+  ShowReadingTime: false
+  ShowShareButtons: false
+  ShowPostNavLinks: true
+  ShowBreadCrumbs: true
+  author: Gromet's Plaza Archive
+  mainSections:
+    - stories
+  description: "A clean, searchable archive of stories parsed from Gromet's Plaza. Explore our collection of bondage, fetish, and adult stories."
+  contactEmail: "feedback@grometsplaza.net"
+  homeInfoParams:
+    Title: "Welcome to Gromet's Plaza Archive"
+    Content: |
+      A clean, searchable archive of stories parsed from <a href="https://grometsplaza.net/">Gromet's Plaza</a>.
+
+      <div style="background-color: #fff3f3; border: 1px solid #ff0000; padding: 15px; border-radius: 5px; margin-top: 20px;">
+        <strong>⚠️ CONTENT WARNING: 18+ MATURE AUDIENCES ONLY</strong><br>
+        This archive contains adult, explicit, and sensitive material. It is intended for mature audiences only. By continuing to browse this site, you acknowledge that you are of legal age to view such content.
+      </div>
+
+  fuseOpts:
+    isCaseSensitive: false
+    shouldSort: true
+    location: 0
+    distance: 100
+    threshold: 0.4
+    minMatchCharLength: 3
+    keys: ["title", "permalink", "summary", "content", "authors", "tags"]
+
+outputs:
+  home:
+    - HTML
+    - RSS
+    - JSON
+
+taxonomies:
+  tag: tags
+  author: authors
+
+sectionPagesMenu: main
+
+paginate: 10
+paginatePath: page
+
+frontmatter:
+  date:
+    - date
+    - publishDate
+    - lastmod
+  lastmod:
+    - :git
+    - lastmod
+    - date
+    - publishDate
+    - :fileModTime
+
+permalinks:
+  stories: /stories/:year/:month/:day/:slug/
+
+enableRobotsTXT: true
+
+sitemap:
+  changefreq: weekly
+  priority: 0.5
+  filename: sitemap.xml
+
+menu:
+  main:
+    - identifier: stories
+      name: Stories
+      url: /stories/
+      weight: 10
+    - identifier: tags
+      name: Tags
+      url: /tags/
+      weight: 20
+    - identifier: authors
+      name: Authors
+      url: /authors/
+      weight: 30
+    - identifier: purpose
+      name: Purpose
+      url: /purpose/
+      weight: 35
+    - identifier: search
+      name: Search
+      url: /search/
+      weight: 38
+    - identifier: original
+      name: Original Site
+      url: "https://grometsplaza.net/"
+      weight: 40

@@ -1,0 +1,145 @@
+---
+original_url: https://grometsplaza.net/world/ponygirl/storiessz/workinghumanmilkfactory.html
+subcategory: Giantess & Shrinking
+title: Working at the Human-Milk Factory
+authors:
+- Denkira7
+tags:
+- MF+/f+
+- slaves
+- shackles
+- factory
+- stall
+- stock
+- bond
+- plugs
+- insert
+- force-feed
+- machines
+- lactate
+- milking
+- pump
+- hucows
+- disposal
+- sex
+- climax
+- cons/nc
+- X
+date: 2016-07-14 00:00:00
+---
+
+I am a simple man with a few credentials in my life. But the most important one is that I was born on the right place, which put me on the right side. The one that won the war, a war that split the world into two groups. Those of us who still walk the earth free, and those who are slaves, with virtually no rights. After the war was over I got a job as a guard at the first human milk factory that was created, shortly after. The pay wasn't much, but it was an easy job and I had plenty of time to hang out during it. So I thought I would start a diary of my experiences at the factory. Below, are some of the entries.
+
+12 September 2023:
+
+It's been two days since the factory officially opened and tomorrow we are going to have the first group of cattle arriving. I have to say I’m pretty excited. I learned that they come straight from the camps, mostly younger girls who failed to qualify for manual work or sex work.
+
+13 September:
+
+It was an eventful day! We just finished setting them up. I got to say though, when they arrived, I was pleasantly surprised. There were lots of beautiful women among the about two dozen that were brought here. I can't even imagine how hot the sex workers must be! A lot of them were already in tears, begging us to release them. I was mildly annoyed at their whines but hopefully I didn't have to hear them for long. They were all naked, except for the thick metal cuffs on their wrists and ankles, that seemed to have become a second nature to them. The mandatory shock collars around their throats reminded me of the remote that I had been given earlier this morning by my overseer.
+
+We led them through the entrance to the main facility where, unbeknownst to them, they would spend the rest of their lives. A lot of the younger ones looked terrified at the sight of the milking stations, the older ones looked mostly detached and miserable.
+
+Then, one of the girls in the back of the line, panicked and tried to run away. It was kind of funny how she moved with small quick steps due to her shackles. I was the first to press the remote, sending a strong zap on her neck. More zaps from the other guards followed. She fell to the floor writhing in pain, her last attempt of exercising any free will ended abruptly.
+
+After that little incident, we started placing the cattle in their milking stations. Each woman was placed in the metallic device, their head secured to a stock. Two steel poles came from the back side of the stock and secured the arms behind their back, the elbows bending 90 degrees. Another stock planted a few inches from the ground secured their feet at the ankles. A bar resting in front of their legs ensured that their body was almost at a right ankle, bending at the waist. I learned that it was so they could sleep without much tension on their neck.
+
+Some of them struggled of course, but that's why we were there. I distinctly remember a young dark-haired girl shouting "You can't do this to us, we're not animals!" She couldn't be more than 22 or 23 years old. A few zaps later and she along with all the others were locked in their stations. At this point some production experts came in the room. We were able to observe the process though. Each station had a pair of glass cylinders that they placed on the cattle’s breasts and then created a vacuum inside. The milk would be pumped into these and then extracted into a container next to them. Then their feeding tubes were set. Each one was attached to a large red ball that was stuffed in their mouths and then buckled behind their head. I was relieved that the noise was reduced a lot by these.
+
+What I found interesting was how indifferent were the scientists towards these women. About half of our staff are women, but it didn't made any difference in the way they treated them. They prepared each "subject", as they often called them, quickly and without any remorse.
+
+Finally, they inserted plugs that were each connected to a tube, into each cow's anus, in order to remove excrement. They did the same to their urethras with some tiny tubes. Then, they stuck a serum in their hands, containing drugs to induce lactation. I watched as the scientists examined each "subject", to make sure they get the maximum quantity out of every one. The girls just watched them, still in shock, some of them still struggling to free themselves from their stocks, in vain of course.
+
+I was watching the black-haired girl, the same one who was yelling earlier. She had calmed down a bit and now stood there, defeated and humiliated. Our eyes met. She was very pretty, with a slim waist and beautiful breasts. I thought, that maybe, in another universe, she could have been my girlfriend. But not in this one, here, she is lower form of being. She mumbled something incoherent, the red ball in her mouth muffling her words. I presumed she wanted to speak to me, but it didn't matter. Nothing she had to say mattered anymore. She is just there to be productive for the factory.
+
+17 September:
+
+I am becoming used to the surroundings of the facility. We are not allowed to touch the cows, now that they're part of the factory's property, but some of the other guards tease them in order to kill some time. I, myself don't see much point in this. I wasn't the kid who would go around harassing animals for no reason, so why do it now? Luckily for the poor things, the scientists had ordered their collars to be removed, since they serve no purpose now, and electric shocks can hurt the milk supply. Some cattle had started producing small amounts of milk. The drugs worked faster on some girls than others.
+
+There was still a general moaning noise echoing in the facility. The girls seemed still unnerved and often looked at each other for the slightest comfort they could offer. They suffered a lot during these first days. The drugs were very painful for the cattle and the more their breasts would swell the more painful it would be.
+
+19 September:
+
+I had the morning shift today, so I saw the force-feeding for the first time. It is cruel but I guess there's no other choice. The factory can't be monitoring every cow's food intake. This way they also make sure they're healthy and no cattle can intentionally starve to death. Their expressions every time the machines are turned on are priceless! Their eyes open wide whenever they hear the food pumps start ramping up.
+
+21 September:
+
+One of the guys brought a sample of the thick, liquid mix that the cattle is fed. He dared us to drink shots of it. We each took a bottle cap and tried to down the yellow looking substance. It was barely palatable, like a horrible, mashed energy bar. I felt a bit sick, then thought of how awful it would be to have this as your only diet. The cattle have to eat a gallon of that shit, in two portions each day.
+
+25 September:
+
+All the cattle have started producing and the pumping noise of the milking machines is now as loud as the painful whines. The black haired girl's B cups had now swollen to DD's and she lactated profusely. I sat and looked at her for a long time. Sometimes, she would break into panic attacks and struggle as hard as she could. The steel stocks didn't give at all, but, surprisingly, that didn't stop her most of the time. She hadn't given up yet, even after so many days here. I have to say she intrigues me. Other times she would stand looking down, lost in her thoughts, trying to get her mind off the pain on her breasts. There were some women that would be considered hotter in the "real world", but I found myself observing her the most.
+
+2 October:
+
+It was near the end of my shift when a guy from the management arrived at the milking station, pushing a trolley. I took a look inside and saw what looked like a pair of dozen plastic cow heads. A simple design, with a few black spots here and there, and even some fake cow ears. A hole was were the mouth would normally be. "A lot of the cattle are still psychologically distressed. The management thought that part of it had to do with them witnessing themselves and the others in this situation. These will help." I then noticed that the heads had no eye holes, instead they had some padded blindfold on the inside. "Also" he added, the cow heads are used to make them less human-looking. The factory will be open to visits from civilians and even some schools in the next month, so it's better if they look more like cows.
+
+It made sense. Without witnessing their ordeal, the human cows could accept it more easily. It's also easier for a little kid to witness a cow being milked, than an actual person. I took one of the plastic heads and headed straight for the dark-haired girl. I wanted to be the one to do this to her. I don't know why really. Maybe it was a sign of respect to the human she once was, or maybe I wanted to be the last person she sees. It didn't matter.
+
+I stood in front of her holding the mask-head. She looked at it confused. There was a switch on the side of it, a click and it opened from the side. The girl's eyes widened at the realisation that this silly, degrading thing, would replace her face. She became nervous as I positioned it in front of her face. I removed her feeding tube and passed it through the mask's hole. It was big enough that she could breath without problem, although it still looked kind of claustrophobic. She looked me in the eyes, scared, breathing heavily.
+
+"It's ok", I said to her. Why was I talking to her? what difference would it make? For what it was worth, I just wanted to comfort her. I pressed the mask a bit closer. I looked at her face one last time, taking a mental picture of it. She was still looking at me with those beautiful green eyes. Then, I pressed it until I felt the blindfold stop against her eyes. I closed the back of the mask, a loud click signalled that it was now locked permanently. She let out a moan of fear, unable to see anything.
+
+"Shhh, it's gonna be ok" I said to her. I knew it probably was a lie, I just hoped it would eventually calm her like the guy said. As she shifted her head from side to side, as far as the stock would allow, I felt the urge to touch her. I scanned around me, but unfortunately the other guards had already started placing the new plastic heads on the unsuspecting creatures. It would be too risky to get caught, so I reluctantly backed away, and left, with the last picture of the girl's face in my mind.
+
+**CHAPTER 2**
+
+19 October 2023:
+
+Most of the cows have gotten used to the darkness that constantly surrounds them. The first few days weren't easy. Especially for some of the more claustrophobic ones, it was actually a living hell. They'd scream into their gags and shake uncontrollably, then burst into silent cries. The scientists mentioned that this was a necessary evil and that eventually, they would calm down. They were also right about their fake cow heads, as they made them seem much less relatable now. That and the fact that they were now each trapped in their own mind, unable to gain strength from the others, broke them much faster.
+
+Mine was dealing with the changes well enough. She rarely ever caused any fuss around the factory and just succumbed to soft moans every few minutes. I could tell that she had started to give in, to slowly accept her position in the world and her fate. I sometimes would entertain myself by thinking of what kind of person she was before she became a slave. What would her interests be. Her personality. Her aspirations. I still have the memory of her face in my mind. Her black hair running down her shoulders, her juicy lips hugging around the gag in her mouth, her pretty green eyes. I still wanted so bad to touch her, but I didn't have the chance so far.
+
+21 October:
+
+Today the cows were branded with their individual code name. It probably should have happened sooner, but the production team was busy with other matters of the factory, so it was pushed back a bit. I escorted the farmer that had been called for this job, so I was really close to what was happening. He told me that he farmed livestock for decades and had branded hundreds of them, so it didn't really faze him anymore. The station's manager gave him a list with the code for each cow and then left us alone. I chatted with him as he marked one beast after the other on their left butt cheek. He showed me how you were supposed to press the iron down so that the mark was clear and the cow was unable to jerk away.
+
+It was hard for them, especially when they had heard the sizzling sound coming from the one next to them and figured it was now their turn. The mark was big, too, covering about a third of their cheek. “Do it quickly, don't hurt the animal more than you have to." said the old man to me, like a father, passing wise words to his son.
+
+Then we reached my girl. She had just heard the screams of the cow next to her and as she heard our voices just behind her, she started to tremble with fear. If she wasn't supported by the stocks and the bar, she'd probably fall to the ground. "Is it ok if I do this one?" I asked the man politely. "I don't think it'll be a problem" he said reassuringly. He set the electric iron to the correct code, then placed it in my hands. "One swift motion, then remove after one second." "Got it!" I said, a little nervous.
+
+I approached her. Her feet were still shaking in anticipation. I knew it was cruel of me to prolong her ordeal, but I didn't care at the moment. I placed my left hand on her lower back, keeping her as secure as possible. I could faintly hear the muffled cries coming from inside her fake plastic head. I caressed her in the small of her back, as if it would serve as any sign of comfort. Finally, I drove the iron straight on her flesh. The pain must have been so great, that the moment the iron first touched her skin, she didn't produce any sound. The next, came the loudest scream she could utter, muffled by the ballgag. I removed it as the old farmer said, and watched the smoke still rising from where the iron had just been removed.
+
+25 October:
+
+A cow who was still very noisy was actually taken to the lab by two guards. She appeared to be one of the younger ones there, just 19 years old. I remembered her cause she was short and had a scar just next to her belly button. A lot of the guys said she was faking it to maybe get some kind of special attention, but I think she was just really fragile. The experts had noticed how much she had decreased in her daily quota of milk, and deemed necessary to separate her from the other cattle, as she would upset them and therefore distract them. The two guys who detached her from the machine and led her to the labs told us later, that the scientists intent to use her as a guinea pig for new experimental drugs and milking methods. She'll be able to see but I doubt she'll have a better time than the cattle here.
+
+12 November:
+
+Today we had our first scheduled visit. The factory's doors were open to the public and so I was very busy today, trying to keep things under control. It was fine, though. The management had even organised tour guides that started the trip to the factory from the milk's preparation stations and bottling facilities and finally arrived at the milking stations so that the crowd could take a look at the cows. A lot of people were impressed by the technical advances of the milking procedure, staring as milk was being pumped out of each cow's large breasts, which by now was what would be considered a size G.
+
+A family with a little girl stepped forward, and asked the guide if the girl could pet one of the cows. They were standing next to one of the older ones, as I could tell from her physique. The woman paused for a second and said "she can pet it on the head" . I watched the dad hold his daughter in his arms, both had hair as blond as the sun. He moved closely to one of the cows so she could reach with her little arm. The cow seemed alert by the presence of people next to her. If she wasn't wearing a mask they would also see how humiliated she must have been, I thought. Presented like this, exposed and treated like a beast, it had to feel awful. The girl reached her hand and stroked the cow at the top of its plastic head. The mother looked at her daughter, happy, encouraging her, "there, pet its head, see? it can't hurt you, dear".
+
+She was right. The cow just stood there, bound by metal, and endured the humiliating display. As I watched them I failed to spot the two high schoolers who were sneakingly grabbing another cow's ass a few feet away. She was helpless to do anything while they played with her. I yelled at them and they left her, giggling like idiots.
+
+3 December:
+
+Things have taken their course here. I guess that's what the routine will be like. Things have settled down and the factory runs more productive than ever. Each cow produces about a gallon of milk per hour. All the cows have stopped struggling and whining and have resolved into their everyday lives, which is a dull circle of milking, force-feeding and sleeping. Although the last one is probably relative, since they all they see is darkness, they are more likely on a constant semi-conscious state most of the time, along with the ever-present pressure the pumps put on their swollen tits.
+
+I was watching my dark haired cow-girl again this morning. She has totally lost any fighting spirit she may had left. Occasionally, she'll make a sound or shake her head, but that's something a cow would do anyway. I don't think it means anything anymore. Just primal reactions, all that's left of the girl she used to be.
+
+25 December:
+
+I finally did it! I took the Christmas night shift on purpose, so that the staff were limited. I sat with another guy until it was almost time to go, 8:45 p.m. Everyone had gone home, so it was the chance I’ve been looking for. "Go ahead, I’ll close here, don't worry", I said to him. Luckily he thanked me and walked out of the factory's main door.
+
+The lights were already out in the facility. The moon and the night lights from outside were the only source, coming from the factory's windows. It was quiet. Only the soft, repeating sound of the milking pumps was present in the room. Most cows were probably asleep at that time, since they have been fed about two hours ago. I walked towards her, looking around to make sure I was completely alone. OC-21 was the code. I would never forget where she was but I remembered that name from the day I had carved it on her body.
+
+I stood behind her. She was still in her own cruel world. I placed my hand on her bottom. I felt her flinch at my touch. I felt her whole body tense, waiting, anticipating, confused. I grabbed the excrement-plug and slowly pulled it out of her. It was in my way. She moaned softly and jerked a bit. It didn't matter what she wanted, I was gonna have her right then and there. I pulled down my pants clumsily, I didn't think anymore, I waited so long for this. I was already rock hard when I drove myself inside her pussy.
+
+She jerked and tried to move away, but there was nowhere to go. The bar held her right where she was as I thrusted deeper and deeper, holding her waist. I leaned over her, I wanted to feel as much of her body as possible. As much as I wanted to, I didn't squeeze her large, lactating breasts, though. She would be in horrific pain and I didn't want to hurt her.
+
+Then, she begun moaning in pleasure. I felt her trying to back towards my cock, although the stock on her head didn't leave her much room. I wanted to make her cum now, this had turned from a sexual impulse into almost like love-making. I moved faster and watched her scream as she orgasmed hard. I finished inside her immediately after.
+
+Deafening silence came back in the huge room. I was panting as I slowly pulled my pants up. Sperm was dripping out of the cow's pussy. Cow's? girl's? I don't know anymore. I don't consider myself a pervert, but I couldn't tell anymore. I had just fucked a cow, but her form was anything like one. I guess this is the absurdity of the world we are living in. I took a napkin and cleaned the animal of my seed. I put the plug in its place and looked at my watch. It was 9:10. I had to leave to be safe. I kissed her on the butt cheek where the words OC-21 could be read on her scar. It had healed since that day, but it would never leave her body. I walked fast towards the exit, not looking back.
+27 August 2025:
+
+I had given up on the whole journal thing, but today something interesting happened. Almost two years since my last entry, so I’ll do a small update first. Not much has changed. I knew guarding livestock wasn't gonna be the most exciting job, but it pays well so I don't complain. I've been promoted to sergeant as well, which just means I’m the head of the security staff. Little better money and hours.
+
+Hours that I manipulate in order to find time for my little cow-girl. I haven't fucked any other animals here, but she isn't like any other animal. I guess about 18-20 times would be right, if my memory serves me well. It would be always at the end of the day, last shift. She'd usually protest at first, but she'd come around eventually. Last time, she was getting wet just as she felt my hands stroking her naked ass. I could be wrong, but I like to think that it's a treat for her, a nice break from the constant darkness and induced lactation. Her breasts were monstrous now, just like any other human cow. I don't think there's even a measurement for something like this. I couldn't help but feel them from time to time, much to her own discomfort.
+
+But this isn't why I wanted to write today. First, I noticed two of the scientists examining one of the older cows, looking very concerned. She must have been about 35-40 years old. From what I could hear her milk quota had dropped severely and it didn't look like it would rise again. "We'll have to send her to the knackery", said the man. "I'm afraid so." replied the woman next to him. It was certain that the cow could hear them, although I wished that she couldn't or had lost her ability to process words. But she didn't. She started breathing
+heavily, nervous, indicated by the fluctuation on her big breasts.
+
+They came to me and informed me of the situation, even though I had heard everything. I sent two men to detach her from the machine and take her to the slaughter house, a small building near the factory. I knew that lot of rich people liked to eat human meat and they'd pay good money, if an opportunity like this arose. The factory made some money from the meat and would replace the cattle with another, more productive one.
+
+I watched as they unlocked the stocks, grabbed each of her arms and started walking towards the exit. They left the ballgag by cutting the feeding tube, so she wouldn't try to speak and upset the other cows. It didn't help her, though. She jerked and cried pitifully but she couldn't stop them from almost dragging her by the arms. It was sad to see any creature in this situation, but it had to be done. I tried to rationalize it by thinking of what could she have done to avoid this, but couldn't find anything. It simply came down to biology, and her's had failed her. Produce milk, or become a steak in someone's plate. I thought of my cow-girl, and how she would probably face the same fate, some day. Her milk production was great, she was still young after all, but still, that day would come. I took a glance at her, her beautiful face still in my mind all this time, and it cheered me up.

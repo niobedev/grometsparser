@@ -1,0 +1,64 @@
+---
+original_url: https://www.boundstories.net/storiesek/keepingkellybusy.html
+subcategory: Bound Stories
+title: Keeping Kelly Busy
+authors:
+- MindSplinter
+tags:
+- M/f
+- bond
+- cuffs
+- collar
+- rope
+- insert
+- bdsm
+- electro
+- clamps
+- mast
+- toys
+- reluct
+- X
+date: 2010-12-11 00:00:00
+---
+
+(C) Copyright 2010 - MindSplinter - Published under Creative Commons License (Attribution-NonCommercial-ShareAlike) 3.0 Unported (https://creativecommons.org/licenses/by-nc-sa/3.0/)
+
+During a recent conversation with my friend Kelly she mentioned that short of being able to goad a Dom into having his way with her by putting ideas into his head, she found bondage to become rather boring after struggling for some time. I told her that I was sure that I could come up with a scene that would keep her quite busy, naturally she rose to the occasion and challenged me to prove it.
+
+I accepted her challenge and proposed that we get together sometime and she would discover first hand what I could do to keep her occupied. After several months and loads of email messages we had settled on a time for her to fly down and play her part in the challenge.
+
+After picking her up at the airport and dinner on the town we arrived at my place and after she was settled in the game commenced. I reached out to make a grab for her wrists and she ducked me and took off running through the living room and up the stairs torwards the bedrooms. Just as she reached the top of the stairs I managed to grab her ankles and yank her off her feet halfway back down the stairs. I fell on top of her, but she wasn't going down without a fight. We wrestled around, sliding further down the stairs as we each tried to get the upper hand.
+
+I managed to pin her legs with my own and grabbed a handful of her flowing mane of hair with one hand and yanked hard pulling her head back and causing her to yelp in suprise. In that moment she let her guard down and I grabbed her wrists and cuffed them behind her back before she knew what happened. Picking her up I told her that trying to dodge me by running up the stairs was a bad move on her part and now it was time to pay the piper, I hustled her back up the stairs and into the spare bedroom that I had set up just for this challenge.
+
+Positioning her in the center of the room underneath a locking steel collar dangling from the ceiling by a short chain, I picked it up and locked it around her neck so she was pinned in place and couldn't wander away while I finished tying her up.
+
+Next up was to cuff her ankles so she couldn't kick her legs or me while I cut off her clothes, reaching for the table behind me I picked up a pair of medical scissors and proceeded to remove every scrap of clothing she had on during which time she cursed me in every way possible for ruining her outfit.
+
+I told her to keep quiet or I would fill that filthy fucking hole she called a mouth with a nice super fat ball gag. She shut up, stunned momentarily by the force in my voice and the dirty language.
+
+Reaching into my box of toys, I fished out a length of rough hemp rope and started tying it around her nice, silky white and soft skin in a full torso rope harness splitting the crotch rope so each end framed her labia before giving it a hard yank and pulling it real tight before tying it off causing her to grunt at the tightness of the crotch rope digging into her skin.
+
+Now it's time for the pay the piper part, I rummage through my toy box picking out the things I'll need to keep her busy. A large dildo with small metal studs protruding from the shaft and a wire dangling from the bottom, mounted on a telescoping pole along with a Hitachi vibrator, rigid ankle cuffs with a hole on the center so they can be slipped over the pole and ride up and down its length, a long chain and pulley, a trainer harness ring gag and finally a TENS unit and assorted contact pads.
+
+I pull up a square of loose carpet below her to reveal a socket to mount the pole, slipping the cuffs onto the pole I mount it on its floor socket. Next I grab a bottle of lube and lube both the dildo and her making her tremble and moan softly as my fingers work their way up and down her slit and into her pussy, before extending the pole so the dildo slides smoothly into her sex. I position it fully inside her with the hitachi firmly planted on her clit before locking it into place. Grabbing an ankle, I lock each one into the rigid cuffs.
+
+Now for the chain and pulley, I hang the pulley from the ceiling and feed the chain through it and attaching one end to her collar. With a solid smack across her ass, I tell her to stand on her tiptoes while grabbing her cuffed wrists and pulling them higher up behind her back. She starts to protest and I smack her across the ass again and yank her arms higher up before she yelps again and complies, taking the other end of the chain I pull it tight and lock it to her wrists. Now when she's standing flat footed, the chain pulls her arms higher and pulls the collar tighter against her throat causing her to breath harder.
+
+Kneeling down, I pick up the TENS pads and apply two pads to either side of her nipples, two on each ass cheek and two more on each inner thigh before connecting all of the loose wires to the box. I take the ring gag harness and hold it up to her mouth, telling her to open up. Once more she resists and I grab a nipple and twist it hard causing her to yelp, in goes the gag and soon it's buckled on tight. I turn on the TENS unit and begin adjusting the dials until each set of contacts produces a satisfying sound from her gagged mouth. Lastly, I put clover clamps on her nipples. She moans loudly as they bite into her flesh.
+
+Standing in front of her, I turn everything on and explain her goals for the evening. "Now Kelly, here's what you're going to do tonight; you're going to slowly fuck yourself with that dildo and vibrator by lifting yourself up and down the shaft with your toes. The faster you fuck, the faster and harder the vibe will run, the slower you go... Well lets just say it'll be electrifying. The tens unit will deliver either a mind tingling sensation to your nipples, ass and thighs if you keep the pace, or a stinging shock if you go too slow. Oh, and by the way if you're too slow, it'll also shock your pussy. Enjoy!"
+
+With that I flip the final switch and wait for the show.
+
+She stands there, trying to talk through the gag but it's all meaningless. Suddenly she screams out as the first shocks are delivered, causing her to rise up on her toes. She hangs there for a moment before easing back down on her feet, but not fast enough to prevent another shock with accompaning scream.
+
+Slowly over the next five or ten minutes and several more shocks, she learns the rythm to the machine I have created for her.
+
+Her pace quickens as she rythmically slides up and down on the dildo, her breath becoming ragged and labored as she get closer to climaxing.
+
+With a strangled, high pitched scream she has a mind blowing orgasm. I run her through two more before shutting everything off and releasing her from her tormentor. I carry her to my bedroom, where before finally releasing her from her bondage, I fuck her hard, fast and rough.
+
+Releasing the last bit of gear, I guide her torwards the bathroom, where I gently wash her body and massage away the soreness in her muscles and the marks on her wrists.
+
+"Well, can I keep you busy?" I ask.

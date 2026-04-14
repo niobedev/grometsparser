@@ -1,0 +1,410 @@
+---
+original_url: https://www.dollstories.net/storiesek/flying.html
+subcategory: Doll Stories
+title: Flying High in the Sky
+authors:
+- Northern Chill
+tags:
+- M/f+
+- gas
+- transform
+- lovedolls
+- packaged
+- nc
+- X
+---
+
+Lisa sipped her glass of champagne as she
+stood pretending to listen to a short, chunky guy drone about the
+fortune he had made in the adult film market. As the man droned
+on and on about how he was making more money than 90 % of the country's
+leading CEO's, she silently glanced around the room for the man who had
+invited her to the party and its host: Gerald Falkington.
+
+After a few moments, Lisa finally
+spotted Gerald standing with three or four other men on the other side
+of the room. Dressed in an expensive looking business suit with
+perfectly coifed hair, the business magnate, who owned everything from
+hi tech companies to gourmet coffee chains, seemed to extolling the
+onlookers with a story about his latest acquisition. Lisa and
+Gerald had first met when he attended a fashion show that Lisa worked
+as a runway model. Gerald seemed to be quite attracted to her and
+invited her to attend ' a little soiree ' he was holding at a nearby
+mansion he owned.
+
+" Little party..... 300
+people...... waiters..... a band...... politicians and
+celebrities..... wow!! " Lisa thought as she took another
+sip of her drink and nodded every few seconds or so as she continued to
+be inundated by the blowhard's story. Finally, after a few more
+minutes, the man spotted someone on the terrace outside and wandered
+off to join the individual.
+
+Mentally relieved, Lisa quickly
+started walking in Gerald's direction pausing only briefly to say hello
+to Monique, a fellow model who hailed from France. Monique, a red
+haired, mid 20's woman, was considered to be somewhat of a diva by many
+in the modeling community but Lisa had found her to be a fun person to
+be around.
+
+" Lisa! Lisa, come over here for a
+second! I've got something I want to talk to you about that I
+think you're going to enjoy! " Gerald called out enthusiastically
+as he waved the model over to where he was standing.
+
+Her smile broadening, Lisa
+quickened her walk and when she got Gerald, he ushered outside to one
+of the many terraces that lined the outside of the mansion.
+Seeing there was a few guests within earshot of the terrace, the
+multimillionaire whipped out his cell phone and spoke briefly into it
+for several seconds. Moments later, several burly men showed up
+and quickly escorted the guests away from them and left Gerald and Lisa
+alone.
+
+" Sorry about that,
+Lisa. My rivals are always trying to figure out my future plans
+and will resort to extreme measures to learn them. My security
+people once caught a spy disguised as a waiter at a restaurant who was
+trying to record my conversation with three Japanese businessmen with a
+listening device taped to one of the table's legs. Anyway, the
+reason I want to talk to you is that I'm unveiling a new airline
+business next week that will cater exclusively to the wealthy
+businessmen with perks that will be unique to my airplanes. In
+addition to the parties I have planned at ten different locations
+around the world, I plan to be flying eight beautiful women with me as
+I hop around the world to attend the various parties. Paris,
+London, Moscow, New York, Buenos Aries and all the others in a wild and
+exhilarating trip of fun and frivolity. I'm asking you if you
+wanted to be one of those eight women that will be accompanying me on
+this trip. However, before you give me your answer, I do have
+some conditions I must insist you agree to if you choose to go.
+First, you must not tell anyone where you are going or with who you are
+spending the day with. Second, you can not take any portable
+electronic gadgets with you on the plane such as a laptop computer or
+cell phone as I want to make sure that the flight's path isn't leaked
+to the media during the time we're in the air. What do you say to
+my little offer? " Gerald intoned as he gestured towards the sky
+while speaking.
+
+Lisa paused for
+maybe three or four seconds as she let the fantastic offer, as well as
+all the details with it, sink in. " Umm, gee, how could I
+possible say no? Of course, I'll accept your invitation!
+Thank you! " she finally replied enthusiastically before
+impulsively embracing the multimillionaire. Realizing that such a
+gesture was a little inappropriate, Lisa quickly broke off the embrace
+and stepped back to compose herself.
+
+With a slight
+smile appearing on his face, Gerald nodded in approval. " You're
+welcome, Lisa. I can assure you that everyone on board for this
+little junket will be enjoying a day unlike anything they've ever
+experienced before. If you'll leave your address and a secure
+email address you can be contacted at with me, I'll pass it on to the
+people working on the extravaganza and get everything set. You
+should receive an email within the next 48 hours that will give you all
+the pertinent details about day, time and so forth. With that, I think
+we better return to the party before people start wondering what we're
+doing out here and ask us both intrusive questions, " the
+businessman said genially.
+
+Nodding in
+understanding, Lisa tucked her lower right arm around her host's left
+arm and the two strolled swiftly back in the room with a boisterous
+conversation starting up between them. For the model, a chat
+based on some inane trivia came as second nature to her. However,
+for the party's host, his mind was on affairs other than the people
+grouped around him. One matter, in particular, was at the center
+of his thinking though he couldn't discuss it openly....
+
+At least, not right now.
+
+Roughly six days later..............
+
+Lisa
+glanced at her wristwatch nervously as she sat in the back of the
+stretch limousine that was taking her to the airport and the start of
+her trip. The email she had received from Gerald's company stated
+that she was to be at the airport no later than 2:30 pm for checking in
+and being seated in the plane. If the watch she had on was
+correct, she was just going to make it there barely on time.
+" I wonder who the other models Gerald hired
+for this little adventure. If it wasn't for the secret nature of
+this whole trip, I would have called around and see who was invited to
+go along. I wonder if...... oh, we're here!!! " Lisa
+thought to herself before looking out a car window and seeing that the
+limousine was just turning onto the road leading directly into the
+airport terminal.
+
+Less than
+fifteen minutes later, Lisa was sitting in a private lounge owned by
+Gerald's company and sipping a champagne cocktail. Looking around
+the room, she saw seven other women were seated with some chatting
+among themselves and a few looking out the lounge window at an airplane
+parked on the tarmac.
+
+Lisa
+couldn't place a name on all the women though she did recognize Monique
+from the party, who was sitting next to a dark haired woman dressed in
+a flimsy silver and red dress with matching high heels. Looking
+around, she saw a fairly tall Asian woman talked to a black, fairly
+buxom woman on the far left of the room. Near the door leading to
+the boarding area for the plane, Lisa saw a red haired woman standing
+by herself gazing out the window neat to the entrance.
+
+Figuring
+that it couldn't hurt to make small talk, Lisa quickly made her way
+over to the redhead. " Hi! I'm Lisa Garnett and I'll be on
+the plane with you for all the fun. Did Mr. Falkington invite you
+during that party he held last week or did he talk to you in some other
+manner? " she asked sincerely.
+
+" My name
+is Lindsay MacDougall. I didn't realize that Gerald was inviting
+common rabble for this trip along with people like myself, " the
+woman said haughtily as she briefly looked at Lisa before returning her
+focus to the window she was staring out.
+
+" Frigging arrogant bitch.......! "
+Lisa thought to herself as she turned away and took a seat in the
+center of the room. She was about to strike up a conversation
+with a couple of the other seated women when several dark clothed men
+entered the room followed by Gerald himself.
+
+"
+Hello, ladies. I know you're used to hearing me make a big speech
+on an occasion like this but this is one day that I'm going to refrain
+from doing that today. All of your luggage is being loaded onto
+the plane so if we are to avoid the unwanted attention from the
+paparazzi, I suggest we all head out to the plane right away.
+Once we're on board and in the air, I'll make sure that the drinks
+start flowing and will announce where the first stop on our amazing
+trip. With that, let us start our fantastic voyage! "
+Gerald proclaimed while gesturing towards the waiting private jet.
+
+With
+a minimal amount of chatter, the women gathered up their belongings and
+went out onto the tarmac. As she drew closer to the plane,
+Lisa saw that the private plane was what some in the aeronautic
+profession called a ' combi '- the forward part of the jet was for
+cargo storage with the rear dedicated to the passengers. When
+Lindsay stepped onto the plane, she saw that the interior was just as
+sumptuous as she imagined and more - there looked to be a dozen or so
+oversized chairs lining both sides of the jet with a well stocked bar
+sitting at the very back of the plane.
+
+Walking slowly to the bar, Lisa asked for a vodka and orange juice
+before taking a seat to the right. Once all the women were
+seated, a man secured the door and made his way towards the front while
+Gerald stood nearby looking over his laptop briefly.
+
+" Ok. We'll be taking off in 15 minutes exactly so you'll forgive
+me if I tend to rush through all of this. We'll be going first to
+a private airstrip I own just south of London where there'll be a
+preliminary press conference scheduled for Heathrow airport. At
+this point, I want to remind you all that I must insist that you
+refrain from using cell phones or similar devices while we are in the
+ar. I know you were told this before but I want to remind
+everyone once again so there are no misunderstandings before we get
+under way, " Gerald intoned while subtly nodding towards one of
+the women who was fiddling with her purse. Upon hearing the
+millionaire's words, the woman stopped her fidgeting.
+
+" With that, let's get buckled up and ready to start a grand adventure!
+" Gerald said before turning and walking towards the cockpit
+area. After briefly applauding, the group of women hastened to
+fasten their seat belts upon hearing the engines start to come to life.
+
+A short time later,
+the luxury jet was soaring high in the sky against a backdrop of clouds
+that were growing darker with each passing mile. Inside the jet,
+the women had unbuckled and were moving around inside the jet to get
+drinks and food while they waited for their host to emerge.
+
+However, Lisa, as well as the woman she was talking to, was suddenly
+interrupted by the sensations of the plane being buffeted by strong
+gusts of wind. Figuring that they might be hitting a bit of rough
+weather, Lisa quickly went back to her seat until she felt that the bad
+weather was behind them.
+
+As it turned out, the plane wobbled again just after Lisa took her seat
+and the No Smoking/ Fasten Seat Belts sign clicked on at the front of the passenger area.
+Sensing there might be something serious, everyone quickly took their
+seats and buckled up.
+
+" Attention everyone, this is the pilot. We're flying into some
+unsettled weather so I've turned on the seat belts sign to make sure
+everybody is ok. According to the weatherman that was consulted
+before we departed, we should be clear of the weather disturbance in a
+very short period of time. Stay seated for now and we should
+return to blue skies in no time, " a voice said smoothly as it
+was broadcast over the speakers located near the seat belts sign.
+
+" Hmmmm, you would have thought that
+Gerald would have planned for this kind of thing, " Lisa
+thought to herself even as the plane wobbled once again. After
+another few minutes of turbulence, the plane seemed to settle down and
+judging by the clouds outside, the bad weather seemed to be behind them.
+
+Much to Lisa's chagrin and horror, the plane took a sudden nose dive
+and plummeting downwards at a frightening rate. Bottles, glasses
+and other objects on tables and stored away tumbled to the floor where
+many shattered into pieces. Screams of panic and terror filled
+the cabin as the women were terrified by what was happening around
+them. Within moments of this happening, oxygen masks dropped from
+overhead compartments in front of each of the women.
+
+" I.... hurhhh.... hope
+this... hmmm.. .doesn't last long... hrrhhh...... " Lisa
+thought as she started to breathe rapidly from the mask while items on
+the floor rolled around her feet. Glancing around, she saw that
+the other women had put on the oxygen masks and seemed to be all right
+otherwise.
+
+As the minutes ticked by, the plane started to gradually level out from
+it's descent but none of the women moved.
+In fact, nobody made a noise at all as the women discovered far too
+late that the substance they were breathing was not the oxygen they
+expected but something far
+more sinister.
+
+" What... what's going on?.... why can't I
+move?... I feel strange... light...... did I die in a plane
+crash?.... no... I can still see... just
+can't.... can't.... mmmmm.... who.... who's this? " Lisa
+thought to herself as she stared straight ahead at an ordinary panel of
+the plane before her thoughts were interrupted by the entrance of two
+people.
+
+" Well, Mr. Falkington, I think everything turned out just as you
+planned. If I may be honest for a
+minute, I didn't completely believe that this HTD gas you told me about
+was going to work in the manner you described. However, I see
+that I was wrong and should have never doubted you at all, sir, "
+a red haired woman dressed in a light blue business suit remarked as
+she glanced around the cabin.
+
+" Connie, if there is one thing you should know about me by now, it's
+that things always turn out as I plan them, " Gerald replied
+confidently as he stood still and took in the scene before him.
+The eight women seated were completely motionless and appeared to be
+oblivious to Falkington's presence in the area. A few moments
+later, three women wearing uniforms that identified them as employees
+of Falkington walked into the main part of the plane and immediately
+focused their attention on the seated women.
+
+" Plan.... uhhh.... what is he talking
+about?.... fuck.. fuck me..... huh?..... why am I starting to think stuff
+that is.... that is..... that.... mmmmm.... that feels good..... "
+Lisa thought with a mindset that was growing hazier by the
+second. A few moments later, one of Falkington's employees leaned
+over in front of her and started unbuttoning Lisa's blouse without any
+hesitation or pause. This action was followed by the removal of
+Lisa's skirt, bra and stockings in a quiet and expedient
+fashion.
+Normally, these actions would have upset Lisa mentally but she accepted
+the actions with a mental shrug.
+
+A few moments later, the video monitor mounted on a seat directly in
+front of Lisa flickered on and the image of Gerald appeared on
+it. " Hello, passengers. At this time, you've all
+discovered that the flight you undertook wasn't for the reasons you
+were originally told. The reason for your immobility lies in the
+oxygen masks that are currently attached to your heads during the
+incident that occurred a short while ago. As you probably realize
+now, the substance flowing through those masks was not oxygen but a
+highly specialized gas developed by Falkington Laboratories. The
+gas rapidly converts the anatomy of any individual who breathes it
+in from flesh and blood to a hollow shell made of latex and
+rubber. To put it in simpler terms, you ladies are now amazingly
+realistic love dolls in every way and manner. If you don't
+believe what you've just heard, my employees will shortly be holding
+mirrors in front of you so you can verify the veracity of what I have
+told you. I know this isn't a necessary step but since my
+scientists tell me there is a remote chance that the transformed
+person's mind might survive the process, I want to make sure that none
+of you might think that my words are untrue in the slightest, "
+Gerald intoned as he glanced at what looked like a prepared script.
+
+" What.... what the hell?.... I... I.... OH
+MY!!!!...... " Lisa thought to herself before a large
+mirror was brought into her fixed line of vision and she saw her new
+appearance for the first time. Lisa's body was now glossy pink in
+color and she appeared to be made of latex and rubber instead of flesh
+and blood. Her eyes were nothing more painted
+features that has a dreamy and vacant look to them. Lisa's mouth
+was now a circular opening devoid of a tongue and teeth with the
+interior nothing more than a smooth sac that seemed to ache to be
+filled. As the mirror was moved downwards, Lisa could see what
+looked like seams running up and down her arms as well as around her
+breasts. As for the latter, Lisa would have blushed with
+embarrassment if she was still able to do such a thing. Her boobs
+appeared to have grown by at least one cup size and jutted out from her
+body like a pair of inflated soccer balls. Lisa's breasts were
+capped by nipples that seemed to have grown to an inch in length at
+least and were surrounded by aerolas that were perfect circles in every
+way. At that point, she noticed that her fingers were now gone
+and her hands now resembled two latex mittens that longed to hold
+someone.
+
+As the mirror slowly moved downwards, Lisa saw that her pubic hair had
+completely vanished and her sex had formed into an opening similar in
+appearance to her mouth. She could also determine that her legs
+were now spread apart in a look that resembled a V in appearance.
+Just like that, Lisa had a moment of clear thought that bisected the
+erotic haze that was clouding what was left of her mind.
+
+" It's true..... I'm nothing more than a
+blow-up sex doll..... a toy to be fucked.... mmmmm... that would be
+nice...... making my owner happy.... NO!!... I'm not a fucking sex
+toy!!!.. it's all just a bad dream.... I'll wake up and get a lecture
+from Falkington about drinking too much champagne... ooohhh.... the
+sensations.... " Lisa
+thought to herself even as the simple desires of a love doll threatened
+to overwhelm her thinking at a moment's notice.
+
+Lisa's mental chaos was
+temporarily interrupted by the mirror being lifted out of her line of
+vision and the monitor going dark. Moments later, she could hear
+one of Falkington's employees talking in a low voice to the CEO and
+tapping what sounded like a clipboard as she did. A few moments
+later, Falkington cleared his throat and moved to a spot
+where Lisa could barely see him. " Now that the explanations have
+been taken care of, it's time to get you eight ready for your future
+destinations. According to Nancy, seven of you have already found
+homes with buyers in Europe. As I read off the seat numbers you
+are in, the storage process will commence and your first step to being
+united with your new owner will be taken, " the executive
+said before starting to read off a series of numbers followed by city
+and country designations. As he did so, Lisa heard the sound of
+air escaping that grew louder with each number recited by
+Falkington. The dolified woman saw several of Falkington's
+employees pass by her carrying what looked like cardboard boxes and
+transparent boxes.
+
+" We... we're being deflated and boxed
+up!.... this is not.... nooooooo!!!!..... " Lisa thought before
+her thinking was interrupted by the sensation of air leaving her own
+body. Within a minute or two, her own body was nothing more than
+a pile of latex hanging loosely from the mask that her mouth was still
+attached to. Moments later, she felt a pair of hands detach her
+from the mask before folding her carefully and sliding her into a bag
+that rubbed against he new body in a very pleasant manner.
+
+" As for you, my
+dear Lisa, I'll be keeping you for myself. Why not enjoy perks
+when you run a corporation capable of doing things like this? "
+Falkington said as he picked up the bag and and put it inside a nearby
+box. " Don't worry about missing me. I'll be using, and talking
+with, you quite a bit in the future though your dollified mind won't
+understand much of anything, I fear, "
+
+" You're wrong! The process didn't
+talk away my mind completely.... I understand everything you say... well,
+most, mmmmmm...... " Lisa thought even as the lid closed over
+the box and she was alone in darkness for the rest of trip....
+
+A trip that
+would end with her leaving with Falkington..... for a new
+home and existence....
+THE END

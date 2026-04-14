@@ -1,0 +1,55 @@
+---
+original_url: https://www.boundstories.net/storiesek/goodgirl.html
+subcategory: Bound Stories
+title: A Good Girl?
+authors:
+- Pauleine
+tags:
+- F/m
+- D/s
+- bdsm
+- bond
+- rope
+- gag
+- hogtie
+- cbt
+- chast
+- enslave
+- denial
+- oral
+- mast
+- climax
+- cons
+- XX
+date: 2012-06-28 00:00:00
+---
+
+I am a girl. I love being a girl. I love everything about being female but especially the control it gives me over boys. I used to think I was a good girl. That sort of changed with my latest boyfriend/slave. I would never think of being mean and bossy let alone tie some one up and hurt them. I was a good girl. I enjoyed being a good girl.
+
+That started to change when I met my latest boyfriend. He was into bondage and domination and wanted to be submissive. I would tie him up once in awhile but not very well and not with much enthusiasm. I was a good girl. Then the subject came up with one of my best girlfriends and as it turned out she ties up her male and really enjoys it. She told me I was missing out on a whole lot of fun and pleasure, especially if it was something he was into. In fact she has actually enslaved her male. He does everything for her and she couldn’t be happier. We talked a lot about this and I realized I was missing out on something good.
+
+I experimented with being more assertive, tying him up more strictly and getting him to satisfy me sexually while I had him tied up. He loved it and so did I. Now he has truly become my slave and I have become a very dominant, sadistic girl. I love tying him up tightly, strictly, painfully then teasing and even torturing him. Through the internet I have learned and tried many new ways of binding him and inflicting pain on him. I have even learned to handle a single tail whip like I was born to it and really surprised myself because I really, really enjoy whipping him with it. I am not sure how much he really likes it but then it doesn’t really matter What he likes when he is tied to the rafters in the garage and gagged.
+
+I have changed from a nice shy girl into a sadistic dominatrix and all thanks to my now enslaved boyfriend. I do enjoy torturing him in many ways and often have very intense orgasms just from seeing him suffering. Hot wax and rubber bands on his feet are two of my favorites. Just knowing I am the one hurting him and he can’t do a damn thing to stop me gets me really, really hot!. I have gotten very, very good with rope and other forms of restraint, so that when I tie him up, he stays tied up till I have had my fun. Our relationship has become solely about me, what I want and when I want it. He serves at my pleasure. I even keep him in a good chastity tube which I keep locked and only release him when I feel the need, not him.
+
+I have taken over every aspect of his life and he is totally dependent on me for everything. He must even ask my permission to pee. Yes, I am totally amazed at how much I enjoy being a sadistic, dominant woman. God I am so glad I was lucky enough to be born a girl. A girl is so much more able to control things than boys who are so easily controlled by that stick hanging between their legs. We are smarter, stronger, cleverer, eviler and softer, prettier and sexier. Hell we even live longer. I love being a girl. But I digress, back to my story.
+
+I love putting my male into all types of bondage, but using rope to tie him helplessly up is my favorite. That and gagging him. When I tie him up I always gag him in some form or another unless I plan on using his mouth for some pleasure. Then he is gagged before and after I have used his mouth. I feel a gag is a constant reminder of my complete control of him. He can only speak if or when I allow it. He has no control over it. Besides a good gag just looks right. My favorite is a nice big red ball gag that fills his mouth quite completely. I use tape, panties, old pantyhose and nylons, eggs, fruit and a particularly nasty gag that blows up in his mouth. That one really keeps him quiet.
+
+One of my favorite tie ups is a strict ball tie. I tied him up in the back room the other day to get him out of my way and left him back there all tied up and gagged for the entire day. Needless to say when he was finally untied he served me very, very well. You see the advantages of being the dominant female? I started by ordering him to take care of bodily functions, I don’t want him peeing on the carpet and I am not about to untie him so he can pee, and report to me naked in the back room. That is naked except for his cock cage.
+
+When I entered the room he was naked and kneeling on his knees patiently waiting for me. As is the custom he greeted me by gently kissing each of my feet and then resuming his kneeling position eyes only on my feet. He knows better than to speak to me without permission or to look me directly in the eye without permission. We are not equals and never will be. He still for the most part enjoys me tying him up although as I said, he no longer has any hope of getting loose after I have him tied up and I do it now for my pleasure, not his. I commanded him to stand, turn his back to me and place his hands behind his back. He knew he was to be tied up as he could see the rope I planned to use on the bed, but not how he was to be tied, and more importantly, for how long.
+
+The length of his bondage, as always, is totally up to me. I have often threatened to keep him tied up for a whole weekend, but have only done about 24 hours so far. I proceeded to tightly tie is wrists together, then his elbows. I always enjoy tying rope around his waist and wrists tightly securing and cinching it off so his arms and wrists are tightly glued to his back. The goal, and I usually achieve it, is to make it so he can not budge his arms from his back. I love making his hands and arms completely useless. It is such an empowering feeling knowing that you, a girl, are making this slug of a boy totally helpless and at your mercy. I then securely bound his ankles and knees together. His legs are now useless and under my power.
+
+Next one of my favorite parts. I took the big red ball gag and shoved it deeply into his mouth using the heel of my hand to shove it in there as far as it would go. Then I buckle the strap behind his head again pulling it as tightly as it will go. My play toy is now silenced by my me and will only speak when I will it. I love taking the power of speech away from him. I further emphasizes my control over him. He will stay bound and gagged till I decide to release him. Only I his girl/Mistress have the power to let him go. He can not do it himself, ever!
+
+I then have him sit on the bed. Here is where the real fun begins, at least for me. I take a long length of rope doubled up of course, and place it behind his knees. Then I push his chest down into his lap so it is touching his thighs and wrap the rope behind his shoulders, under his tied arms and tie it tightly together so that when I am finished his chest is in total contact with his thighs. I then tightly cinch this across his chest so there is no way he is getting his chest off of his thighs. He is effectively tied in a ball. I finish off by rolling him onto his side then tying his feet to his hands making sure the rope runs tightly through his ass crack. He is now thoroughly tied up into a tight little ball with no hope what so ever of freeing himself all trussed up in a neat little package. He just lays there completely helpless unable to even squirm. As it should be the girl has all of the power.
+
+I sit down in the chair so he can see me, light a cigarette and sexily cross my nylon covered legs. Then I proceed to tell him how pathetic he is, how inferior he is to a real woman. I order him to struggle knowing full well I have tied him up so completely he can barely move a muscle. I love watching him try to escape when we both know it is impossible. I have tied him up so well he can barely move and the real exciting part for me is that he will stay that way till I decide to give him relief. I am completely in control. He just endures. All he can do is grunt a little from behind his gag. When I have satisfied myself and had several sweet orgasms while watching him, I finish him off with a nice blindfold, give him a juicy kiss on the cheek and wish him a good day. I will see him when I see him. After all he is a mere male, all tied up, gagged and blindfolded, completely helpless at my mercy totally dependent on me for his release, while I am a very dominant, powerful, sexy woman! I guess I should thank him some day for showing me my exquisitely delightful dark side. I will never be a ‘good girl’ again.
+
+Since I am in the mood I will share on more of my favorite ties. This one can be rather unpleasant especially if I leave the male bound for any length of time. After all, I am the woman and keep him in bondage for as long as I wish, he has no say what so ever, particularly so since I almost always have him gagged. This time I bound his hands and elbows but did not lock them down to his back. He is gagged of course and the ball gag had a nice d-ring in the back by the buckle. I then use a nice big spreader bar and tie it to his ankles. Now for the fun part. A rope is tied from the center of the spreader bar to his tied wrists. I pull the spreader bar to his wrist then tie his wrists on top of the bar. His legs are spread and drawn back very uncomfortably and his back is arched because of the way his wrists are tied to the bar.
+
+To further add to the unpleasantness I tie a rope from the bar to the ring on the back of his gag. His head is drawn up and back towards his legs because of the d-ring and the gag is actually forced deeper into his mouth. If I pull it tightly enough I can really get a nice arch into his back. It is quite amusing. His feet are spread apart but his knees are tightly bent and his head is pulled back toward his feet. A rather unique and painful form of hogtie. As usual, he is completely helpless, unable to free himself from my bondage, and I, and only I, decide when he has suffered enough. I enjoy trampling his back and ass with my spike heels when he is in this position. His balls are usually ripe for stepping on too. It just adds to the fun. I also enjoy torturing his feet with rubber bands.
+
+It is amazing how much he tries to squirm when I snap a rubber band against the soles of his feet. Being hog tied his feet are easily accessible for torment. If he can’t endure any more and I feel generous, sometimes I untie the rope from the spreader bar from his gag and reattach it to his balls. If he tries to relax his legs it becomes rather unpleasant for his balls. I really enjoy watching him in this predicament. It is a great punishment position. I am so glad I don’t have those ugly things hanging between my legs. They are so vulnerable and easily abused. Again, I thank god he made me a girl. No longer a good girl but an evil ,selfish sadistic bitch. Thank you male, I must remember to show my appreciation. Maybe fifty from the single tail?

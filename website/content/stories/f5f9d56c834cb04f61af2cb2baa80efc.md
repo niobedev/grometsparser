@@ -1,0 +1,128 @@
+---
+original_url: https://grometsplaza.net/world/ponygirl/storiesek/goblinpony.html
+subcategory: Giantess & Shrinking
+title: Goblinpony
+authors:
+- LilCthulhu
+tags:
+- M/f
+- ponygirl
+- harness
+- fantasy
+- naked
+- outdoors
+- bond
+- buttplug
+- anal
+- drug
+- sex
+- majick
+- piercing
+- reluct
+- XX
+date: 2024-09-29 00:00:00
+---
+
+### Chapter 1: Handing Over
+
+Far away from civilization, in a field near the dark goblin forest to the east, a host of strong and young knights clad in shining armor sat atop their noble horses, their faces twisted with horror and disgust as they watched what was happening before them.
+
+Standing a mere dozen meters opposite the knights was a band of snickering goblin raiders. These wretched creatures had yellow teeth, wide-eyed ugly faces, and hunched backs; they wore rags and wielded rusty knives and clubs as weapons. Rather than horses, they rode on enslaved elven and human women tightly bound and moaning in constant, humiliating lust.
+
+In the midst of the two groups and standing in the center of attention were Lula, a young elfen scholar, and Brack, the sly chief of the goblin warband. The normally distinguished blond elf was struggling to remain composed while being stripped naked and dressed up in a ponygirl outfit by the goblin leader.
+
+Her feet were already strapped into thigh-high pony boots. Without heels, the boots forced the wearer to balance all their weight on the balls of their feet. Despite their tightness, the hoof-like front of the boots helped distribute the weight and allowed for a surprisingly comfortable and secure stand.
+
+Lula's arms had also been restrained, bound together behind her back with a tight leather harness and soft rags. Later on, her goblin rider would sit there, the prisoner's tied-up arms serving as his saddle.
+
+Lastly, a leather harness was used to secure her upper body. The intricate design incorporated thin straps to hold everything in place while wider ones supported her ample bosom. The harness fit snugly and tightly around her immobilized body.
+
+However, Lula's outfit was not yet complete. Brack pulled out a crude-looking plug with a tail from his backpack and pushed his loincloth aside, revealing his surprisingly large and erect cock as he walked up to her.
+
+Upon seeing this, the knight commander reached for his sword, boiling with anger. "That's enough! I will not allow a filthy creature like you to rape this honorable scholar!" His men drew their weapons, and so did the goblin raiders on the other side.
+
+"Stop it!" Lula protested, stepping between the knights and hissing goblins, while shielding the wretched creature with her bound body. "It's necessary!" she explained. "Goblin semen has alchemical properties. It will keep me healthy, protect me from the cold, and allow my body to endure the permanent bondage. I can't become a ponygirl without it."
+
+"It makes her horny too. Makes her accept being goblin cunt." Brack added in broken common and while Lula's words had calmed the knights, Brack's remarks made them tense up again.
+
+"I said STOP!" Lula exclaimed, locking her gaze with the commander of the knights, cursing Brack silently for his lack of tact. "It took months to arrange this exchange. Put. Down. Your. Sword!" she commanded, trying to muster as much authority as she could.
+
+For a moment, the knight's commander stared back, weighing his options before finally relenting and sheathing his sword. "With all due respect, this is crazy," he said, gesturing to his men to calm down and put down their weapons.
+
+"It's the only way to experience goblin culture firsthand. They don’t accept any outsider, except as pony-slaves. I need this to finish my research," Lula said, determinedly addressing the commander of the knights before turning back to Brack.
+
+### Chapter 2: Tail
+
+Brack gave Lula a lecherous grin, his fingers still holding onto the plug. "Knees," he said, taking pleasure in the thought of forcing her to submit while those arrogant knights watched.
+
+Lula swallowed nervously and a shiver ran down her spine. However, she was determined to go through with her plan, and sank to her knees. Brack stepped behind her and pushed her down, forcing her to put her face against the ground, while her ass was up, revealing both her sex and her tight, virgin hole.
+
+"Spread," he commanded, kicking her legs further apart, rubbing his cockhead along her exposed rear entrance, smearing it with his precum. He then ordered her to relax before forcefully pushing himself into her tight ass.
+
+Lula wailed in pain, with stars dancing in front of her eyes. She felt as if her backdoor was being torn apart, and her instincts screamed at her to pull away. However, Brack held her in place with a vice-like grip on her hips, and with practiced strength, he continued to drive himself deeper and harder into her.
+
+At first, Lula's cries were filled only with pain and anguish, but as time passed, a curious lust began to mix in with the agony. She wasn't sure if it was due to the highly potent aphrodisiac in the goblin's sperm, or if her body was beginning to accept the situation. Whatever the reason, Lula found herself leaning into the sensations, desperate for the excruciating pain to fade away. Soon, she was moaning and gasping uncontrollably, submitting to the goblin's dominance over her.
+
+The knights looked away in shame, unable to bear watching the humiliating spectacle play out in front of them. The goblin raiders, on the other hand, cackled with sadistic glee, enjoying both the show and their own twisted satisfaction in seeing the elf debase herself.
+
+After what seemed like an eternity of agony and humiliation, Brack finally released his seed inside of Lula with a loud grunt. She felt his cock twitch and pulse within her, a noticeable warmth spreading through her insides as he emptied himself of a remarkable load of cum.
+
+As Brack pulled out, a thick gulp of his warm semen dripped out of Lula, smearing over her pussy and running down her thighs. However, the goblin was prepared. He had the tail plug at the ready, and with a single swift motion, he shoved it into Lula's still-gaping asshole, trapping most of his cum inside of her.
+
+Lula remained on her knees, gasping and panting heavily as Brack ran his fingers along her wet, heated pussy. Despite her initial screams and cries, her body was now craving more of his touch, and she struggled to stifle the moans and whimpers escaping from her lips. Brack noticed her submissive behavior and smirked with satisfaction. He reached into his backpack and pulled out a leather strap, mounting one end to the leather harness on Lula's back.
+
+Brack expertly guided the leather strap between Lula's trembling legs, ensuring that the tail passed through a fittingly placed metal ring in the center of it, before fastening the other end to the front of Lulas harness, tugging and adjusting it until it sat snugly and dug deeply between her aroused nether-lips. Lula moaned and gasped as he worked, her body still betraying her intense arousal despite the humiliation and pain she had just endured.
+
+For a moment, Brack glanced back at the knights, taking in their furious, glowing-red expressions. He quickly realized that it was in his best interest not to further provoke them, as he didn't want to risk them lashing out at him. "We're finished here!" he announced, closing his bag and helping Lula to her feet.
+
+With a cruel grin, Brack climbed onto Lula's back, causing her to struggle for balance under his weight. He sat down on her crossed lower arms, his feet slipping between her upper arms and toros, and entwined his fingers into her long ponytail for support, defiantly looking back at the knights in a clear display of dominance.
+
+"The deal is three months," the knight commander snarled, his voice filled with barely concealed fury. "And not a day later. You bring her back alive and in good condition, or there will be consequences."
+
+"A deal is a deal," Brack responded, grinning widely as he revealed his grotesque yellow teeth. "I get the gold, and you get a well-trained mare," He added, unable to resist adding one last verbal jab before turning away.
+
+Yanking on Lula's hair to make her turn, Brack sneered at her. "Move, slut!" he barked, causing the newly transformed pony to stagger forward on trembling legs. Alongside the other goblins, Brack and Lula began to make their preparations to depart, eager to bring their latest conquest back to their own lair.
+
+### Chapter 3: Last Touches
+
+Lula stomped forward, blindly following Brack's command as her mind was consumed by the overwhelming lust that burned between her legs. Theoretically she had known what it meant to be a goblin ponygirl. After speaking with rescued survivors, studying the equipment, and learning about the weird alchemical properties of goblin cum, she had a good idea how those wretched creatures managed to control their slaves. But experiencing it firsthand was an entirely different matter.
+
+The plug buried deep within her tight ass had expanded agonizingly wide, stretching her insides and sending waves of pleasure and pain coursing through her body with each step. It was made from a special leather, which had absorbed some of the cum inside of her, causing it to grow and stick to her insides, making it all but impossible to push out. Meanwhile, a heavy metal ball was nested in its tip, constantly moving around and teasing Lulas overstimulated ass.
+
+Her pussy was also smeared with her master's aphrodisiac cum, now throbbing with need as the thick liquid coated her swollen clit and labia. The strap digging deep into her pussy did not help either, constantly pulling and rubbing against her sensitive flesh as she walked.
+
+Despite the discomfort and humiliation she felt, there was no denying the intense arousal that had taken hold of her. Every fiber of her being yearned for release, and she found herself blindly following commands, unable to even think about resistance.
+
+Brack suddenly yanked Lula's hair, bringing her to an abrupt halt. It was then that she noticed they had arrived in the dimly lit forest. The other goblins had already dismounted their ponygirls. Some were stationed as guards, while others watered and fed the girls. The rest took advantage of the pause and forced their ponygirls to their knees, fucking them without any sense of shame or regard for their wishes or desires.
+
+Brack dismounted from Lula's back, causing her to tremble with fear as she gazed into his greedy eyes. "Your outfit isn't complete yet," he sneered with sadistic glee.
+
+Lula nodded, dreading what he had in mind. "W-why didn't you finish it?" she asked, her voice quivering with fear.
+
+"Never say anything without calling me master!" Brack growled, striking Lula harshly with the back of his hand. She stumbled and fell to the ground, tears welling up in her eyes. "I...I am sorry, Master," she whimpered, attempting to pacify him.
+
+"Much better," he said, seemingly appeased. "Your companions," he then began to explain, "were on the verge of attacking. I held back the last few things so we could leave in peace."
+
+Lula nodded, silently acknowledging the shrewdness of the goblin's approach. It had become apparent that he was far more crafty than she had given him credit.
+
+"Knees," Brack commanded as he rummaged through his backpack, searching for the last remaining components of Lula's pony gear. Lula complied, dropping to her knees, her plug and pussy strap eliciting humiliating moans from her.
+
+As she caught sight of the bridle in Brack's hands, she opened her mouth instinctively, anticipating his next move. Without a word, he shoved the metallic bar into her mouth. At its center lay a large ball gag wrapped in rags. Lula knew they were soaked in goblin cum, intended to bring even more drugs in her system. What she didn’t expect was the intense taste, which made her gag and cough, as Brack tightened the bridle's lace around her head.
+
+"You better learn to enjoy the taste, because that gag is soaked with your sister's scent," Brack sneered with a twisted chuckle, as he pointed back to the other ponygirls. "We store the rags in their cunts. It makes it easy to get them soaked. You pony sluts are constantly full with our cum anyway," he explained, relishing in Lula's realization.
+
+Brack signaled two underlings over, while Lula struggled against the gag. "Hold her down," he ordered, ready to finish his work on his new pony slut.
+
+With strong hands pulling her down, Lula's eyes widened in fear at what Brack had in his hands. "Relax," he sneered, and without hesitation, he pierced both her nipples. Lula wailed with tears filling her eyes, as she struggled to endure and only a few moments later a simple silver ring adorned both her breasts, and her painfully pulsing nipple were smeared with goblin cum to aid in the healing.
+
+Brack wasted no time however. He opened Lulas crotch strap while she tried to stall herself for what was coming next. She screamed and almost passed out, as she felt a hot sting as her clit was pierced and adorned with a third ring, completing her new set of jewelry.
+
+Stepping back, the goblin henchman watched, as Brack uttered a few magic words. Lula felt a strange warmth pulse from her new piercings, and for a moment, purple runes glowed all over the metal.
+
+Lulas eyes grew wide in horror. She knew that such magic piercings existed, yet she never thought Brack had a set. The piercings would amplify all of her sexual sensations, but at the same time, make it impossible for her to orgasm without explicit permission from her master.
+
+Considering how intense everything was already without the magic, Lula was trembling in fear. She truly was fucked. She looked up to see her Master, Brack, approach. "Get up, cunt," he ordered, and Lula followed, afraid of what he had planned for her.
+
+"Spread," Brack commanded, grabbing Lula's loosely dangling crotch strap. "Be proud. You're a proper pony now," he declared, pulling the strap back into position and forcing it to tighten painfully.
+
+Overwhelmed with sensations, Lula almost forgot the pain of her freshly-pierced clit, as the tight leather rubbed against her throbbing flesh. Brack laughed evilly at her. "You're nothing but a cum-hungry beast," he mocked. "Three months of studying? I wonder if you'll learn anything, except how much you need a goblin to fuck you!"

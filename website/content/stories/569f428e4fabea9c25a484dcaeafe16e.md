@@ -1,0 +1,298 @@
+---
+original_url: https://www.boundstories.net/storiessz/sacrifice250.html
+subcategory: Bound Stories
+title: Sacrifice 250
+authors:
+- The Technician
+tags:
+- Solo-F
+- F+/f
+- MF+/mf+
+- scifi
+- mc
+- ceremony
+- toys
+- insert
+- nipple
+- chain
+- enema
+- public nudity
+- public sex
+- exhib
+- orgy
+- oral
+- sex
+- climax
+- bond
+- rope
+- sacrifice
+- cons
+- X
+---
+
+Sci-Fi / Fantasy / Mind Control / Sacrifice / Public Nudity / Public orgasm / Public Sex / Exhibitionism
+
+ = = = = = = = = = = = = = = = = = = = =
+Will Olivia be fertility sacrifice two hundred fifty?
+
+Over the course of the 1000 years of existence for Colony Seven, there have been 249 fertility sacrifices offered to the gods. The time for the 250th fertility festival approaches. Who will be chose as Sacrifice 250?
+
+ 
+ \* \* \* \* \* \* \* \* \* \* \* \*
+
+Olivia didn’t think that she would be chosen. There were well over a million women in the colony now and only one was chosen at each festival. With odds of one million to one, no woman actually thought that they would ever be The Chosen One... but every four years, as the festival approached, every woman prepared herself, just in case.
+
+Olivia had properly prepared herself. There was no hair on her body below her neck. She had given herself seven enemas, the last two with olive oil so that she was totally clean and permanently lubricated there– at least for the Day of the Choosing. She also had a special festival vibrator in her cunt, quietly keeping her aroused so that she was also well lubricated in front.
+
+On her nipples were two moderate-sized butterfly clamps. They were just snug enough to keep them from falling off. Their looseness allowed them to droop so that they were not quite as obvious through her thin black robe. If she were chosen, the clamps would be tightened and seven fine chains of gold would be connected to act as a leash as she was paraded through the streets of the colony by the seven prophetesses in the long, ritual procession to the temple.
+
+The chance of her being chosen was less than one in a million, but if she were chosen, these preparations would show her willingness– and the willingness of all of women of the colony– to be a sacrifice to the gods in return for the gods’ continued gift of fertility. If she were The Chosen One, when the clothing was torn from her body and the clamps and vibrator were displayed to the people, it would be proof to the people and to the gods that all of the women of the colony were prepared to be The Chosen One.
+
+Every woman knew that it was vital to the survival of the colony that she show herself willing to be the one chosen as the fertility sacrifice for the entire planet. Besides, once the ritual orgy began, everyone’s preparations would become obvious. Once all clothing was discarded, everyone would know who had– and had not– properly prepared themselves. So, as Olivia had so carefully prepared herself, she knew that, after the sacrifice was chosen and it was NOT her, her preparations would still be known to the gods... and to the other women of the colony. Woe to the woman who had not truly prepared herself.
+
+Many of the men of the colony also prepared themselves in case they might be chosen. In the thousand years since the colony was founded, only eleven men had been chosen, but the possibility still existed. Nine of the eleven had been fertility priests, who, despite their name, were actually self-made eunuchs who served as prostitutes on the Table of Fertility in the Temple of Jarleena’s Mother.
+
+It was assumed that the other two men chosen had also been men who secretly enjoyed receiving instead of– or as well as– giving the seeds of fertility. Evidently, only male “receivers” were considered for the sacrifice. Thus, not all men needed to show themselves as willing, and those that did were, in effect, declaring their sexual preferences by “getting up on the table.”
+
+The preparations for a man were very similar to those done by a woman. There was the same number and type of enemas. All hair was removed from the neck down– some men removed all hair.  The difference was that the men did not use the nipple clamps, and the vibrator, of necessity was inserted anally.
+
+It is almost impossible for nipple clamps to be secured to a man such that they would not pull off if used to lead him through the streets of town. So instead, much smaller butterfly clamps were used for symbolic purposes, and a thin, golden chain, or a large, permanent, cock ring, encircled the base of the man’s penis. If the man were chosen, it would be there that the 7 chains of the leash would be connected... unless, of course, the man were a temple priest. For the eunuch-priests, there was a belt of silver chain and a silver vibrating anal hook which came between the eunuch’s legs to attach to the chain-belt in the front.
+
+\*\*\*
+
+This year would be the two hundred-fiftieth fertility sacrifice. It had been a thousand years since Jarleena first spoke the words of the gods and began the ritual. This day was not something which the colonists brought to the planet from home world. When the colony first came to the planet, they did not build a fertility temple. There was no table of fertility. They held no fertility festival. But then, again, when the colony first came to the planet, there was no fertility.
+
+The stark and bitter reality, discovered shortly after arrival, was that the planet– and everything on it– was barren. No children were born. Nothing would grow in the ground. The four-year turnover mark was approaching and supplies were not being replenished.
+
+Four years was supposed to be the make-it or break-it decision point. Each colony planting is slightly different, but for this colony, the master plan stated that if the colony was not self-sufficient at the end of four years, the colonists should re-board the colony ship and jump to the alternate colony site.
+
+There was only a twelve-year supply of food and other necessities on the ship. The colony planet was two years from home planet using the highest speed drives available. The secondary planet was an additional two years away. Admitting defeat at four years allowed for the possibility of a second attempt... a second two-year jump through space... a second four-year time to make the colony self-sufficient.
+
+But regardless of sustainability on this planet, the trip to the alternate colony planet would never occur. The landing spot, found by long- range robotic scouts, had appeared to be perfect. It was hard, flat, and higher than all the surrounding terrain. The robot craft had made several test landings on the high plateau before marking the planet as a high-level probability for colonization.
+
+The next set of robot scout ships brought back soil, water, and air samples. The decision was made. Planet X47G32B would be the primary colony site for Colony 7. X91G73K would be the alternate. The massive colony ship was built in orbit around the home planet. More than four thousand colonists of all ages were placed in stasis chambers aboard the ship and, with great fanfare, it departed into the darkness of interstellar space.
+
+The scientists designing and using the scout ships, however, hadn’t properly accounted for the weight of such a massive ship. Of necessity, the colony ship itself had to descend to the planet’s surface. It was theoretically possible for it to launch itself back into space, if necessary, using the thermonuclear engines which had propelled them at such high speeds through space. The unfortunate reality of TN engines, however, was that although setting them off at ground level would theoretically propel you into space, the nuclear backblast would leave a scorched and barren planet behind you.
+
+These highly-destructive engines could never be used on home planet. And they could not be used on an active colony planet. They would only be used for lift-off if the first colony had failed completely and was being totally abandoned.
+
+The colony was failing. But the giant TN engines would never blast the colony ship off X47G32B. And report rockets carried by the colony ship would never be launched to report their dilemma back to home planet. A report rocket was sent back toward home planet the day following arrival. But exactly 43 days after touching down, giant tremors shook the ground and the ship slowly began to sink.
+
+Frantic, ‘round-the-clock, work emptied the ship of all necessary supplies, but everything was unloaded by priority, and report rockets were a much lower priority than food and water. The rest of the report rockets were among those supplies still on board when the ship sank forever beneath the rock and sand of the high plateau. Even if the report rockets had been salvaged, it would take the much, much slower rockets almost a century to return to home planet. They could not be used to call for aid. The colony, like all deep space colonies, was totally on its own.
+
+\*\*\*
+
+How did that tragic series of events lead to this quadrennial festival of debauchery?
+                                                                                                                                               
+It is recorded in the archives of the colony that in the sixth year after launch... after four years on planet... on the very night in which the Council of Sixteen met to discuss Contingency Plan Gamma X, a prophetess arose among the colonists. Jarleena, daughter of Abmola, suddenly stood among the gathered leaders and began speaking in a voice that was not her own.
+
+“This planet has forgotten how to be fertile,” she said. “Every fourth year, on this day, you must choose a woman willing to be a public showing of fertility for the planet. The planet must be able to watch her in the throes of passion so that it remembers what it is to be fertile. She must be filled with seed and with life. Her passion must be the strongest bearable so that the planet can feel the energy of fertility and awaken from its barren sleep. And finally, the woman must be given to the planet through the mouth created by the great ship.”
+
+At that point, Jarleena, still in an apparent trance, began to take off her clothing. The voice that was not hers continued from her mouth, “I have chosen this woman as the first of the fertility offerings. Each of you– male and female– must use her severely before the night is through. Then in the morning, bind her and throw her into the abyss created by the sinking ship.”
+
+Four years earlier, these fifteen men and women would have spoken as one with a resounding “No!” But the six years since launch had changed these leaders. Two years in the darkness of space and four years of total crop failures had changed their perspective on life. The life of one person– or even the lives of the majority of the colony– had a different meaning now. Survival of any life on this planet was at stake.
+
+The purpose of tonight’s meeting was to discuss the necessity of implementing Contingency Plan Gamma X to add to the available survival time for the colony. Gamma X was a plan of last resort which called for the introduction of a virus into the air that would be fatal for up to nine out of ten colonists. Of course, essential scientists and leaders would be vaccinated in advance.
+
+If sacrificing Jarleena– one woman– to whatever power it was that currently possessed her would put off the Gamma X contingency, then what did they have to lose? What is the life of one compared to the lives of many thousands? The decision was made before it was even considered. Besides, hers was not the first sacrifice for the good of the colony. Her name would join the list of those who were lost when they stayed at their duty stations helping stabilize the colony ship as it slowly descended beneath the crust of the planet.
+
+The council members would later say that the decision was taken away from them that night. It was as if something had taken them over and they were merely within their bodies watching while someone else did whatever was done. In reality, most of the council had very little true memory of the rest of that night.
+
+From what little was recorded, it was apparent that the remainder of the meeting that night was nothing less than a massive orgy with Jarleena spread out on the council table. But she was not the only woman on the table. Whatever it was affected all the female members of the council. They tore off their own clothing and attacked Jarleena in frenzied passion or joined her on the table on their backs with their legs spread wide, yelling for the men in the room to fuck them. Even Evonae, who was in a mate relationship with another woman, was on her back begging to be fucked.
+
+There is no visual record of what happened in the council chambers that night. It is known that the meeting continued on until morning, but no one noticed. Because they had been expecting to invoke the Gamma X contingency plan, the Council of Sixteen had declared the meeting to be special and confidential. The cameras which normally broadcast all meetings were turned off. The public galleries were closed. The members of the council had even told their families that they might not be home until very, very late the next morning.
+
+What happened the next morning, however, is clearly known. It was witnessed by most of the colony and video records of what occurred are still in the archives. Shortly after dawn, the doors to the council chamber opened and the entire council marched out chanting something which no one understood. Even the men and women chanting had no idea what they were saying.
+
+They were walking three abreast, packed very closely together. Their arms were above their heads. Supported by their hands high above them was the bound, naked body of Jarleena.
+
+Cries of “What is going on?” came from the crowd which quickly assembled.
+Others cried out, “Someone stop them! They’ve gone mad!”
+
+But the five rows of three marched onward through the colony, across the barren fields, and up to the plateau through which the doomed ship had sunk shortly after they had arrived on the planet.
+
+The chant changed as the fifteen members of the council turned and stood alongside the gaping hole which went deep into the soil. It almost sounded like numbers as together they grunted, “Brou!  Droh!  Kai!” No one recognized the words or the language but on “Kai!” everyone gave a sudden jumping push and Jarleena’s body arced over the side and into the deep hole. As her bound form plummeted head first into the bottomless abyss, a sudden flash of light and flame illuminated the hole as if the planet were welcoming her into its fiery core.
+
+A few moments later the council men and women were staring at each other wondering how they had gotten there and asking themselves why they were naked.
+
+Initially, the security forces arrested them all on suspicion of... of... of... of what no one was sure, but something definitely wasn’t right and the head of security effectively declared martial law until things could be sorted out.
+
+Argument about legal responses to the events of that night were heard in every gathering place in the colony for many days. Those arguments were suddenly silenced when, two weeks later, seeds long-forgotten as lost began to push up through the ground in the dusty fields. A month later several of the women of the colony reported to the medics that their periods were late. People watched in amazement as the strange withered posts which dotted the landscape suddenly put forth leaves and new branches. Some even began to bear fruit.
+
+The barren planet had awakened.
+
+Now the whispered word in the gathering places was, “The sacrifice was accepted.”
+
+Shortly thereafter, public discussion changed from legal repercussions for the remaining fifteen members of the council, to how– and when– to plan for next sacrifice.
+
+\*\*\*
+
+That was one thousand years ago. The sacrifices have been offered every four years since then. Tonight would be sacrifice 250.
+
+The hour of sacrifice was approaching. Olivia could feel herself being guided to her prophetess position. She had been one of the seven prophetesses for the past five sacrifices. Shortly after 11:30, the seven women of the colony chosen to be voices for the gods, would feel a compelling need to walk to the town square. Set around the square were seven circles of metal. No one seemed to know why those circles were there or when they were put in place, but on the night of sacrifice, they would glow slightly and the seven women would be led to stand in the center of each circle. From there they would act as the voice of the gods to announce The Chosen One.
+As midnight approached, all seven prophetesses would go into a trance. At exactly midnight, they would speak in one voice and loudly proclaim, “Shayomie– or whomever– is The Chosen One.” Shayomie had been Sacrifice 249.
+
+Somehow, The Chosen One was always also present in the square at midnight to hear the announcement of the prophetesses. Having announced the name of The Chosen One, the seven would then descend on her and rip the clothing from her body. After tightening her nipple clamps, a seven-stranded golden chain would be attached to The Chosen One’s nipples, and she would be pulled around the town square– actually a circle– and then through the town in an ever-widening spiral outward until at last they reached the road which formed the outer boundary of the circular city.
+
+On the last circuit, the procession would turn down the Avenue of Plenty and The Chosen One would be pulled back to the center of town, to the Temple of Jarleena’s Mother and the Table of Fertility.
+
+The temple was built on the site of the original council building. The table was a faithful reconstruction, except for size, of the original table used at the council meetings in the first years of the colony. It was now many times larger and made of highly polished igneous rock, but Jarleena, herself, would still recognize it as the table around which she had sat for so many meetings and on which she was defiled a millennia past.
+
+Olivia felt herself fading more deeply into her prophetic trance. Now everything would become dream-like. When she spoke for the gods, she was able to still see and feel and think, but her words and actions were not her own. It was as if she were a guest in her own body.
+
+She could feel herself swaying. The sacred chant was beginning within her. The time of the announcement was almost here. The town clock made that slight clicking sound it made just before it struck the hour and the entire town... the entire planet... fell silent.
+
+At exactly midnight, the clock chimed the hour. As soon as the deep “bong” of the tower bell rang for the twelfth time... while the echo of that sound was just beginning to fade... Olivia could hear her voice crying out, “I... am... sacrifice... 250!”
+
+That isn’t what the other six screamed. They said, “Olivia is sacrifice 250,” but Olivia herself claimed her chosenness with the words, “I am sacrifice 250.”
+
+Normally, her trance would continue until she and her sister prophetesses had dragged The Chosen One to the Temple of Jarleena’s Mother, but tonight, Olivia felt the trance lift as soon as her words left her mouth.
+
+She had been chosen! She was sacrifice 250!
+
+Olivia could see the other prophetesses converging on her from around the square. Before they could arrive, her hands flew quickly to her clothing and she stripped herself bare. Then standing proud and ready with her hands behind her head in the proper posture of The Chosen One, she thrust her breasts forward awaiting the attachment of the chains.
+
+The nipple clamps hurt for a moment as they were tightened, but soon the sensation of pain was replaced by sensations of passion. Buleena, chief of the prophetesses, tightened the clamps and attached the golden chains. She looked confused for a moment as to what to do with the seventh chain, so Olivia opened her mouth and Buleena set the end of the chain between her teeth.
+
+Buleena reached down and slowly massaged Olivia’s cunt. The sensations were so overwhelming that Olivia groaned loudly and nearly collapsed. Obviously, something was greatly magnifying the sexual satisfaction she was receiving as the chosen sacrifice.
+
+“The gods have chosen well,” said Buleena as she and her sisters began pulling Olivia around the town square.
+
+Olivia did not mean to resist them. She wanted to follow them. She was going willingly. But for some reason, her body was resisting just enough so that tension was needed on the chains to pull her forward with each step that she took. That tension caused the butterfly clamps to tighten further which sent waves of sensations through her body causing her to hesitate in her step which required more tension to pull her forward. It was a rapidly escalating spiral of pain and pleasure.
+
+She could also feel drops of liquid hitting her body. The crowd surged and pulsed around her as they walked. Ornate honey-dippers, held high above the heads of the crowd, were flicked in her direction.
+
+There was very little actual honey in the slots of these elongated dippers. Unlike a ball honey dipper, whose design was optimized for drizzling honey on various pastries, these vaguely penis-shaped devices were primarily symbolic of impregnation. They held, and spewed forth, only a drop or two of honey. But one or two drops of honey, drizzled through the air from thousands of these phallic substitutes, soon had Olivia’s skin glistening with sticky sweetness.
+
+If you were located somewhere high above the crowd and watched Olivia’s slow progress through the packed throng, you might think that she was a magical, mystical being of some sort. In front of her were the packed crowds jostling to be close to her as she passed. Around her were screaming men and women reaching out to touch her or to cast honey on her body. And behind her in an ever-widening spiral, was a naked sea of copulation.
+
+From the time the sacrifice passed you on the night of choosing, until The Chosen One was cast into the planet’s mouth, it was the duty of every adult member of the colony to demonstrate to the gods the act of fertility. All of that sexual energy would be channeled into the Temple of Jarleena’s Mother. The sacrifice, lying on the Table of Fertility throughout the night, would absorb that energy. When The Chosen One could stand no more, she would be bound and cast into the mouth of the planet to take that sexual energy directly to the gods so that fertility may continue to exist within the colony for another four years.
+
+The final walk down the Avenue of Plenty was much more raucous and more overtly raunchy and sexual than had been the long walk along the spider web design of city streets which had brought Olivia to the outer walls of the colony. The time of fertility had now begun for everyone in the city. The crowds were still yelling and still casting honey on her, but many in the crowd were also coupled together, screaming out their passion to her as if the energy of their orgasm could somehow be transferred to her.
+
+Olivia had never fully believed all of the myths which surrounded the sacrifice. She was especially skeptical of the accumulation of sexual energy by The Chosen One. But as she walked down the Avenue of Plenty, she could feel power of some sort filling her. It was the power of pleasure. She could feel herself pulling back against the golden chains. She could hear herself calling out in sexual passion. This was more than just an intense, extended orgasm. This was the raw power of fertility.
+
+Lost in her own pleasure, she didn’t realize that they had arrived at the temple until Buleena gently pushed her back over the edge of the Table of Fertility. Buleena and the other five prophetesses climbed onto the table with her. Someone loosened and removed the nipple clamps by which she had been led to this spot. Then with all of the prophetesses chanting one of the sacred songs, they began licking the honey from her body. Olivia gasped in pleasure. Six mouths roamed her body. Her breasts... her clit... her fingers... her toes... every place which could feel pleasure was being subjected to an onslaught of tongues.
+
+Around the Table, many other women and men stood waiting. No one else could mount the table until the prophetesses completed their ritual. Finally, their ritual approached its climax. The six women, now all just as covered in honey as Olivia had once been, rolled off of her to lie on the table alongside her with their legs held widely spread. Again, the prophetesses spoke as one in the voice of the gods as they cried out, “Fill us with the power of fertility!”
+
+Many things happened all at once. Men pushed and shoved to be the first to penetrate one of the prophetesses, or perhaps even The Chosen One herself. Some women knelt to worship the wombs that would receive the offerings of fertility. Other women scrambled up onto the table and mimicked the posture of The Chosen One and her court of prophetesses.
+
+Some women bent over the edge of the table so as to give any man who came up behind them the choice of either opening in which to deposit their seed. Still other women lay on the table on their backs with their heads toward the outer circle of the table so that they could offer their third opening to receive the seed.
+
+Olivia could feel herself being positioned so that all three of her openings were available at the same time. Five times before, she had lain on the table alongside the sacrifice and wondered if it was really different for The Chosen One.
+
+Tonight, she had her answer, “Yes! It was different!”
+
+The sex she experienced as a prophetess was almost unbearably pleasurable. She had thought those nights to have been the most pleasure she could possibly withstand, and yet it was orders of magnitude less than the ecstacy which was now coursing through her body. She was on fire. She was being consumed by pleasure. Her body was becoming light. She was fertility itself.
+
+There was no way for Olivia to know how much time had passed. From the thickness of the layer of cum on her body, she knew that she had received the offerings of thousands of men. And from the changes in the noise around her she thought that morning was perhaps approaching. As she tried to look around, she could feel herself being slid across the shiny– and now slimey– table. Hands lifted her. Soft ropes encircled her. She was being carried outside.
+
+Olivia stared at the sky as it slowly changed from dark black to gray to pale blue. She was definitely outside, and it was dawn. It was time for her final journey to the mouth of the planet.
+
+It seemed to her as if she were floating through the town as she rode, flat on her back, on the fifteen hands of the council members. That is how it had been that morning for Jarleena, the first Chosen, and how it had been for the 237 women and 11 men who had been chosen in the years since. On one side of town, the path they were now taking was called The Avenue of Plenty. It led from the town square out to the fertile fields. The same fields which had enticed the colony to settle here.
+
+On the other side of town... on the other side of the town square... the same road was called The Avenue of Need. At the edge of town, The Avenue of Need became a dusty, rising path which wound its way to the top of the plateau on which the colony ship had landed one thousand years earlier, and through which the ship had descended into oblivion.
+
+As they walked, the council members were chanting the sacred song. Despite years of study by the priests of fertility, its meaning was still unknown. The words– and tune– to the chant were known from the video records of that first night.
+
+If The Chosen One were not a member of council, then the chairperson of council lead the procession through the town and out to the plateau. If The Chosen One were from the council, then a representative of The Chosen One’s family would carry the sacred torch, holding it high so everyone in the long procession which followed would be able to see the head of the column. The torch was intentionally made to have a bright, but smoky flame so that it could be easily seen as the night gave way to dawn.
+
+Olivia could feel the rhythmic swaying of the strange bier that bore her to her grave. From the moment she was chosen, she knew that, ultimately, she was chosen to die for the fertility of the planet. Just before this final procession, she had been offered the bitter cup, but refused. She was not afraid. There was no need for drugs to immobilize her so that she did not disgrace herself.
+
+The path was getting steeper. Olivia could feel herself slipping slightly on the hands that held her. The wiggling of fingers working to bring her back to proper position felt strange against her back and legs. It was even slightly erotic as those fingers slipped slightly against and between the flesh of her ass and legs... flesh which was still slippery from her own, and many others’, fluids.
+The procession stopped. The crowd following began to spread out around the edge of the crater... hole... mouth... created when the colony ship sank. Soon the entire crowd was loudly chanting the sacred song.
+
+Then the signal was given. The torch carried by the leader of the procession was thrown in a high arc into the center of the planet’s mouth to illuminate her way. For a brief moment everything became totally silent. Then Olivia felt herself bounce lightly as the crowd shouted out “Brou!” And then, “Droh!” And finally, “Kai!”
+
+On “Kai!” she felt the hands beneath her bounce and then push upward in unison. Suddenly she was flying forward through the air. She felt her body turning so that she was pointed head down. The hole was becoming darker and darker and darker as she continued to fall.
+
+No one knew how deep the hole actually was. After the sinking, some colonists had attempted to climb down to the ship. It was not possible. No light could reach the bottom of the hole. No measuring device could discern the ultimate depth of the shaft. Olivia took a deep breath, waiting for that final instant when she would be crushed against the rocks or ship or whatever made up the bottom of the shaft.
+
+Then she stopped falling.
+
+She didn’t hit anything. She was still head down as though falling, but all movement seemed to have stopped.
+
+Hands were once again on her body. The hands were removing her bonds. They were turning her so that she was upright. There was something beneath her feet that felt like soft sand. A small amount of light illuminated the ground beneath her. A soft voice said, “Follow me.”
+
+Soon Olivia found herself shielding her eyes as she stepped through a hatch-like door into a brightly lit room. There were several dozen women in the room, all of them naked. One stepped up to her and said, “Welcome to the control room.”
+
+ = = = = = = = = = = = = = = = = = = = =
+END OF STORY... but there is more below.
+
+This is the end of Sacrifice 250 after my final edit. Originally I had several more sections which gave the sci-fi-technical explanation of the events in the story. I decided to remove these sections for two reasons. One, they aren’t at all sexy. And two, they are boring unless you are a sci-fi geek-type person.
+
+However, since many of my readers ARE sci-fi geek-type people, I am including these segments as an epilogue. Read if you want to. Ignore if you want to. But don’t judge the story negatively if you think the epilogue sucks. I warned you what it is... and is not.     The Technician.
+
+ = = = = = = = = = = = = = = = = = = = =
+Epilogue - Disaster Buoy, Colony Seven
+
+273 years following the launch of Colony Ship Seven– more than two centuries after it was assumed lost– a faint signal was detected from its disaster buoy.
+
+A disaster buoy is a message of last resort which is launched automatically if a ship breaks up in space for any reason. It can also be launched manually if a catastrophe overtakes the ship and there is no other way to report back to home planet.
+
+Eight years after the first, faint signals were detected, the buoy was within range of a deep space station and the information it contained was able to be retrieved. What follows is the report  carried by that buoy.
+
+ = = = = = = = = = = = = = = = = = = = =
+ \* \* \* \* \* \* \* \* \* \* \* \*
+
+Colony Seven has failed in the worst possible way. This planet cannot support life and we are unable to lift off and relocate to the alternate location.
+
+Only days after planet fall, the colony ship began slowly sinking into the ground. Emergency, ‘round-the-clock efforts were able to remove almost all essential materials. Lost with the ship however, were all report rockets, the disaster buoy, various repair and maintenance parts, a significant amount of food supplies, and 73 members of the crew, including myself, Captain Harriet Maazman.
+
+As we descended into the depths of the planet, we each accepted our fate and hoped that our sacrifice had enabled the others to offload sufficient supplies for the colony to be successful.
+
+Then the ship gradually slowed and we quit falling. It was as if we were on some sort of giant elevator, which we later learned was exactly what was occurring. Looking out of the port holes of the ship after we stopped, it was obvious that we were in the center of what appeared to be an artificial planet.
+
+The engineers among us were ecstatic to see a technology that could create or modify or move a planet into that thin orbital distance that supports life. Finding a planet with the necessary metals, minerals, and fluids to support life isn’t the hard part of selecting colony planets. It is finding a planet which has all that and is also the proper distance from a proper-sized sun so that life as we know it can exist.
+
+It took a few months to figure out how to gain entrance to the planetary control rooms. Once we were inside it took many more months to be able to read the instruments and understand the manuals and procedures. After a while, we were even able to use the surface monitors, though we had no idea how they truly worked.
+
+We could then see that something was terribly wrong up top. Nothing was growing. We knew that plants aboard the ship were dying off, but attributed that to being in the center of the planet. It was after the crops again refused to grow in the second planting season that the cause of the problem became known to us.
+
+Raoul Tobin, one of the chief engineers, was attempting to figure out what a strange cabinet-like device was in one of the labs. Suddenly he started screaming, “Shit! Scheive! Skat! Skit! Mut! Merde! Bok! ...”
+
+Raoul knew over 194 different words for fecal material, and was known to go through the entire list several times if he was really upset. I got his attention with a loud, “Mister Tobin!” which I followed immediately with an equally loud command, “Report!”
+
+“The word we can’t read in the manuals,” he began, “the one that talks about the planetary systems.” Pointing to the controls on the cabinet, he said, “That is the word and symbol right there.” Looking up at me he said excitedly, “And do you know what it does?” He pushed it. “It puts everything in the unit into total stasis. This damn planet is in standby mode.”
+
+The words and symbols on the equipment provided the needed keys to the language. Over the next few months more of the manuals were translated. The planet had indeed been placed on standby until the arrival of a colony ship from its creators’ home planet. Judging from the dust, corrosion, and other indications of the passage of time, it had been waiting for centuries, if not millennia.
+
+Hand-written notes indicated that an attempt to colonize had been made at some point, but failed because the planet, for some reason, would not come out of stasis. After six years, the remnants of the colony were evacuated to another location and this marvelous piece of technology was abandoned as sterile and uninhabitable.
+
+As time passed, we figured out many other things. One was that objects thrown down into the elevator shaft never crashed into the bottom. They fell the thousands of feet down the hole gaining speed most of the way, but then decelerated and came almost to a stop before drifting slowly to the floor of the control level.
+
+It was in the middle of the fourth season that we came to understand the true purpose of the sensors which were buried beneath the surface of the planet. They were intended to detect life.
+
+But they did more than that. If someone lived or spent a great deal of time directly over one of the sensors, they somehow became linked to the entire sensor network. We were able to talk to them... or more exactly we were able to talk through them. Others could hear our voices come from that person, or if they were alone, they would later remember what was said. Unfortunately, those through whom we first attempted to communicate were adjudged to be suffering from hibernation sickness, so others would hide or ignore our attempts to communicate.
+
+The sensors appeared to be tuned to emotions in some way. When there was significant activity– especially emotional activity– near one of the sensors, it would register on the monitor panels in the control room. Large family gatherings would cause the indicators to rise slightly. Angry arguments would create an even larger rise in readings. Sexual activity– especially a woman’s orgasm– would create the highest readings.
+
+In fact, there was one woman, Jarleena, who evidently lived directly over a sensor, and who was known to own an impressive collection of personal sexual aides. Her almost nightly activities often caused the level indicator to change colors from pale blue to bright yellow.
+
+Three weeks ago, one of the engineers was finally able to translate the section of the manual which dealt with the sensor monitor displays. “Yellow means 80% of what it calls ‘trigger minimum,’” he explained. “If we could just get her to go even higher, or perhaps to have something else happening around her to elevate the background levels, it should be enough to trigger the planet out of standby mode.”
+
+Earlier tonight, the background levels from one sensor– the one directly beneath the government building– began rising dramatically. “That must be one hell of a meeting,” I said aloud, “If we could only get someone to orgasm on top of this, we would have the necessary level.”
+
+Turning to the engineers in the room, I added, “But even if we can communicate with someone in that room, how do we convince a bunch of government leaders that they have to have an orgy so the planet will come to life? Who is going to believe something that ridiculous and unbelievable. It’s not like I can just order them to offer up an orgasm like a sacrifice to the gods.”
+
+“It’s exactly that,” Raoul shouted as he came into the room. “A communication from the gods is the only thing people will believe without proof. We need a believable prophet and we need a sacrifice to the gods. Jarleena could be both at the same time... and she’s already there. She is a member of council; she’s linked to the entire sensor system; and she’s insatiable sexually. We communicate through her and tell them that the gods of the planet demand that they make her cum like she’s never cum before so that fertility can be restored. It doesn’t have to be real... or true... it only has to work.”
+
+“But she would know the truth of what had happened when she came back to being herself, wouldn’t she?” asked another of the engineers.
+
+“Have them throw her down here to us,” answered Raoul.
+
+Everyone looked over at him aghast, and he explained, “We will need to eventually replace our numbers anyway. Someone has to run the control room when we pass on. A sacrifice every couple of years will maintain the necessary crew down here.”
+
+He picked up his well-read copy of the planet’s manuals. “And from what I can tell, we will have to repeat this peak reading every three or four years anyway to keep the planet from going back into stasis.”
+
+So, three hours after nightfall last night, we began communicating through the woman, Jarleena. Since then readings have continued to rise. Additional computers and other equipment are starting to come on line. I am unsure whether the power will remain functional after the levels return to normal, so while power is at its peak, we will attempt to launch our disaster buoy using what Raoul assures me is a pulse cannon designed to shoot things into orbit around the planet. Once the buoy is high enough into space, hopefully its internal programming will take over and it will eventually find its way back to our home planet.
+
+The disaster buoy relies on cosmic winds and random interaction to navigate through space, so it could take many, many years to reach the home planet. If our plan works, there may still be people alive on Colony Seven when you receive this message. If the plan fails, we all will have become part of the dust of this barren planet, but you will at least have the answer to why the colony failed.
+
+I am hopeful, but much depends on our actions here tonight, and the actions of the people on the surface. Ultimately, however, the life of the colony depends on the surface people, in some fashion, continuing this strange, but necessary, ritual in future years. It is the only way to insure the continuation of life on this planet.
+
+ = = = = = = = = = = = = = = = = = = = =
+END OF STORY & EPILOGUE
+ = = = = = = = = = = = = = = = = = = = =
+Published eBooks by Wayne Mitchell (The Technician}

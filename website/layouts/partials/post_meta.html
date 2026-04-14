@@ -1,0 +1,18 @@
+{{- $date := "" -}}
+{{- if .Date }}
+{{- $date = .Date -}}
+{{- else if .Params.date }}
+{{- $date = .Params.date -}}
+{{- end -}}
+
+{{- if $date }}
+<span title='{{ $date.Format "2006-01-02" }}'>{{ $date.Format "January 2, 2006" }}</span>
+{{- end -}}
+
+{{- if .Params.authors }}
+<span> · {{ range first 1 .Params.authors }}<a href="{{ "authors" | relLangURL }}/{{ urlize . }}/">{{ . }}</a>{{ end }}</span>
+{{- end -}}
+
+{{- if .Params.original_url }}
+<span> · <a href="{{ .Params.original_url }}" target="_blank" rel="noopener noreferrer">Original Story</a></span>
+{{- end -}}

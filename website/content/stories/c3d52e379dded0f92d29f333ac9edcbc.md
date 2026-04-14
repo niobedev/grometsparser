@@ -1,0 +1,256 @@
+---
+original_url: https://www.maidbots.net/storieslr/married_to_the_maid4.html
+subcategory: Pony & Pet Girl
+title: Married to the Maid
+authors:
+- Ningyou Macher
+tags:
+- Solo-F
+- Machine/f
+- F/maidbot
+- robots
+- maid-bots
+- collar
+- switch
+- mind-control
+- latex
+- program
+- technician
+- bodymod
+- cyborg
+- F2maidbot
+- toys
+- sex
+- pod
+- recharge
+- stuck
+- nc
+- XX
+date: 2020-08-16 00:00:00
+---
+
+### Chapter 4 - ...It Might Come True
+
+Sierra activated at 7:00 A.M. in accordance with her programmed schedule, however she felt as if something was different as compared to all the previous mornings. As the door to her pod opened and the service probes retracted back into their stand-by positions, she felt as if she had forgotten something important. It was like waking from a dream that fades just before you can grasp it. She remembered ‘Mistress Sierra’ riding her, the brunette from months before and her shocking news, the video of Kim, and the incident with the pool crew—most shocking of all, she recalled being free to think as she wished. Yet at the same time, it was all too vague to be real.
+
+Before she could spend more than a moment’s thought on the dream-like memories, the house system interrupted her, informing Sierra that she was being a bad robot, so instead she focused on the joy of moving with the grace of a ballerina and the sight of her fellow maid, Angela, as she dressed. These, the house told her were good thoughts. She loved the look of the latex on the other maids and hoped that her form complimented the wonderful material just as well. Looking at Angela in such a state brought on the memory of Espa’s large, soft breasts in her hands, filling them with warmth as she indulged in the phantom sensation. Soon her hands were feeling the latex of her own uniform, and it wasn’t long before she was comforted by its tight embrace and the routine that went with it.
+
+But the feeling was not to last. No sooner had Sierra finish dressing then the house system uploaded her daily assignments into her still organic brain, and she noticed a deviation in the day’s schedule. “Espa-*β*” was not scheduled for any tasks after 1:00 P.M. *Could this be...?* she began to think before the house system stepped in to quash such thoughts. But, error messages alone couldn’t stop her from recalling the ‘dream’, and that the nameless brunette was meant to come at that time. Forcing through the errors she continued her attempts. Reaching past them as if trying to concentrate in the midst of a cacophonic evening commute with its horns and curses—she remembered. Or at least she thought she did. Valeria Pond was to come at one o’clock to install a solid-state brain and look to see what was wrong with Espa. This brought back the previous day’s end and how Espa had collared her. Sierra remembered being sent to Espa’s pod, and vice versa, but she clearly woke in her own. *Perhaps it was just a dream.* After all, why would she be sent to Espa’s pod? The thought depressed her...Or would have if the house system allowed it instead of replacing the negativity with how happy it would make her feel to be of ‘use’ to her owner. So Sierra began thinking how wonderful it would be to please Espa as she had in the dream, leaving her mind in the gutter as she went about her duties.
+
+Duties which could not banish the nagging feeling that something was off, though the house system wouldn’t allow the unease to touch her conscious mind. Instead, Sierra was enjoying the rigid control that was forcing her to clean the study. Walking to and fro with a feather duster as her hips swayed with each teetering step brought Sierra no less comfort this day than it had those before it. Even had she been allowed to think on how much easier the task would be if Espa hadn’t gotten rid of more efficient tools, she wouldn’t have. Firmly engaged in her routine, Sierra’s concerns melted away...
+
+“That isn’t how you use a duster.”
+
+...at least until her dream truly began looking like a nightmarish reality. At the sound of Kim’s comment, Sierra stopped what she was doing and turned to face the woman whom her dream told her had visited the day before. “Maid, come here.”
+
+Without delay, Sierra sashayed provocatively over to Kim, the motion causing the latex of her uniform to pull at her naked skin, bring Sierra’s attention to her drafty nethers. It didn’t help that Kim’s outfit for the day was a charcoal grey turtleneck mini dress with matching suede thigh-boots, showing off burgundy nails. The dress molded itself to her fit body, displaying every underlying detail perfectly, and the heels added several inches to her already imposing stature. Sierra was certain that had the house system allowed it, a flush would have overtaken her. She wanted to touch this women, wanted to be touched by this woman. The need to know if Kim’s skin was as smooth as it seemed suddenly ranked among her priorities. Had her mind been free, she would have wondered as to why.
+
+“Apologies Mistress, this unit is unaware of another way to perform this duty,” her body said. Internally she asked *Mistress?*, but the house assured her that indeed that was the proper way to address this user.
+
+Looking down at the tablet from Sierra’s dream that wasn’t a dream, Kim smirked. “Like what you see do you?”
+
+*Oh no!* “Your attire is very flattering.”
+
+“Mmmm, isn’t it?” Stepping closer, Kim ran a hand from Sierra’s shoulder down to the back of the hand holding the duster. There it stopped to trace small circles, the intimate touch sending a pleasant shiver through Sierra that she couldn’t express as she remained stock still. “You’re looking lovely yourself. ‘Sierra’ has excellent taste.” Kim leaned in next to Sierra’s ear as her hand grasp the instrument. “Here,” she whispered, “let me help.”
+
+Gently, Kim pulled the duster from Sierra who let go as soon as she realized what was expected. “Say ‘ah’.” Once more, Sierra followed Kimberly’s command, and into the gaping hole went the handle of the duster. “And close.” Having no choice in the matter, Sierra complied. “The proper way to dust is to hold it like that as you move your head back and forth. From now on, that is how you are to use a duster.”
+
+Sierra could feel her programming, however temporary it might be with a human brain, altered so that it seemed as if this was the way it had always been done. Unable to speak without dropping the duster, Sierra nodded her acknowledgment.
+
+“Now carry on, I want to show ‘Sierra’ how much better you can clean a room like that.” As Sierra resumed what she was doing, albeit in a rather awkward fashion, Kim called for Espa. “House, please summon Sierra, I think she’ll want to see this.”
+
+Kim didn’t need to wait long, and spent it drinking in the sight of Sierra follow her absurd orders. The tapping of Espa’s heeled sandals announced her presence before she spoke, and Sierra could already feel her former maid joining Kim in devouring her with their eyes. “Oh my. What have we here?” Espa asked, taking care to enunciate each word individually.
+
+Normally the etiquette protocols would have the maids to turn, but Kim had told the house she wanted to show ‘Sierra’ how her maid was dusting now. Sierra wished she would have turned, then she wouldn’t have to feel the gaze of two predators on her back.
+
+Turning to Kim, Espa posited, “You’re doing?”
+
+“You like?”
+
+“Quite a bit. Almost as much as that gift you gave Espa yesterday. I put it to *excellent* use. I was actually thinking of having her wear it around as she worked; see if the other maids notice.”
+
+“Oh? Is that why you’re holding that thing?” Sierra couldn’t see it, but she had a haunting suspicion as to what they were talking about. She then heard an exaggerated inhalation followed by, “Mmm, smells like strawberries.”
+
+“Tastes like it too. Care for a lick...perhaps from the ‘source’?”
+
+At once, the arousal and unease that had been swirling around inside Sierra erupted into a full-fledged war. The prospect of being eaten by this gorgeous woman while she was controlled by the house system—capable of doing nothing more than enjoying the treatment, free of any guilt—was excruciatingly appealing, and she wished she was able to feel her heart racing. On the other hand, Sierra was increasingly certain that this woman was responsible for the ills that had recently befallen her and that was violation enough. However, in the end, the house system stamped out this aspect of the war, and her juices began to flow freely. The scent of strawberries quickly filled the room.
+
+“Hah!” Kim laughed, “I think she likes that idea! I see why you say this one is your favorite. No. Thank you for the offer, but I think I’ll pass for now. I wouldn’t mind a show though.”
+
+“Espa, come here,” Espa commanded.
+
+Sierra’s head stopped mid-stroke and turned, seeing that Espa had dressed in a lilac V-neck halter top with tan slacks. The halter’s plunge was quite deep, and the material around her middle much tighter than over her chest showing off her taut waist, while allowing her breasts to move with titillating freedom. Like everything she had seen Espa in, Sierra found this combination to be jaw dropping, and she was very much aware that she was drooling around the handle of the duster. She told herself that it was just the result of having something in her mouth: a simple reflex. She may even be right.
+
+Espa turned to look at Kim who just waggled her perfect eyebrows. With a firm grip on the handle and a lascivious twinkle in her eyes, Espa pulled the duster out a bit, just to give it a twist as she drove it down Sierra’s throat. Once she removed it, she spocked one of her own perfect eyebrows as she pointedly looked at the sloppy handle. “You’re not the only thing dripping I see,” she said before laughing at her own joke and gave it a long, slow swipe with the flat of her tongue. Looking deep into Sierra’s empty eyes, she moaned her appreciation, and Sierra found herself in danger of drowning in those dark brown pools. Without breaking eye contact, Espa moved the massive phallus from Sierra’s ‘dream’ in-between them. “Time to put on a show,” she purred. Stepping back, Espa held out the dildo, saying “I trust you haven’t forgotten how to use this?”
+
+“No Mistress, this unit remembers,” Sierra found herself saying. *That couldn’t have been real!* Despite what she wished to believe, she promptly removed her corset, setting it carefully on the floor, exposing her navel. She then took the manly instrument from Espa, turned it on, and placed it against her mons with a *thunk*, just like in her ‘dream’, and, to Sierra’s horror, just like in her dream she plugged the cable into her navel. *No, no, no, no...that had to have been a dream. There is no way this could be happen!* Cry as she might within herself, this was happening, and she knew it.
+
+Sierra finished by smoothing her skirt down as much as her auxiliary equipment allowed, and put the corset back on, leaving the lewd appendage to protrude from under the hem of her already short skirt. Espa flashed a wicked, wanton smile. “Now for someone to play with you. House, please direct Angela down here.”
+
+“I think not,” Kim interjected. “House, cancel that. Espa-*α*, run maid complete.” Immediately, the lustful look Espa had been wearing vanished, replaced by the stolid look that all the maids wore. “Espa-*β*, run wife limited.” Just as quickly, Sierra felt some modicum of control return to her. “Well, are you ready for the pièce de résistance of your transformation?” At that, Sierra’s eyes, now partially under her control, widened to saucers. “Oh yes. That wasn’t a dream. Turns out Espa has been upgrading you and erasing the memories from the both of you. You’re pal Val has been doing the work in fact, and she is scheduled for one last alteration this evening. Since I’m feeling generous, I’ll even pay for your other remaining organs to be replaced. So...are you looking forward to it?”
+
+Once Kim had stopped speaking, the house system allowed Sierra to reply, but she was kept from shouting, or slinging the curses she could feel rising to her mouth like so much bile. However, more importantly, Sierra was overwhelmed and all she could let slip from her lips was a wan, “What...?” That she was more machine than woman, and that she has been having sex with at least Espa without recollection was just too much for her. Now, it seemed as if Kim was joining in with some devious plan of her own. “How?”
+
+“Hmm? ‘What?’ ‘How?’ Simple. At some point you messed up and put a program into your maid for reasons I can’t begin to fathom, and that program seems to include making the swap less temporary and more permanent. Or so it seems. Or do you mean why am I doing this? Tell me, do you remember me? I know I asked this of you before, but you weren’t exactly in a position to respond. So, do you?”
+
+No sooner had Kim asked the question than the house system began prodding Sierra to dig through her memories, something she would have done anyway, but try as she might, she couldn’t think of anything. Sierra was certain she had never met this woman outside of company get-togethers. Still, she tried to search her mind, to find something that would appease this woman so that maybe she would be released from at least Kim’s clutches. However, in the end, she shook her head in defeat. Her voice meek with both fright and disappointment, Sierra presented her conclusion. “I can’t...I don’t remember you. I’m sorry.”
+
+Kim stepped closer and with exaggerated care pulled down one of the molded cups of Sierra’s latex corset, peeling it off the flesh it so desperately clung to. Holding an erect nipple between thumb and forefinger, Kim demanded again, “Don’t say that. I *know* you remember. You must! Now *think*!”
+
+And Sierra did, but that didn’t help bring up anything new so she shook her head, grimacing, knowing what was to come. Kim twisted hard, and Sierra let out a yelp. “I’m sorry, it’s true! I’ve only ever seen you at company functions. I have no idea what you’re talking about!”
+
+Kim released Sierra and stepped back. “See, that wasn’t so hard was it?” Interpreting Sierra’s confused, questioning look, Kim went on. “That’s exactly where we know each other,” she said laughing. “I don’t know how you could have forgotten.”
+
+Confusion reigned supreme in Sierra’s mind, overshadowing pain and pleasure, both of which were in ample supply. Surely, she thought, it couldn’t be something so inane, but looking at the triumph on Kim’s face, Sierra knew it couldn’t be anything else. “Was...this a game? I don’t understand.”
+
+“And it isn’t your place to understand, only to know. And you should know that I’m going to be taking your husband from you, though from what I can tell he hasn’t been much of a husband to either you or your replacement in a while. When was the last time he released you from your maid program? For that matter, when was the last time he was home for more than a few days? How long have his business trips taken these last few months? I can tell you. Do you want to know?”
+
+Sierra did in fact know. Though the house system usually prevented her from thinking on it, now that its hold on her had weakened, she could see how Sean had been taking more time on his trips, and how when he was home he didn’t spend it with her. Not wanting to believe this truth, Sierra shook her head.
+
+“Too bad,” Kim pouted theatrically, apparently misinterpreting the gesture. “In the last 30 days, he spent 20 days out of town. Looking through Espa’s logs, it seems you spent none of the remaining ten days as his wife. Oh well, with my little plan, I’ll make sure he spends none of those here. Well, unless I decide to move in.” Kim’s expression turned saccharine, and with a voice to match said, “Then you can be my maid too.”
+
+To Sierra’s surprise, she felt nothing. Turning her gaze inwards, she expected rage, or sorrow, or hopelessness, or even relief that there would be some kind of conclusion: an end to this tale of hers. However, she found nothing. Just a void. Her thoughts should have turned dark, but they didn’t. Hearing Kim’s end-game drained Sierra of all that she had been feeling. Looking at the emptiness inside her, Sierra saw that it was resignation, that this was something out her control. Also, she saw that she didn’t care about Sean. Whether or not this was the result of some program was irrelevant, the truth was, she didn’t care if Kim stole the husband who had already abandoned her.
+
+Again misunderstanding Sierra’s reaction, Kim asked, “Too much for your small mind? Well, Espa already planned an upgrade for you which should fix that. Hmm...now then, I believe Espa was going to have you do what you do best these days. Espa-*β* run maid complete.”
+
+With those words, Sierra felt the little control she’d gained vanish as if it never was, and with it her emotions were once more steered by the house system. It was telling her everything was alright, that everything was as it should be, and therefore, some part of Sierra told herself, it must be so. Still, this comfort wasn’t enough to vanquish the knowledge that she was going to be taking the final step off the cliff of humanity and towards existing as a thing that was controlled, but rather than trepidation, she could only feel relief. That voice inside her last spring that wanted to play at being a maidbot wanted more, and now it was getting just that.
+
+“Maid, this unit here,” Kim said, motioning to Espa, “is in need of ‘servicing’. Why don’t you take care of it.”
+
+“A service call has already been requested for one o’clock today, would you like this unit to place another?”
+
+Kim visibly counted to ten, mouthing each number. “I want you to use your ‘tool’, on this Espa like a man would a woman until I say other wise...And make it sexy. I want a show. I want to see how base you can be, so be a man and take her.”
+
+The sensation of data and programs flooding Sierra’s human mind caused her to freeze up for a moment as the house system filled her brain with everything she needed—and nothing she wanted—as Kim leaned against a wall leering.
+
+As commanded, Sierra roughly stripped Espa of her pants and navy blue satin thong, destroying both in the process as she shouted demeaning words she didn’t feel; and with a fistful of hair, she bent Espa over a nearby table before plunging into her maid turned owner, hilting herself.
+
+The sensation was unreal, and unlike anything she would have expected, but not unlike anything she remembered: She remembered the feeling from her dream. However, there was something different—something was off. She clearly recalled feeling vibrations crawling up and down her faux manhood, but all she felt now was pressure and friction. Pleasurable as it might be, it wasn’t the same. Why? She didn’t know, but she knew something was wrong. She knew things weren’t adding up and so instead of savoring this feeling she was getting from Espa as she sawed into her, Sierra took refuge in the absence of that one sensation from the dream, insisting that the memory was, in fact, fake. She didn’t know how, but she knew it wasn’t real. She just had to have faith that Val would come through for her. At the thought of Valeria, Sierra’s mind left her body in favor of imagining herself sitting together the day before, and their little touches that meant more than an act such as this ever could.
+
+---
+
+Sierra’s interminable performance continued like that, though she maintained only minimal awareness of what her body was doing. She knew her body’s assault of a pleading Espa was ongoing, differing only in the occasional change in position and alternation of harsh words every so often to keep her audience entertained...and it was clearly entertainment. Kim didn’t seem to be the least bit aroused by the show she requested, but from the looks the two were getting and Kim’s occasional comment, it was evident that she enjoyed seeing Sierra like this. That was fine by Sierra, she was ensconced in her own mind, which the house system had no issues with. After all, in her thoughts she was pleasing a ‘user’, though in a much different way then she was ‘pleasing’ either Espa or Kim.
+
+In her mind, Val was napping with her head in Sierra’s lap as the two sat on a bench on Sierra’s porch. The occasional breeze would come by, and she would move errant hairs from Val’s perfect face. And she would just sit there, watching Val’s slow, steady breathing as she thought how this was as it should be. It was a peace unlike that of being controlled by the house system, but no less satisfying. This was how she endured the rape of her mind as Kim attempted to debase her; this was how she protected herself.
+
+But not even can nightmares last forever.
+
+“Huh, looks like the tech is late,” Kim commented idly. With a slathering of sarcasm she added, “It would be *terrible* if she came too late and arrive as a mindless drone.”
+
+Accessing the house system, Sierra saw that it was indeed 3:00. She wasn’t sure at what point Val’s company would force her to enter drone-mode, but she did not like the idea of Val coming without her humanity. How else would she be able to tell something was wrong? How else would she fix this?...And why did it matter if Val was late? If Espa had scheduled the appointment, wouldn’t Val be coming in privacy mode? Looking down at the phantom sleeping in her lap, Sierra asked, “Do you think she is playing with me?” Unfortunately, the Valeria in her mind wasn’t real and responded not with an answer, but with a slight stir as she snuggled closer. Sierra couldn’t help but smile, both in her mindscape and reality...and the house system couldn’t stop her.
+
+“Day dreaming about women again I see,” Kim said as she looked at the tablet. “If you’re so into women, I’ll be happy to take your man off your hands.”
+
+As tempting as the idea of trading Sean for Val was, Sierra was married to her husband, and did not intend on breaking her vows even if he already had.
+
+However, that didn’t stop her from retreating back into her mindscape as soon as the house system no longer demanded she pay attention; and it didn’t stop her from running her fingers through Val’s soft brown hair, nor did it stop her heart from fluttering when she wondered what it would be like should this dream space she and Val shared became real.
+
+After some time, the door bell rang, drawing Sierra away from her day dreaming once more. She was still jack hammering Espa, though neither showed any signs of fatigue: yet another indicator that she was no longer fully, or even mostly, human.
+
+The sound also shook Kim from her own thoughts. Giddy, she called, “Angela, get that,” speaking not so much to the absent maidbot, but to the house system. “You two,” she said, gesturing towards Sierra and Espa, “stand at attention. Side-by-side if you will. Heh, and by that I mean if *I* will it and I do so will.”
+
+Dropping the act which had gone on for hours, the two maidbots stood shoulder to shoulder with their backs straight, shoulder’s back, and chests out on display. Standing there, Sierra mentally held her breath, hoping that this worked out as she hoped. In her mind she forced an image of Val walking through the doorway and standing shocked at the horrific tableau that was the two maids: Espa in tatters, dripping synthetic fluids with bits of hair strewn about, and Sierra wielding the bloodied weapon. The sight couldn’t have been further from the serene scene that Sierra had been wrapping herself in moments before, but this was reality, one she knew was inescapable. At least for the moment.
+
+In the distance, Sierra could hear Angela greeting Valeria, and her heart swelled with hope—Val was herself! However, with Kim standing to the side unperturbed, Sierra assumed that something wicked was planned. Still, was it so terribly to hope?
+
+“If it pleases you, this unit will take you to the mistress of the house,” Angela said.
+
+“Thank you, I’m sure she’s even more eager to see me, than I am to see her,” responded Val, good humor coloring her voice. “I had actually expected her to answer the door, but I can imagine she is busy learning about her new body. How is Sierra doing?”
+
+*Ugh! I already did that, and it didn’t exactly turn out as I had hoped. And I’ll be better once you clear up this mess I made.*
+
+“Sierra is not currently home,” Angela answered, closer than before.
+
+“What? Then who are you taking me to?”
+
+“Mistress Kimberly will be receiving you today.”
+
+“Kimberly!? Where is she?!”
+
+“Mistress is in the sitting room where you spoke with Sierra yesterday.” It was unnerving hearing Angela deliver such a placid response to Val’s near hysterical query, no matter how reasonable it might have been.
+
+Mere seconds passed from Angel’s answer and Val’s screeching arrival into the room, already wide eyed with horror. “Oh dear God,” she mumbled as her eyes darted over the scene before her, though she had missed Kim as she scanned the one she truly cared about.
+
+*Well, that puts to rest whether her legs are real or not,* Sierra thought, nonchalant now that Val was here and aware of the situation.
+
+“Why thank you,” Kim said, “but you don’t need to refer to me as such. I prefer ‘Mistress’ over ‘God’ anyway.”
+
+Furry washed over Val’s face as she wheeled on Kim. “You!” she exclaimed as she took a step forward.
+
+“Yes, me! Now, if you’d be so kind to as to switch over to privacy mode, my little Cyvert, we can get started.”
+
+However, that didn’t work as Kim would have wanted. “Uh-uh. You might be a user, but you’re not an owner.”
+
+Seeing Kim’s face fall, her plan clearly defeated, Sierra exclaimed within her mind *Yes! I knew you’d come through!* Though she had been worried, it was now clear that Sierra should never have doubted the brilliant Valeria.
+
+“Humanoid Robotics Services Tier 2 Technician, Valeria Pond, override code –”
+
+However Val wasn’t the only one who had an idea about this situation. “Espa-*α*,” Kim quickly shouted as soon as Val began trying to access the house, her voice shrill with concern, “Enter wife mode and command this tech to enter privacy mode.”
+
+“– gamma, five–”
+
+“Val, I think this visit should be kept private,” Espa said calmly, ignoring her state of undress and simulated injuries.
+
+“Entering privacy mode. Please be aware that while everything that happens from here until privacy mode is exited will remain confidential, this unit cannot be expected to have any existing memories formed before the privacy command was given erased. Do you acknowledge and accept this limitation?”
+
+*No! You were so close!*
+
+But Kim didn’t answer immediate, favoring instead to sag into a nearby seat. “That was close,” she breathed. “Is it possible to...I don’t know, hide the memories?”
+
+After a short pause, Val answered. “Yes. This unit’s contract prevents the alteration of memories, but they can be left unreferenced.”
+
+“Then do that. And yes, I accept.”
+
+“Confirmation must be given by an owner.”
+
+“Sierra, would you be so kind as to add me to the list of owners for all maid units in this house.” The command given, Kim regained her haughty bearing and stood.
+
+“Of course,” Espa exclaimed cheerfully. “House, add Kimberly Zoë to the list of owners.”
+
+A deep, rumbling laugh began forming in Kim, one which started as a soft snicker and progressed to a full cackle. “Hah! Did you really think you could best me?” She demanded of Val, standing close enough that spittle speckled her target’s face.
+
+“I’m not sure I understand your meaning,” Val responded evenly as Sierra cried inside, her hopes of a resolution so close and so cruelly dashed! Now it seemed as if there was no hope at all. Kim would have her brain replaced and have total control over her very thoughts! Worse, Val wouldn’t know!
+
+“Of course not,” Kim cooed. “Now, lets get this over with. I want to get back to playing with my new toy.”
+
+“Please acknowledge and accept the limi –”
+
+“Yes, yes, I accept. Now, can we *please* hurry up and turn this bitch into a robot?”
+
+“Thank you. If you will, please direct your maidbot to follow this unit so that we may begin.”
+
+And that was that. There was nothing either Sierra or Val could do. Kim clearly knew this, and wasn’t above letting the two of them know. “Dear Espa-*β*, if you would be so kind as to follow this sexy piece of hardware that would be lovely.”
+
+And so Sierra did, with noöne present paying any attention to her attire or extra equipment as the two made their way out of the house with Kim behind them. “Tech, mind adding a little extra service and wiggle that tight little back side of yours? My maid just loves that.”
+
+“That is not a problem,” Val said before swaying her hips not unlike Sierra was.
+
+“Huh, didn’t actually expect you to do that.”
+
+“At Humanoid Robotics Services, we do our best to accommodate our valued customers in anyway we can.”
+
+“Any way?” Kim asked, her voicing taking on a husky tone.
+
+Showing a total lack of understanding, Val answered. “So long as it does not violate any contracts, and is not illegal.”
+
+*Oh no...* Sierra thought, seeing where this was heading.
+
+“My maid here occasionally malfunctions during sexual operations. Would it be possible for you to check on that?”
+
+“Of course. Once we have completed the task of hardware upgrade, this unit can look at its logs to diagnose what is wrong.”
+
+“I mean...I already had someone look at the logs: another Cyvert in privacy mode, so there are no records of it. I was hoping that you might make a...more personal inspection of my unit and her unit.”
+
+Val stopped, and turned to look at Kim. Though as stoned faced as any automaton, Sierra thought for a moment a bit of human dignity might show itself. Instead Val responded, “If you are asking if this unit could activate your maid’s sexual functions in order to better diagnose its symptoms, then that is not in violation with this unit’s contract, nor with the law. However, please note that should either of these conditions change, the appointment will be canceled upon arrival, and you will still be charged a service fee.”
+
+“Excellent,” Kim said, her devious smirk audible. “Then when this is done I would like you to use the remaining balance of time to ‘diagnose’ her issues.”
+
+Val paused for a few more moments before acknowledging the request and resumed leading the pair to a large utility van with the HRS logo on the side. With a practiced, or more likely pre-programmed motion, Val opened the back, revealing a mess of cables, monitors, and panels crowded around what looked like a dentist’s chair with a hole near the neck.
+
+“Espa-*β*, please sit down.”
+
+Sierra complied, climbing up into the van and taking a seat with the same ease she always showed when she was under control of the house system...or, more recently, with her robotic body. *Please Kim, don’t do this,* she begged within her own mind, knowing it wouldn’t do her any good even if Kim could hear her. *You want my husband, fine, you can have him! He’s a cheating louse anyway, but please don’t do this!* Though Sierra liked playing the part of a machine, enjoyed being controlled like a machine, and had looked forward to being nothing but a machine, she had not wanted it like this. She didn’t want it to be at Kim’s hand. She wanted Sean or Val to do it for her sake...for *their* sakes. There was no telling what would become of her like this. Would she even be able to appreciate her new life as a robot? Would that be allowed? She didn’t know, but she was sure Kim did not have her best interests at heart.
+
+“May I?” Kim asked, flashing a guileless smile as she held out her hands towards Val who had picked up an unadorned robot head. Val nodded, and Kim climbed up into the cramped van to receive the head. Looking deep into Sierra’s eyes she said, “Think, while you can. This is going to be your new home. I’m sure you’ll love it, and if you don’t, who cares. Noöne will hear about it. Any last words? Run wife lim – actually, no. I don’t care what you might have to say. In fact, Espa-*β* why don’t you just shut down.”
+
+And so Sierra did.

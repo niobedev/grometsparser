@@ -1,0 +1,130 @@
+---
+original_url: https://www.dollstories.net/storiessz/violetlovedoll9.html
+subcategory: Doll Stories
+title: Violet Lovedoll
+authors:
+- Snowdropviolet
+tags:
+- M/f
+- lovedoll
+- toys
+- bond
+- chastity
+- gag
+- oral
+- rough
+- tease
+- bodymod
+- anal
+- nc
+- XX
+date: 2020-12-19 00:00:00
+---
+
+### Chapter 9 - A Slave's Pleasure
+
+Master jerked lightly against the chain as he led me from his bedroom back to the stairs. I felt the tug on my nipples, and even a faint pull on my ring-squeezed clitoris to start moving.
+
+Going downstairs was always more intense than making my way up. I could do little to soften my high-heeled steps in gravity's pull, and the sway of my hips ensured that my filled pussy, stuffed anus, and trapped clitoris felt every movement. The constant ticklish rubs of the vertical hood piercing left my swollen love bud itchy to the point of madness. Meanwhile everything else between my legs tingled as the toys teased and shifted incessantly inside me.
+
+By the time we made it back to the first floor kitchen, I had become a teary, sobbing mess again. Had it not been for the gag, I would be begging incoherently for him to rape me.
+
+...And yes, 'rape'. Master had long discovered that my pussy dripped the most when he manhandled me. The rougher and more forceful he was, the more aroused I became. Sex between us was never a gentle lovemaking. It was always 'rape'.
+
+That didn't mean he was always barbaric in his treatment of me though. Even now, Master stroked my silky hair and calmed me with gentle words as he enjoyed my muffled, tear-stained sobs. He took delight in my envious gaze as he loaded a plate with lasagna before heading to the dining room. After laying down his food and pulling a chair out, his hand pressured me to kneel down beneath the tablecloth.
+
+It had become so routine that Master simply left a pink rubber cushion on the floor to help my knees.
+
+As I gazed up at him from beneath the table, he selected an option on the remote to 'unlock' my gag. I tilted my head back as he extricated the deceivingly modest ball-gag from my lips, followed by all 7-plus-inches of the pliable phallus that filled my mouth completely. Tears streamed from my eyes as the outrageously long dildo rubbed the sensitive top and rear tissues of my mouth as it came out. Strands of dripping saliva fell between the punishing gag and my lips as he pulled it away and laid it on an empty plate.
+
+I had to cough and clear my throat a few times, not that I could say anything. He had pulled out the gag without unlocking the harness, which left a padded ring still stretching my lips open. Then, before my coughs had even subsided, Master inserted his erect manhood between my warm and wet lips. His hand then pressed my head until his penis pressed against the back of my throat. My implanted system detected this through my nerves and the neural-interfacing chip behind my head; it responded by automatically triggering one of his pre-programmed modes.
+
+My fingers clawed uselessly at the air behind my upper back as my intruders intensified the movements. My dildo quaked as it withdrew before corkscrewing back inside to stimulate a steady fuck. My anal beads trembled three at a time while my cathether plug oscillated up and down in vibration strength. My hips began to squirm and rock involuntarily as I reacted to the mechanical rape. It made my clitoral hood piercing rub incessantly against my swollen pleasure bud.
+
+The stimulation was maddening in its intensity, yet despite this I knew from experience that it would never be enough to make me orgasm.
+
+Months of training under that devilish 'Orgasm Denial' mode had left my body unable to climax without his help. I knew that my itchy clitoris and my tingling g-spot were the keys to orgasmic release. But the first was outside all reach except for that inferno barbell piercing which wasn't enough, and the second needed Master's manhood to grind against it. The thinner dildos that penetrated my love tunnel just wasn't enough even if their thrusts could be angled correctly. I know this because I've tried, countless times, during the hours Master was absent.
+
+My attempts to cum always met the same results -- me crying into the bedsheets while my body burned with unquenched need.
+
+"I've activated your 'Cock Whore' program," I heard Master say with apparent satisfaction, knowing that I could no longer pull my lips from his manhood without the system punishing me with shocks in my pussy. "I expect you to keep me entertained while I enjoy this excellent lasagna that you've made for me..."
+
+His voice was almost taunting. He knew I couldn't eat solid foods due to how they replaced my teeth with soft rubber fakes. Not that I could chew even if they hadn't -- my cheeks were stuffed by two silicone pads that bonded to the insides of my mouth. These 'chin implants' would squeeze against the sides of his cock whenever my cheek muscles contracted, effectively turning my mouth into yet another vagina to give him the perfect blowjob.
+
+"...I know you're hungry too, so do your best to swallow as much as you can from me. If you do a good job, I've brought back some deserts that you can enjoy after you've had your meal."
+
+I closed my tearing eyes as I began to pump and suck his erection with my wet lips. My tongue swirled around his penis head as I hungrily thought of the cum dinner that I'd receive. It wasn't a taste that I enjoyed but Master was right that I was famished. Besides, the thought of him feeding me only semen added to the flame of arousal burning within me.
+
+"Gosh, you really have been trained well," Master soon grunted with appreciation, "and I love how the more desperate and denied you are, the better your oral skills become."
+
+Master didn't see the fresh tears that spilled from my eyes as he said that. Was my oral aptitude only adding to my torment? Master had stopped penetrating my crotch on weekdays months ago as he mostly used my mouth to fulfill his needs. It had the extra effect of feeding his sadism as I could only cry without even the hope of quenching my lust. My only condolence was when he held me tight afterwards as I wept into his chest.
+
+Now, with my arousal driven to the edge and my mind unable to think, I resigned myself to accept the hellish cycle of bringing my own denial through oral service. My focus was soon completely on Master's cock, as I sucked and squeezed and pleasure him as his dutiful slave.
+
+I didn't know how long I had to work before Master finally came. As his sperm filled my mouth I cried with fresh tears of both joy and misery. I still wanted, wished, dreamed of an orgasm of my own, but happiness also filled me as I was at last able to bring my Master irresistible pleasure. The burning need that infused my body did not depart, yet I felt a different kind of 'afterglow' as I heard a deep sigh of satisfaction emerge from him.
+
+With my lips still wrapped around the base of his cock and my chin touching his balls, I looked up with teary eyes and saw Master smiling down at me. I don't know when exactly things had begun to change, but Master's ecstasy had become my ray of happiness. Even though I was denied my sexual gratification and could only whimper as I wished for Master to touch my itchy clitoris or plow my tingling love tunnel, I felt joy radiate from my chest as I basked in the abundance of his thick release.
+
+My mouth did its best to swallow his cum. If only they could make the taste less awful...
+
+Master took my remote from the table. As he fiddled with it, the tormentors in my crotch fell in strength until they returned to their previous setting -- the 'Default Mode' that kept me just teased enough to stay wet and horny. After pulling out his softened penis and reinserting the phallic gag back into my throat, Master then pulled on my chains for me to stand up. With my leash still linking my nipples and clitoris to his belt, I had no choice but to follow him around as he cleaned up.
+
+As my sexual high slowly dropped back to a merely 'aroused' state, I noticed that my bladder was feeling full. I wanted to ask Master to let me go to the bathroom, but all I could manage behind my gag were incoherent moans. I could only continue to follow him, helpless, as Master put away the trays and dishes. There was no way for me to stop what happened next, and as the pressure in my bladder hit a limit and the valve over my catheter opened.
+
+The accursed buzzing catheter plugging my urethra gave me a sensation of constantly peeing, but even its tease could not cover up the release of pressure in my bladder. Hot pee flowed into a tube under my chastity shield, and -- with the help of a tiny pump -- through my sphincter and anal beads to inflate the waste bag deep inside my ass.
+
+My face burned in humiliation as I felt more tears slide down my cheeks. I could use the toilet when Master was away; the chastity shield would open a valve when it detected me sitting over water. But when Master was home and I was bound like this? Everything would go straight into my ass for 'storage', and it often remained that way for days at a time.
+
+After all, I was a Lovedoll. And 'dolls' were not supposed to burden their masters with the need for bathroom breaks.
+
+"Done," I heard Master proclaim as he turned on the dishwasher. "Now, Violet," he grinned as he looked back at me. "How about a movie tonight?"
+
+I returned a half-hearted nod. Movie nights could vary a lot, but most of the time for me they were a mixed blessing.
+
+Master wrapped an arm around my bare shoulders as he walked me to his back lounge. He grabbed the cake box from the kitchen table and a jar of yogurt from the refrigerator before we left. The floor-to-ceiling windows revealed that it was still pouring outside. The sound of falling water I had long grown accustomed to hearing, as I could see the waterfall adjacent to his home just beyond his rear porch.
+
+Master sat down in his favorite lounge chair and pulled me into his lap. My system detected our posture and automatically switched to a setting he had preprogrammed. My anal beads' vibrations went back to triple the 'Default Mode'. Meanwhile the phallus in my pussy began a continuous slow fuck instead of just the occassional. The shaft would withdraw from my depth in a painfully-slow pace, before screwing back into me in a randomized, but always fast thrust that left me gasping. It would then immediately restart then withdraw... and cycle again... and again.
+
+It wasn't quite as bad as when the system kept me on edge earlier, but it was enough to make me squirm in his lap while I found it impossible to focus on anything else -- even if it was a movie that I liked. A glance at my remote revealed "Custom Mode ON: Simmer" in the display. I wish Master didn't use terms like I was a goose being slow-cooked, though that's exactly what my body felt.
+
+A moan emerged from my lips as I pressed my supple body against his muscular chest. My eyes glistened as they spilled forth fresh, frustrated tears. Master however simply grinned back with sadistic joy in his eyes. He rubbed my hair lovingly before turning on the huge flatscreen television and selecting a historical drama. As the opening scenes began to roll he took the yogurt jar and twisted it open.
+
+I tilted my head back as Master extracted the obscenely long phallus from my throat again. I wished he would unlock my harness and pull out the ring gag along with it, but I knew that was unlikely to happen tonight. Master rarely felt the need to let me talk during a movie night (according to him, I had no taste in film). Instead, he brought spoonfuls of homemade Romanian yogurt to my lips and fed me through the ring gag.
+
+Swallowing wasn't easy with my mouth forced open, but I've had plenty of practice.
+
+Master held a strong dislike for what he called the 'industrial yogurt' that was sold in modern supermarkets. Instead, he made batches of yogurt himself, which I would have enjoyed even if the removal of my real teeth hadn't left them one of the few foods that I could consume. My other common options included smoothies, porridge, and chicken noodle soup. All of them had one thing in common: they didn't require me to chew.
+
+I say 'options', though the reality was that I rarely ever chose. Most of the time, Master simply decided what I would eat. I actually really enjoy this -- I've always had a fancy for dates that ordered for me.
+
+It took a while before he finished feeding me my meal. I immensely enjoyed it despite the constant distraction from my crotch. After all, how many girls could claim that her man fed her dinner, spoon-by-spoon, several times a week? I won't ask how girls enjoyed that while being bound and teased mercilessly.
+
+As Master put away the now empty jar he opened the small cake box. The tres leches cake he brought melted on my tongue as he fed me -- one spoonful at a time of sweet, perfect bliss. Master knew that I hated the changes to my mouth that prevented me from eating most solid foods, so he often brought me back desserts like this to compensate. Tres leches, custard creams, fruity sponge cakes, even fluffy chocolate cakes. It was one of the ways through which he showed me his kindness, and I really appreciated it.
+
+It did take much longer for the cake to dissolve since I couldn't close my lips. So as Master waited his fingers would play with my gleaming, polymer-covered breasts or roam my exposed, sensitive inner thighs. He then spoke with an amused tone as he watched me enjoy the soft desert; clearly, I was as much a distraction for him as my crotch intruders were for me.
+
+"You know, I could have made my cum taste like cake for you."
+
+I almost coughed out what was in my mouth. 'Don't ruin it for me!' I thought.
+
+"Imagine how hungry you'd be for cock if it tasted like your favorite food group," he grinned, "I'm not sure how exactly those modifications work, but that's what they claimed."
+
+I blinked up towards him with my wet, lustful eyes. I didn't have to ask for him to interpret my thoughts of 'why didn't you?'
+
+He then leaned down to whisper to me in a deep, husky voice:
+
+"Because I wanted it to stay a chore for you, Violet, not a leisure. I want you to take pleasure in pleasing me. Not because it's a pleasure to do it for yourself."
+
+I couldn't help but look down submissively in a silent, blushing response. Somehow, Master always knew exactly how to best make me feel owned.
+
+More importantly, I knew his plan was working. More and more I found myself craving being held on the edge, teased to the dreadful precipice of orgasmic bliss but denied the ecstacy that I so craved. I longed to see Master looking down upon me with that proud, sadistic smile, often as I worked him with my mouth to an orgasmic release.
+
+I'm sure my psychology friends back in college would call it Stockholm Syndrome. Their liberal voices would comment on how he was doing terrible things to me, and how I only bonded with him because of the rays of kindness he showed me in between.
+
+Maybe that was true. Or maybe that was exactly how submission and masochism worked, and that it was in my nature to desire this. I didn't know the answer. But what I do know was...
+
+Did it matter?
+
+I didn't choose to be a sex slave. But now that I was, I wanted to make the most of it. And if my happiness happened to involve making my Master content first?
+
+I was glad of it.

@@ -1,0 +1,10 @@
+{{- $authors := .GetTerms "authors" -}}
+{{- if gt (len $authors) 0 -}}
+  {{- range $index, $term := $authors -}}
+    {{- if $index }}, {{ end }}<a href="{{ $term.Permalink }}">{{ $term.LinkTitle }}</a>
+  {{- end -}}
+{{- else if .Params.author -}}
+  {{- .Params.author -}}
+{{- else if site.Params.author -}}
+  {{- site.Params.author -}}
+{{- end -}}

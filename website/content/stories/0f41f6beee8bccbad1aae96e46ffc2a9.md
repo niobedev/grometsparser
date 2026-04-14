@@ -1,0 +1,69 @@
+---
+original_url: https://www.packagedstories.net/storieslr/return_sender.html
+subcategory: Packaged/Encasement
+title: Return to Sender
+authors:
+- Jo
+tags:
+- M/f
+- cardboard
+- resin
+- stuck
+- encase
+- delivery
+- toys
+- revenge
+- nc
+- X
+date: 2011-03-21 00:00:00
+---
+
+That Vinny is a sick bastard.
+
+The gorilla creased the heavy, white cardboard, folded it in half. He picked up the unconscious girl and laid her on it, made a couple of marks, lifted her off and proceeded to undress her. Surprisingly, for a goon like Vinny, he has a very delicate touch, plays Mozart on a harpsichord. No lie.
+
+The room was in an apartment, an apartment that had been wired. People who shouldn't be there, doing things they shouldn't be doing, with people they shouldn't be with were regularly filmed. The resulting video ensured a certain amount of cooperation from those people.
+
+I sat before the screen and thought for the tenth time how young the girl looked, just a kid. But, then again, at my age anybody under thirty looked like a kid. She tended bar at Rita's, the margarita place on 3rd, so she had to be at least twenty-one. Didn't look it. But when she took Nick to bed she fucked him like a pro, that was the first clue. Things are not always as they appear. I knew about these things, deriving a good chuck of my income from the oldest profession.
+
+On the screen, Vinny popped the top off a large plastic tub. He opened a smaller container and dumped the contents into it. He fitted the paddle into the electric drill and proceeded to mix.
+
+The girl lay beside him like a doll cast aside, with ivory skin, dark hair cut short, she had pouty, red painted lips that looked too small for her face, tits too big and firm to be real, but then again they sure looked real. Her hips were a bit heavy, but they balanced her rack. A woman's body, definitely. I decided she was thirty, give or take. Maybe she'd had her face done.
+
+Nick had gone crazy for her. He had the pick of the stable, of course, but Danielle was "real."
+
+Like my girls weren't?
+
+Nick had a key to the apartment, but he didn't know about the cameras. There was still some question as to just how far he'd be invited into the organization. Considering Nick had damn near gotten me killed, I was inclined to steer him toward one of my legitimate businesses, maybe spring for grad school, keep him out of trouble for a while. Of course, I'd had to bribe his way through college, so there's that.
+
+They had "happened" to run into me at my club. I had bought Nick a membership for his twenty-first birthday, back about six months. Women were allowed in on Thursdays and she promptly invited herself. She put on quite a show.
+
+It was like being with a schizo. With Nick she was all girly and giggly and with me she was demure, sophisticated. It was like she was wearing two masks and it was clear where her attention lay. Nick didn't see it. I had given them a ride home. She sat in the middle with her thigh pressed firmly against mine. Gave me a nice boner, I'll say that. Got to use it, too.
+
+But my radar told me something was up. Twenty-something girls don't come on to sixty-something men. Well, not unless they're looking for a sugar daddy. Or drawn to power. But I got neither vibe from the girl. For several weeks I made it a point to avoid her. Something was up and I was determined to find out what it was. Turns out I didn't - not before she shot me.
+
+Vinny dipped a brush into the bucket. It came out coated in what looked like honey. It wasn't of course. Vinny smeared the resin on the cardboard in a roughly stick figure pattern. He worked at it patiently, building a nice thick bead. Then he picked up the girl and set her on the cardboard, arms and legs spread. He started at the girl's feet, meticulous, avoiding a mess; he brushed on a coat of resin. He worked slowly making sure both feet, and indeed the gaps between her toes, were covered.
+
+He painted each of the girl's legs. Then dipping another brushful, he spread her pussy lips and worked the brush in and out of her sex. He coated her belly and tits. Painted her fingers and arms, shoulders and neck.
+
+Vinny dipped a comb into the bucket and ran it through the girl’s hair. He pried her lips open and pushed the penis gag into her mouth. There was no strap, just a groove for her teeth. He applied the brush to her lips being careful not to block the air holes. In a couple of minutes her face was covered.
+
+He mixed a second batch and repeated the process. And did it once more.
+
+Vinny opened a small can of paint and wrote on the facing sheet of cardboard: "The weather is here, wish you were beautiful."
+
+I chuckled.
+
+Vinny stepped over to the "envelope" he'd made and painted an address. He opened a small can of red paint and wrote "Return to Sender" beneath it.
+
+When he finished he cleaned up. He settled back with a cigar, waited for the resin to cure. It took about an hour.
+
+He closed the "card" and slid it into its envelope. He sealed the flap with a couple of strips of double-sided tape, though not completely. Vinny didn’t believe in killing a woman. He was a bit old fashioned that way. Then as easily as the average guy could heft a sheet of plywood, the gorilla shouldered the greeting card and left the room.
+
+I checked my watch. Delivery should take about twelve hours. Plenty of time for the drug to wear off. But it would be several days before they'd be able to free the girl, about as long as it'd take for some of the old skin to flake off, take the epoxy with it.
+
+She had shown up at my office, Nick in tow. She sent him around the corner for cigarettes even though I had some. Not her brand, she'd said. And so we were alone. I expected a come-on. She asked for a drink. I fixed it and when I turned back, she shot me. Fired three shots, point blank range. Knocked me on my ass. God bless Kevlar. All I have to show for it are the three bruises and maybe a cracked rib. Better than dying.
+
+She ran out of the room and right into Nick. He'd come back because he'd forgotten her brand. He's not the brightest, but he has street smarts and he's tough. He had heard the shots, saw me on the floor, and clocked her one. Knocked her ass end over tea-kettle.
+
+It didn't take long to get the truth out of her. Kurt had put her up to it. He was a dead man. Not today or tomorrow or even next week. Let him enjoy his card, think what may have happened. Yeah Kurt was a dead man and in a few hours he'd know it.

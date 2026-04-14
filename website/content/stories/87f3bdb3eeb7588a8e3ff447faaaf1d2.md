@@ -1,0 +1,96 @@
+---
+original_url: https://www.boundstories.net/storiesad/click2.html
+subcategory: Bound Stories
+title: 'Click 2: Who''s Counting?'
+authors:
+- Secretive1
+tags:
+- F/m
+- D/s
+- chast
+- cd
+- maid
+- bond
+- oral
+- mast
+- cons
+- X
+---
+
+(story continues from [**Click**](click.html))
+
+**Part 2: Who's Counting?**
+
+"Richard? Is there anything I can do to help you? You seem a little distracted".
+
+One of the attractive young women who worked in my office was leaning over the cubicle wall with a concerned look on her face.
+
+She wore a tight white blouse with a short navy skirt. Even from where she stood I could smell her fragrance. 'There are plenty of things you could do,' I thought. 'But none of them are really suitable for office time'. I fantasised a lot about the girls who worked here. Rather than compete with each other in terms of sexy clothes or grooming, they seemed to naturally somehow fall into a similar look. The kind of look that you might see all around you, but never have for the taking. I winced at the thought.
+
+"And what I wouldn't give for some taking right now" I muttered.
+
+"Sorry?"
+
+"Oh nothing" I said. "I've just got some deadline to make, somehow". She walked away, and I leaned back to survey her attractive behind as it swayed briskly from side to side. I winced again.
+
+I reached down to the source of my discomfort. I was wearing a CB-6000 male chastity device, a fiendish piece of plastic fitted to me by my wife, Emma, on the advice of her best friend Joelene. I had been wearing it continuously now for some months, ever since the day when they had discovered me masturbating in self bondage at home. Although comfortable to wear, it denied me all pleasure and was a constant torment to me.
+
+"This will focus his mind truly on you" Jolene had said, and she was right. Several times a day, and once or twice at night, my penis would forget its confinement and swell to the boundaries of its cage. The pain was terrible, and my growing frustration was worse. Every time I begged Emma to take it off, she simply added one more series of boxes on a calendar she kept beside the bed.
+
+"What's that for?" I asked.
+
+"That's how long you must wait. Every time you ask, I simply add another week".
+
+Eventually the day finished and I hurried home. Despite my best efforts, the traffic was heavy and I knew I wouldn't make it home on time.
+
+"You're late" accused Emma as I closed the door behind me. "The house is a mess, and while I've been waiting for you, I've drunk more wine than I should have". A half empty bottle sat next to her where she was reclining on the couch. "You know what to do – go and get changed and then you can earn back my approval. Go on – scoot!"
+
+I hurried into the bedroom and took off my work clothes. I knew what clothes she meant me to wear, and my penis stiffened slightly at the thought. But still my cheeks reddened all the same. I wore a low cut black bra that hugged two large breast forms to my chest. I slid a pair of ruffled black panties up over my behind, and stepped into a short lace crinoline. When I pulled my French Maid's dress over my head and smoothed it down, the crinoline made the skirt stick out, and my ruffled panties were clearly on show.
+
+A maid's cap pinned into my hair, and a pair of fishnet stockings and patent leather heels completed my uniform. Meekly I trotted back to my wife – Mistress - I corrected myself. I kneeled down in front of her, and bowed my head.
+
+"Clean the floor – all of it – by hand, with your sponge and bucket, and then come to my bed. If you are lucky I will allow you to please me".
+
+"Yes Mistress" I replied.
+
+It took nearly an hour. Several times I suffered an erection at the thought of pleasuring her, and was forced to stop and think of soap bubbles. Eventually I got the floor all done. I tidied myself up and presented myself to her in the bedroom.
+
+Emma was wearing a see through babydoll negligee, and nothing else. She had laid several lengths of white rope on the bed. I shuddered at the thought of them. Emma must have seen my hesitation, because she snapped at me, "Quickly now, come over here and lay down".
+
+She took a length of the white rope and folded it in half. She held the folded end next to my ankle, and wrapped the loose ends firmly around it three or four times. She then threaded the loose ends through the folded loop and pulled them tight. She then tied these off under the bed around one of its legs. She repeated the process with my other ankle. Our bed was wide, and the rope ends were short, so I ended up with my legs pulled wide apart while I lay near the end.
+
+Emma then tied my wrists the same way. I was stuck in a tight spreadeagle, half way down the bed. I waited nervously for what was to come next. She crawled lazily over the bed, and positioned herself with her knees under my armpits, and her pussy several inches above my face.
+
+"Pleasure me" she said.
+
+I knew what to do – I had been forced to do this many times during the past six weeks. I arched my head up towards her, and felt for her with my tongue. Gently I licked her pussy all over, taking care to avoid directly touching her clit. I pushed my tongue as hard as it could go, deeper and deeper into her, each time withdrawing and licking further and further up towards her clitoral hood. I could smell and taste her arousal – I could almost feel the warmth coming from her, as her clit swelled and pushed free.
+
+My neck strained to keep my head up above the bed. Emma must have sensed this, or maybe she was simply looking for more contact with my tongue. She slid her knees down the bed, dropping her pussy directly onto my face.
+
+My penis stiffened and strained in its plastic restraint. My arms and legs stretched and pulled as I struggled to force my tongue harder and deeper into her. This must have been the effect she wanted, because Emma moaned aloud and started slowly grinding her pussy into my face. I redoubled my efforts with my tongue, flicking it further and further up and around her clit. Finally I went all out on her, sucking and licking with my tongue and lips.
+
+Emma cried aloud as she came on my face. Her pussy twitched with pleasure as she slumped over me. I could barely breathe, and I panicked  as I imagined that she might smother me with her passion.
+
+Eventually she rolled over, and in a few moments when she had regained her composure, she remarked, "Damn, you're getting good at that. You must be pleased".
+
+"Yes Mistress," I meekly replied.
+
+"Well, no good deed goes unpunished, as they say," said Emma. "Let's see". She looked over at her record book, as she pulled my panties down, and unlocked my plastic chastity harness. My penis swelled almost instantly, as she grasped its end with her free hand. "You've served your time well. Twelve times you've pleasured me, including tonight – that makes twelve strokes. Count them for me".
+
+"One – ah – two – ah – three," I gasped as she stroked my cock firmly up and down with her hand. My arms and legs were aching as the ropes pinned me to the bed. My feet squirmed in their stockings as my high heels dug into the sheets.
+
+"Four – ah – five – ah – six". My head rolled from side to side, and my back arched, pushing my fake breasts upwards. The smell of my Mistress' pussy juices still filled my mouth and nose and my eyes were nearly stuck shut, enhancing my feeling of helplessness.
+
+"Seven – ah – eight – ah – ah – oh God," I nearly squealed out loud as I came hard, spurting cum all over my black maid's dress. It pumped several more times, weakening as I slumped back in my bonds, utterly spent.
+
+"Well, that's a mistake you'll have to pay for later". Mistress frowned as she fed my softening penis back into its plastic sheath, and clicked the lock shut. "But for now you can start by cleaning yourself up. I'm off to have a bath". So saying, she loosened the rope that held my right hand still, and left the room.
+
+"God I must love this", I thought, as I slowly struggled to release myself. "I'm getting quicker every time. Only eight strokes tonight – but who's counting!"
+
+
+
+11.04.09
+
+story continues in [**Click 3: Turning the Tables**](click3.html)
+
+o0o

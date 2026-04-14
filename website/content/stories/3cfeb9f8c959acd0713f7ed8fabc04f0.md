@@ -1,0 +1,162 @@
+---
+original_url: https://grometsplaza.net/spandex/storiesak/invadedindarlex.html
+subcategory: Maid-bot Stories
+title: Invaded in Darlex
+authors:
+- kidnapped
+tags:
+- Solo-M
+- F/mf
+- darlex
+- sleepsack
+- hood
+- D/s
+- bond
+- drug
+- catsuit
+- straitjacket
+- chains
+- cuffs
+- denial
+- cons
+- X
+date: 2011-12-05 00:00:00
+---
+
+This story was an entry into the 2011 Winter Fetish Story Contest
+
+It´s a rather stressfull day at work, but nevertheless it´s Friday and stress at work does not bother me at all. My engineering team flies around me like bees which have there individual plan to fullfill their duties. Just my thoughts are already gone home, have already started the weekend.
+
+My beloved Mistress Aluka informed me yesterday that my home duties will be controlled by her this weekend. Her best friend is invited to our home for a long weekends stay and she will make sure that I won´t be able to interfere with her caring about her friend. Whatever this means…….she did not inform me any further, she just made sure that I will be extremely punctually when time comes that business stops operating for the day.
+
+After wishing my last team member a pleasant weekend, I leave work and head home. I reach the parking lot and guide my car into the endless queue of cars aiming out of the city boundaries.
+
+We live in the suburbs of Hamburg, just build our new house which is equipped with various items that make the hearts of BDSM maniacs like us jump, like a gynecological chair, an electrical hoist for 400kg weight, a special playroom which is only secluded from the living room by a lockable sliding door, cages, stocks, electrical window shutters which make it possible to darken single rooms pitch black, which is very nice for sensory deprivation games and many other things that are usefull for keeping me safe….
+
+What will this weekend have in hand for me? Will I be involved in Mistress games or will she just keep me out of the way to have time to deal with her friend? Questions that will soon be answered, answers which are totally out of my control.
+
+Of course I have my own key to our house but my mistress forbid me to use it on days which are clearly positioning her as “Mistress of Ceremonies”. She made clear yesterday evening that I would have to read her instructions which are to be found in the garage of our mansion of bondage madness. She did not state precicely were to find it, but I am rather sure that she will make sure, that I will be able to.
+
+After a 30 minute ride through the Hamburg traffic jams I reach the access road to our home and trigger the automatic garage door opener……the door slides open and I guide my car inside.
+
+As I thought right, Mistress properly put a note on the connecting door from the garage to the house, which I instantly read after I shut off the car and got off of it.
+
+It said:
+
+do not close garage door
+remark the darlex sleepsack which is attached to the ceiling with a harness, which will make it possible to stand in the sleepsack supported without possibility of falling over.
+remark rope attached to garagedoor opener slider
+the rope is pulled over a pulley and hangs down to the floor and is attached to the slider of the darlex sleepsacks zipper.
+Get naked……NOW!
+Put on the Darlex hood without eyeholes which I prepared for you.
+Take the garage opener in your left hand.
+Step into the DARLEX sleepsack.
+Put your right hand into the inner sleeve of the DARLEX Sleepsack.
+Put the garage door opener in your right hand, grab it through the DARLEX material, make sure you can press the button, but also be sure that you don´t drop the opener too early.
+Put your left hand inside the inner sleeves.
+Press the button on the door opener and let the opener fall to the floor.
+
+I instantly got to work, dropped all my clothes and stepped into the prepared sleepsack which was hanging in the back of the garage. I do not care that the garage door is still open me jumping around inside totally naked.
+It´s getting pitch black the second I put on the darlex hood, I have to examine my way into the sack by touching which does not put me into heavy problems because througout my selfbondage experience I am rather used to work without use of my eyes. The only little problem is to safely hold the trigger for the garage opener in my hand throughout the double layered DARLEX material.
+After having settled my left hand inside the sleeves of the bag as well, I wriggle around a little to conform the bag around my body properly and after I am sure that everything is OK, I switch the trigger and drop it to floor.
+
+The garage door comes to life instantly and two things happen simultanously:
+First the garge door opener does is normal purpose and (Shit Sherlock!) closes the garage door, secondly the rope on the pulley pulls up the zipper of the DARLEX sleepsack up and I am securely confined inside this wonderful piece of bondage equipment without any chance of freedom without my mistress help.
+
+That´s it.
+
+I just came home minutes ago, didn´t even look, if my mistress was already home, and now I stand here, helplessly trapped inside a tight fitting DARLEX sleepsack, totally blind and absolutely helpless.
+
+How long will I have to wait here. Is my goddess even at home? Or did she just trap me automatically and is sitting in a nice and cosy restaurant with her visiting friend right now and does not care about me at all? Am I safe?
+
+All these thoughts make me relaize that the Darlex hood with only nose openings is airtight except the nose holes. What if my nose blocks?
+
+Panic rises, I begin to struggle only to find no freedom from the bag. Strggling seems to be absolutely useless. My heart is racing, my breathing becomes faster and faster. I am in danger of hyperventilating……
+
+CALM DOWN !!!!, says my brain…….control yourself, this is your only chance at hand! Concentrate on breathing, ……..slow long breaths, even if I seem to need more……slow long breaths.
+
+Eventually I calm down.
+
+My Mistress is still not there, I still don´t know how long my predicament will last, but my metabolism gives me every chance to survive it can.
+
+Although it is absolutely dark for me, I can still hear sounds from outside the garage, passing people on the boardwalk in front of the access road.
+
+I could shout to attract someones attention, but what use should this be. I am a kinky pervert caught in Mistress' bondage, anyone who would find me would always think that this was totally done by myself and I am rather sure the fun for the weekend would be over.
+
+It is obvious that the only solution is waiting for my goddess to care about me.
+
+I lose total track on time, the darkness of my deprivation DARLEX hood does not give me any chance to track the time I am standing here, totally restrained, unable to leave, held by the harness straps to the ceiling. My only possibility of movement is a slow swaying movement like a tree in the wind.
+
+Hours must have passed, when suddenly I hear high heel steps on the hard concrete floor closing in. My goddess is here !
+
+“What do we have here?”, an unfamiliar female voice says. This is not my evercaring Mistress. It´s someone else, but WHO? Her visitor?
+
+“Let´s see what we can do with this slave.”
+
+The steps leave and come back behind me in accompany of a rolling sound, which stops directly behind me. A dolly is pressed in my backside and its shoved under my feet.
+Short time later many different straps start encasing my slave meet on the dolly, attaching me firmly to it. I feel the straps fall to the ground which held me for some hours exactly where I am right now.
+
+Now that I was free from the ceiling, the dolly is tilted back and I am on the road, carried somewhere without any effort. Fortunately my I can feel that the dolly is carried through the connecting door inside the house, I feel warmer air inside than in the garage. Good luck, she does not throw me away.
+
+Someone lifts my hood at the chin just to press a soft ball into my mouth which instantly expands and fills it to the brim, then it is snapped back only to make me feel confined even tighter, deprived of the priviledge of speech.
+
+“ I am your Mistress for this weekend, I am Mistress Patricia. Mistress Aluka may take part later, but I will not promise you anything, except the fact that I will keep you in restraints for the whole weekend. I will be absolutely merciless. Aluka gave me the total power to decide everything I need to make you my bondage slut, to keep you out of the way.”
+
+“And I will keep you out of the way, because I am here to visit your Mistress, to have fun with her, to take her and lead her to absolut heights. You are just a useless slut who would only want to take part, spoil the effect of my energy, therefore I will definetly make sure that you are just a work of art, deposited in the corner of the sleeping room, in direct view of the bed, but you won´t touch it at all.”
+
+“I will make love to Aluka later, but at that time you will have to be out of the way. So, let´s get this show on the road….”
+
+The mysterious Mistress Patricia steps behind me, I can sense her, I can smell her, she smells very good, I would like to see if she is as beautiful as she smells. She wipes over my cheeks tenderly.
+
+From behind she pulls a loop of rope over my head and pulls it snug around my neck. It seems to be a hangmans knot. She takes the rope and ties it tight to a wooden beam across the ceiling which makes sure that I can´t run away even if I want.
+
+I feel Mistress opening my DARLEX sleepsack, and I can even feel her slipping it down, therefore freeing my arms, giving me a chance to run away…..if there was not the tight knot around my neck.
+
+“Do not think that you´re ordeal is over now. It is definetly not. I promised you that I will keep you restrained all weekend and I won´t break my promise !”
+
+After slipping off the bag she instantly pulls my wrist on my back and closes some steel handcuffs around them. Now I stand in the middle of a room, still blinded and gagged under my DARLEX hood, but except from that rather naked. But I would soon find that out to change.
+
+I hear Mistress Patricia leaving the room only to return short time later. “Let´s get you back in clothes.”
+
+First she slips what seems to be a DARLEX Catsuit on me. She pulls it up my legs until my bottom is fully positioned inside, then she grips through the hole in the front, grabs my erection and pulls it with its balls outside the cock hole. Then she brings up the rest of the suit, shortly opens my handcuffs, puts my arms inside the catsuit´s sleeves and recloses the cuffs on my back again. Then she takes her time in finishing the DARLEX suit by putting a lock through the zipper and closing it up.
+
+The next item she produces from her bag of equipment is a DARLEX Straightjacket with a crotch hole as well. Faster than I can think she has me in the straightjacket, after opening the cuffs again my arms are catched in the long sleeves of the jacket, pulled through the loops on the outside of the jacket, the long straps pulled around my body and the band pulled vigorously tight.
+
+By now the struggling of my body has pulled the hangmans knot around my neck tighter and tighter. Finding fresh air gets more and more a problem.
+
+“You have got no chance to escape and you know it”, the evil woman says.
+
+The dolly is put back into place behind me, I feel the tight strips encircling me again. More than before, four around the legs, two above and two below the knees, and four straps around the upper torso. And all are pulling me tightly into the vertical supporting frame of the dolly. The loop around my neck gets tighter again because I am leaning back into the dolly frame.
+I can feel Mistress Patricia closing in from behind again, I can nearly smell not only her wonderful perfume but also her female scent, I imagine to even smell her damped wetness between her legs but I really don´t know if this is true, because she keeps me too well controlled. All of a sudden everything changes.
+
+Mistress Patricia pulls out a wooden cloth, soaks it with some fluid and clamps it down over my face…….
+
+……I breathe in, shortly realize the damped smell and fall into an ether soaked blackness. I´m out.
+
+When I awake I find myself in a leather upholstered bondage chair facing my Mistress bed. I can see. Obviously Mistress Patricia has changed my DARLEX mask from a “no eyes” one to one with eye openings but still without mouth opening. I still can´t speak, because a thick gag is strapped inside my mouth, making every word impossible.
+
+My legs are spread wide, multiple straps hold me in the chair at ankles, knees, thighs and upper torso. I do still wear my straightjacket, but the long strap is pulled around the chair to make my slavebody one with the chair even more.
+
+I can feel something tight around my balls, but I can´t see it, because my head is pulled back into the head support of the chair and I can´t move it at all.
+
+Mistress Patricia enters the room naked, with a chain in her hand. Behind her she pulls a girl with her. She is naked as well and her hands are chained behind her back.
+
+It is Mistress Aluka. My beloved wife and Mistress. My Goddess. She is led by a chain. She looks powerless, broken, devoted. Mistress Patricia pulls her through the room directly to the bed that will be the stage for the show that is going to start in a few moments. First Patricia starts by pulling a tight fitting DARLEX hood over Alukas head, making her blind and reminding her how valuable breaths are, because the small noseholes do not make breathing impossible but always remind you that something furtherly controls.
+
+Alukas wrist restraints are removed and then Mistress Patricia expertly starts tying my goddess to the bed in spreadeagled style. Alukas hot spot between her legs is clearly visible from my restrained point of view but I am definely absolutely out of power to take part, to touch anything. I just seem to be the helpless spectator. I would really love to fuck my her right now, my boner is absolutely erect and willing and as powerless as the rest of my slave meet because my restraints are so expertly tied down.
+
+Mistress Patricia walks inbetween us and smiles. “Now that I got u both safe…….I can tell you my intention in todays training. I am absolutely honest about my feelings. I really wish to have Aluka as my personal slave and you……” , she turns her beautiful face and stares at me, “…are absolutely in my way.”
+
+“So…. here´s my deal for you both that can and will not be questioned. I will give Aluka the choice if she wants to be my slave or your Mistress. If she decides to become my slave than I will take over both of your lives, take care about Aluka and keep you in my prison, because that´s what your life will consist of if Aluka decision is directed to me. You will both transfer all your money and power of attorney to me, you will work hard to finance my kinky life with you, but in your freetime Aluka will be my willing slave girl to care about all my sexual needs but you “, she turned to me in my bondage predicament chair…  “I will keep you restrained all your freeetime, keep you in closets, boxes, bondage chairs. You will always be kept blind as my DARLEX slave, I will only free you for going to work and you will always return in the evening to be stored away again, because you know that Aluka will be suffering if you are late.”
+
+“And on top of that: If you think that the decision whether Aluka will become my slave or not is really under her control…… forget it.”
+
+“In a few seconds I will start to take Aluka….. I will lick her with all my might and if I manage to make her come 5 times in the next 3 hours than your fate is sealed. Then Mistress Aluka will be turned into slaveslut Aluka and her slave will be turned from her slave to a helplessly stored prisoner forever.”
+
+“Everytime I make her come I will attach an extra 2 pound weight to your balls to make you feel the process of your incarceration.”
+
+I start wriggling in my bondage chair, but I still do not have any chance of getting free. Mistress Aluka tries to free herself as well but shortly after that Mistress Patricia starts to stimulate Aluka, she strongly starts moaning rather quick and not to much time after that I can be sure that my chances to be free in the future are close to zero.
+
+Aluka comes rather hard and I can feel a clip attached to my balls and heavy weight pulls them down and reminds me of my upcoming imprisonment.
+
+Now I just can wait for the inevitable.

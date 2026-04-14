@@ -1,0 +1,213 @@
+---
+original_url: https://www.boundstories.net/storiesek/janes_story08.html
+subcategory: Bound Stories
+title: 'Jane''s Story 8: The Wedding Day'
+authors:
+- Jo
+tags:
+- M/f
+- D/s
+- bond
+- rope
+- naked
+- outdoors
+- hogtie
+- bdsm
+- crop
+- pet
+- sex
+- oral
+- anal
+- cons
+- X
+---
+
+(story continues from [**Jane's Story 7: Transition**](janes_story07.html))_
+
+_**Part 8: The Wedding Day**_
+
+_Jane stepped out of the shower, picked up the dryer, and gazed into the mirror. A stranger gazed back. After all this time she couldn't get used to having short, dark hair. True, her natural color was dark, but she'd been blonde for just about ever and her hair had been long, long enough to almost reach her ass. Now it was dark, nearly black, and short. It hung gently on her shoulders, the tip barely reached her shoulder blades._
+
+_She looked at her breasts. They were bruised. Yellow-brown blotches spotted her white skin. She glanced down at her legs. Same thing. Several marks on her inner thighs. She couldn't see her ass, but she knew they were there, too._
+
+_Jane smiled. Geoffrey's marks. She liked wearing them. Jane wondered whether this was part of her "reprogramming". She had spent almost three weeks before the wedding with her friend, Marge, and Marge's owner, Cindy. Cindy had laid a mind fuck on her. Fed her a steady diet of hypnotic tapes. Jane didn't know it. All she heard was music. But she had figured it out, though, towards the end. She confronted Cindy and she said that she, Jane, had been reprogrammed to be Geoffrey's pet. She already was his pet, had the collar to prove it, but apparently now she was the perfect pet. The trigger was saying "I do" at the wedding. Jane made the vow, the programming kicked in, and ... nothing. She didn't notice any change. True, if he pointed at the floor, she'd kneel, but she did that before. Now, though, it seemed a bit more automatic. Maybe that was all it was, just a reinforcement of her natural, owner-oriented behavior. Although the warmth she felt at the sight of his marks was new._
+
+_Geoffrey is something of a camera nut and a nature nut and the first day of their honeymoon, their wedding day, actually, they found not one, but two nature preserves. They were on Pine Island, a small, mostly residential island near the resort islands of Sanibel and Captiva on the southwest coast of Florida. The place is mostly low, scrubby brush. Tall trees are limited to the water's edge. Being so low-lying, there's a lot of water, a lot of canals with their attendant trees that block off large chunks of sandy ground. They provide a lot of privacy, which is probably why Jane spent most of the day naked, wearing only her tennies._
+
+_He pulled in at the sign. The dirt parking lot was empty. When they'd stepped out of the car he had told her to strip. She was wearing a snug, denim minidress. The soft, but thick fabric cradled her breasts. Beneath it she was naked. Jane unzipped it and tossed it on the seat. Geoffrey grabbed his camera and they headed into the scrubby bushes._
+
+_Geoffrey alternated between taking pictures of interesting bits of flora and fauna and taking pictures of Jane, who was probably an interesting bit of fauna in her own right. This, too, struck Jane as odd. She didn't like being photographed, but now she delighted in it. Was this another part of her new programming? Or was it just part of her core desire to please Geoffrey, maybe amped up a bit? It didn't matter. She was married and, more importantly, she was owned and she was feeling very, very happy._
+
+_After two hours in the Florida sun Jane was glad when he pointed in the direction of the car, steered her a bit to the right. She didn't know where she was, couldn't see the car, couldn't see anything but chest-high bushes. They stepped into a small clearing and he stopped._
+
+_"Spread your legs, cup your tits."_
+
+_Jane opened her legs a bit, took her breasts in her hands, held them up. Her pink nipples hardened in anticipation. Anticipation of what? She didn't know._
+
+_Geoffrey pulled out his pocket knife and cut a thin branch from a nearby bush. He trimmed the leaves and cut it to about three feet. He turned and stepped over to Jane. The anticipation she felt was now tinged with a bit of fear. He brought the switch down across her breasts - hard. Jane winced._
+
+_"One. Thank you, Sir."_
+
+_"Two. Thank you, Sir."_
+
+_He stopped at twenty._
+
+_"Present."_
+
+_Jane had two basic positions: kneeling and presentation. She presented her self. She clasped her hands behind her neck, opened her legs a bit more. Geoffrey whipped her inner thighs, ten strokes on each, all within a couple of inches from her pussy. The area was so tender and her eyes teared up, but she was glad he hadn't aimed a bit further north, as it were. Jane counted the strokes and thanked him for every one._
+
+_When he finished he started to toss the stick away, changed his mind. Mentally, Jane grimaced._
+
+_"What are you?"_
+
+_"I'm your property if it please you, Sir. Please keep me and use me for your pleasure."_
+
+_"All right, pet."_
+
+_Jane lowered her hands and followed Geoffrey through the bushes._
+
+_They had found the second preserve about half way down the island. Again they had the place to themselves, again Geoffrey caned her - her ass this time. Glad to be back in the car, Jane found sitting distinctly uncomfortable. But at least the AC worked._
+
+_Other than the preserves, there wasn't much to see on the island. Truth be told, Jane thought, there wasn't much to see in the bushes either. Although Jane liked it well enough. Driving through Matlacha (MAT la shay is how he pronounced it) was like entering a time warp. It reminded her of pictures she had seen of Florida that her folks had taken in the '60s. It was old and funky and had an air of authenticity about it with its many small cabanas tucked in among the mangroves._
+
+_They headed up island, up to the northern tip, stopped at a marina, bought rope._
+
+_"No one questions ropes of a boat, right?" he'd said._
+
+_Although, technically, they're called lines. No matter what you call them, Jane knew she'd be wearing them ... and soon._
+
+_Sooner than Jane expected as it turned out._
+
+_Geoffrey chartered a small boat, a powerboat, not big, not small. Jane thought the guy said it was 22 feet, maybe 24. It had a small cabin with a V-berth, a galley of sorts, and a porta potty tucked in a corner._
+
+_After Geoffrey proved that he could, in fact, drive the thing, he signed the agreement, paid the guy, and they putted out of the marina._
+
+_They hadn't gone far when he powered down and tossed the lunch hook off the stern._
+
+_"Strip. Go below""_
+
+_Jane shrugged out of the denim dress and stepped down into the cabin. Geoffrey produced the bag of, ahem, lines and proceeded to tie her. He tied her wrists behind her back, tied her ankles, connected both putting Jane into a strict, but reasonably comfortable hog tie._
+
+_"Good stuff."_
+
+_Jane looked up at him._
+
+_"Spun Dacron. Really soft and holds a knot really, really well. And really expensive, but what the hell."_
+
+_What Jane was supposed to do with that bit of information eluded her, except for the 'holds knots' part. She wouldn't be going anywhere for a while._
+
+_He produced a roll of duct tape from someplace and made an A over Jane's eyes and mouth. The engine purred to life and a minute later she could feel the boat slicing through the water, skipping over the waves._
+
+_Jane would have laughed out loud if the tape allowed. Here it was her wedding night and she had been 'kidnapped' and was being spirited away to who knows where._
+
+_Who knows where turned out to be ... well, Jane wasn't sure where it was._
+
+_She felt the boat lurch as it throttled down, then there was gentle movement as it moved along at idle speed. That went on for a while. Then there were a couple of bumps and the engine cut off completely._
+
+_Geoffrey peeled the tape from her eyes, but not her mouth. He untied her ankles, but not her wrists. He took her arm and led her up into the cockpit. Jane looked around. It was getting dark, but she could see well enough. Wherever who-knows-where was, Jane hadn't a clue._
+
+_There was the dock and a house set back in the trees and then a whole lot of nothing. It was pure Geoffrey. Jane had decided he was an extroverted introvert. He had a dazzling personality that drew people to him and he genuinely like people, but, honestly, he'd rather be alone. Well, now alone with her. And that was nice._
+
+_He helped her step up onto the dock and led her to the house. It was small, almost tiny. There was a screened in porch on the water side. Inside was big open area that was the living room and dining room. In one back corner was the kitchen, in the other the bedroom, and in the middle the bathroom. Jane realized she needed to pee. She mmf'd and nodded toward the bathroom. Geoffrey nodded. Bound, Jane sat on the toilet. The door was open. The doors were always open. That was one of Geoffrey's rules: slaves don't have doors. Owners have privacy, the owned don't - ever. This bothered her at first, using the toilet like that, but Geoffrey made her pee while he watched, made her poop, too, truth be told. She had trouble at first and he had fed her diuretics and laxatives. Eventually, while it still bothered her, she could "go" on command. It was like anal sex - she wasn't 100% happy with it, but it was part of the way things were as his pet. Seemed oddly appropriate. She was a pet and pet owners watch their pets do their business all the time, though, thankfully, once she'd gotten over her initial discomfort, Geoffrey stopped watching her._
+
+_She managed to pull off some tp, wad it up, and sit on it. It wasn't perfect, but it was better than nothing._
+
+_Geoffrey brought in the bags. There wasn't much. It was Florida in the summer, so she had a couple of bikinis, a couple of skirts and halters, one nice dress, and a couple of pairs of shoes. Besides, she spent most of her time naked anyway._
+
+_Geoffrey took her arm, led her to the couch, and fucked her. Just like that. Just like the whipping earlier. No prelude, just wham, bam, thank you, ma'am._
+
+_He peeled the tape form her lips and kissed her. He untied her wrists. Jane padded into the bathroom, jizz dribbling down her thigh._
+
+_"Put on a suit, we're going fishing."_
+
+_Jane chose the sheer, tan bikini. From only a few feet away she looked naked and she knew Geoffrey liked it. She could see her pink nipples. And she could see the start of a bruise or three on her breasts._
+
+_They climbed into the boat, Geoffrey started it, backed away from the dock, and headed out._
+
+_It was almost fully dark now. The shore was a mass of black lumps against a nearly black sky. The moon was coming up, but other than that there wasn't a light to be seen._
+
+_"Here," Geoffrey said, pointing at the chart._
+
+_Jane realized they were on a small island._
+
+_"We'll head out this way, then down here for a bit, come through the pass, then back."_
+
+_Jane followed his finger as it traced their intended route, wondering why he was telling her this._
+
+_As if reading her mind - "You drive."_
+
+_Oh._
+
+_Jane drove._
+
+_Geoffrey put two rods in the outriggers. He stepped below, the light came on for a second, then he emerged with a wine bottle and two plastic wine glasses. He pulled the cork, filled the glasses. He touched his to hers._
+
+_"My pet."_
+
+_"My owner," Jane replied._
+
+_Jane lowered her eyes._
+
+_"Keep me?"_
+
+_Geoffrey kissed her hair._
+
+_He stood next to her as she sat at the wheel. He didn't say anything except for the occasional course correction. He'd glance at the chart once in a while. Jane wondered why he didn't use GPS, but as quickly as the thought entered her mind it was replaced with the thought that it was pure Geoffrey, the Luddite in him. It wasn't that he wasn't tech savvy, it was like the extrovert/introvert thing. He did one because he had to, but if he had his druthers ..._
+
+_They caught a fish, a dolphin. No, not a dolphin like Flipper. It was a mahi-mahi. A small, blunt-headed thing with a long tapered body._
+
+_"Okay, let's head home."_
+
+_He reeled in the other rod, took the wheel, spun it, pushed the throttles forward. The boat leapt out of the water, then settled onto a steady plane._
+
+_Jane was glad to be going back. She was just about wrung out. The wedding was at ten, the reception lasted until two-ish._
+
+_Jane felt a wave of warmth. She had gotten to wear white, got to walk down the aisle, got to have her special day. Of course, while legally she was Mrs. Geoffrey Arlington, she was still his nameless pet, but yet ..._
+
+_She took his hand and kissed it. He smiled down at her._
+
+_After the reception, they'd driven across to Ft. Myers, spent the afternoon in the woods, such as they were, and now all Jane wanted was to go to bed. Her stomach grumbled. Okay, maybe some food first._
+
+_How he found the cottage, Jane didn't know. But he did. He gutted the fish on the dock. In the house he fileted it. There was food in the fridge and some in the cupboards. Probably part of the rental deal. He grabbed a bit of this, sautee'd a bit of that, and dinner was served._
+
+_Full tummy, glass of wine in hand, Jane knelt at Geoffrey's feet._
+
+_When her head bobbed yet again he said, "All right, pet, let's hit the sack."_
+
+_Grateful, Jane nodded._
+
+_"Yes, Sir."_
+
+_He buckled the yellow cuffs on her wrists, the same cuffs he'd placed on her that first week, the same cuffs she had worn every day since, well, every day since she went back to him. He undid the small padlock on her neck chain, relocked it to another chain, one she knew was secured to the bed frame. It's how she slept every night - naked, cuffed, chained in Geoffrey's bed._
+
+_He fucked her._
+
+_It took a while._
+
+_It really drained her._
+
+_Her batteries were pretty low as it was, but the quickie earlier had taken the edge off, apparently, and he was determined to use her "properly"._
+
+_Jane sucked him. She liked sucking cock, felt she was good at it, felt she had a talent of sorts. Focusing on what she was doing helped drive away some of the cobwebs. And this was her wedding night after all, so she wanted to make it special._
+
+_After a long while, Geoffrey took her hair and gently pulled her away. He laid her on her back, crawled between her legs. Jane came, came again, came a third time. Geoffrey pulled out of her and rolled her over onto her belly. He pushed his way into Jane's ass. Jane reached her hand between her legs and fingered herself. It was what she did, what he'd ordered her to do whenever he used her that way. And Jane came again, and again, and, yes, again. Geoffrey had this thing for 3s. It took a while, but it happened. And after her sixth orgasm he settled back and Jane knelt between his legs, took his cock in her mouth._
+
+_When he finished and Jane had swallowed, sucked and swallowed some more, not willing to miss a single drop, he handed her a towel. Jane wiped his cock, wiped her lips, wiped between her legs. She lay back and settled in the crook of Geoffrey's arm._
+
+_Jane wagged the dryer, ran her fingers through her hair._
+
+_Good enough._
+
+_She still felt a bit groggy. It had been a long day. And an odd day, she thought. She was married, but not Geoffrey's wife, not in his eyes, not in hers either. The wedding had been a gift for her and a way to keep her folks off her back. She wasn't "living in sin" any more. Jane stroked the chain and the small, heart-shaped padlock._
+
+_She wasn't living as a wife, either._
+
+_Jane smiled. The strange, dark-haired girl in the mirror smiled back._
+
+_](https://forum.grometsplaza.net/index.php?topic=121.0)_
+
+_08.11.12_
+
+_story continues in [**Jane's Story 9: The Boat Ride**](janes_story09.html)
+
+o0o

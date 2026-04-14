@@ -1,0 +1,396 @@
+---
+original_url: https://www.boundstories.net/storiesad/bodystocking.html
+subcategory: Bound Stories
+title: The Bodystocking
+authors:
+- William
+tags:
+- F/m
+- sbm
+- toys
+- bond
+- cons
+- X
+date: 2017-05-06 00:00:00
+---
+
+Since having broken up with what was the most sensual woman I have ever
+had in my life, time had really rather become boring. I wasn't dating and
+really filled my life with work, work and more work. I had though perfected
+several methods of self bondage that I used to keep myself sane and practiced
+this whenever I could. I suppose living alone helped somewhat.
+
+The relationship I had had with Tania was indeed one to mourn. We had
+fallen so easily into mutual bondage and she even encouraged me with my
+penchant for a little cross dressing. Fridays were always our nights for
+the most fun. After getting home from work, we would both take showers
+and would put out the clothes we wanted the other to wear. Tania always
+looked so hot in her black stretch velvet mini dress, stockings and heels
+but she looked hot in anything!
+
+Still it was over now and I went about life with a little reserve, certainly
+not wanting to be hurt again but not wanting to give up the things we had
+discovered. We used to cruise lingerie shops and the occasional adult shop,
+looking for that "something" that would make us both pause and look at
+more than once. Though I didn't feel comfortable cruising the lingerie
+shops anymore, the adult shops were different.
+
+Apart from the bondage, I had developed a liking for anal toys. Starting
+off reasonably small, I had graduated through a number of butt plugs until
+I had a number of very large ones in my collection. My favorite is still
+a 5" jelly one that I can and have worn all day on a number of occasions.
+
+When cruising an adult store one day, I noticed a new line of lingerie
+had come in. One thing that caught my eye was a body stocking. I hadn't
+seen one quite like it before. It was a total cover one. One that came
+all the way up to a turtle neck and had long sleeves and feet as well.
+I had wondered how you would get into it, but then I reckoned the manufacturer
+would have figured that out before making it. Studying the packet told
+me it had an open crotch - yum!  Regardless of the fact I had no one
+to give it to, I just had to buy it.
+
+Now I'm not a big one on fate but I do know about putting things out
+to the Universe and over the next few weeks, I thought about Tania a lot,
+particularly wearing the bodystocking. I knew she had moved from the area
+but thought she was still reasonably local. That was confirmed when quite
+by accident, I ran into her in the street. She still looked fabulous -
+the body any woman would kill for but she had cut her long hair shorter.
+She looked even hotter than before. We did the small talk for a while then
+she mentioned she was back in town for a short while relieving at a local
+branch of the company she works for.
+
+Without another moment of hesitation, I invited her round one night.
+We had been talking about home theatre systems and as I had recently installed
+one, showing it off was perfect. She suggested she would bring the movie
+and the wine and I could do the nibbles.
+
+The next few days waiting for the appointed evening to arrive fairly
+crawled by. I was trying to think of a way to give her the body stocking
+with enough hints that I wanted to see it on her but couldn't apart from
+being right out blunt about it. I had to get prepared though!! While wrapping
+it for her, I couldn't help dreaming about what she would look like in
+it and how she would feel with it on.
+
+The evening arrived when she finally came round. Tania had no idea that
+I was going to give the body stocking to her but then she always expected
+the unexpected when we were together. Tania had phoned during the day to
+ask about what DVD to bring but I had left it totally to her. It mightn't
+be very interesting for me she reckoned but that was OK, wasn't it? 7.30
+be alright - yep, no problem.
+
+7.30 came and went and the anticipation of her arrival was getting the
+better of me. Finally at 7.50 I heard her car arrive and the door open
+then close. Footfalls on the path stopped at the door and Tania knocked
+lightly. I had left it locked so when she tried to open it, it was with
+some surprise that she had to wait for me to unlock it.
+
+Tania walked into the room carrying a gym bag and immediately put it
+down and gave me a huge hug and a light, fleeting peck on the lips. She
+hadn't done that in a long time and it brought flutters to my heart. I
+had the DVD all set up and the nibbles all ready so all that was required
+was to put the disk in and sit and watch. She reached into the bag and
+retrieved the disk and a bottle of wine that she asked me to open. It was
+a rather nice red that I had seen in numerous wine shops but still hadn't
+got round to buying so was interested to try. I poured two glasses, handed
+one to her then settled down to watch the movie.
+
+After about 10 minutes she casually asked whether it bored me. All period
+romance certainly wasn't my sort of movie but then I had watched through
+movies like it before. I made some of the right sort of noises about not
+really being my sort and that I might go and play on the computer or something.
+Again equally casually she suggested I might like to go and play on the
+bed like I used to.
+
+Now that was a good idea but it totally bowled me over. Here I was trying
+to orchestrate a trying on of the body stocking and here she was trying
+to orchestrate me tied up for her. It didn't take me long to reach my decision.
+I hadn't been totally immobilised for anyone for quite some time and thinking
+of being that way for her made my mouth water.
+
+OK I said, I'd go and make myself immobile but on one condition. After
+the movie when she came to release me, I wanted to return the favour and
+tie her up. Tania thought for a minute then asked would I like her to come
+and help me get tied up? Did that mean a yes to the condition? She just
+nodded. I suggested she give me about 10 minutes then come and check to
+see if I needed any help but in the mean time, no problem I had done it
+before!
+
+My mind raced to try and figure what to do. I thought I'd like to get
+very immobile because I couldn't do that by myself and still get free so
+I rapidly went through my mind thinking about what gear to use. Finally,
+I settled on a set of gear. I started by stripping then putting in a large
+butt plug. It took a bit to get it in but eventually it sat in very nicely
+and I knew I would be able to have it in for a long time.
+
+Next came the body harness. This is a leather harness that I had made
+myself out of wide belts I had cut from a hide I bought just for this purpose.
+It has straps over the shoulders that meet centrally between my shoulder
+blades and on my sternum. Here straps go round my chest and do up with
+a large buckle. From the centre connection, another strap goes straight
+down between my legs, splits round my scrotum, then between my arse checks
+to again buckle at the back. The waist belt goes round the lot holding
+it all together. I did the straps up good and tight, the crotch strap pulling
+the plug hard into me.
+
+I agonised next about a collar then finally decide yes. The collar is
+again a home made one but fits extremely well and is based on a pattern
+I saw on the web. It is leather and rather strict, being high and unbending.
+I buckled it on and checked to make sure it wasn't too tight.
+
+Getting all the other pieces out from under the bed, I arranged things
+so I could buckle and lock them in place then got onto the bed myself.
+The ankle spreaders are long piece of broom handle with leather cuffs attached
+to each end. There is an eye bolt in the centre to padlock a chain to.
+I had attached the spreader to the end of the bed with a short chain before
+hand. I buckled the cuffs in place then wriggled up the bed to get them
+pulling hard on my ankles.
+
+Next came the wrist cuffs. Again they are home made and attach to the
+bed corners by a modified luggage strap which has a one way locking mechanism
+on it. You can pull the slack up and the lock holds it there until a little
+lever is pressed on the lock. Of course the lever is out of reach of my
+hands. I placed the cuffs on my wrists and clipped them to the straps ready
+for the straps to be pulled tight. I was just about to put the blindfold
+on when Tania walked into the room.
+
+While I had been getting all prepared, she had been changing into different
+clothes. She now stood there wearing that black stretch velvet dress and
+black stockings and a very broad smile on your face. Just thought she'd
+help get me in the right frame of mind she said. I was in seventh heaven
+and nothing had really happened yet!
+
+She took the blind fold from me and put it aside then pushed me down
+to the bed, holding me down as she pulled the straps to my wrists up snug
+but not too tight. OK? she asked but of course it was great! She leant
+over now and kissed me firmly on the lips. Of course I couldn't move my
+head because of the collar but I wouldn't have anyway. She next glided
+up onto the bed as a cat would and sat astride me while looking down onto
+my spread-eagled self. I could feel her pantyhose rub against my rigid
+penis as she pushed her vaginal lips against me. I pushed back and she
+broke into another broad smile.
+
+With that she bounced off the bed saying she was off to watch the rest
+of the movie so you hoped I was comfortable and be a good boy and lift
+my head a little so she could place the blindfold on. She placed it carefully on then turned and went to leave. Suddenly I
+called her back and told her about the package I had wrapped and left for
+her on my computer keyboard in the spare room. Would she please open it
+and wear it when she came to release me.  Of course, she said.
+
+I settled down to the sensation of being totally in her power. There
+was no way at all that I could get free from my bondage and the feeling
+was delicious. Every so often I was aware that she came down to my room
+to make sure I was alright but then left without saying a word. Time seemed
+to stop and my mind was able to wander about thinking about feelings and
+sensations that I hadn't felt before. I thought too about how I was going
+to tie her when I had the chance very soon.
+
+What seemed like hours went by when I heard the sound on the TV abruptly
+stop. After that all I could sense was the odd small sound that I guessed
+was Tania changing into the body stocking. Eventually I heard her moving
+in my room. She still hadn't spoken to me but I could hear her moving about
+and definitely lighting candles because I could smell matches.
+
+At last she spoke. She loved the body stocking and the way it fitted
+her all over. Did I want to see it? Of course I did, so she took the blindfold
+off me. Even the glow from the candles was bright after being in total
+darkness for the last 1½ hours and I squinted until my eyes accustomed
+themselves. She looked fabulous of course. The stocking covered her magnificent
+figure beautifully, revealing all the right things yet hiding deliciously
+all the equally right things.
+
+She moved cat like again onto the bed and sat astride me as she had
+before. This time though there was no nylon between her lips and my hard
+member as she sat heavily and ground herself into me. She leant forward
+and started systematically kissing her way round my face and mouth before
+moving to kiss me heavily and deeply on the lips. Her tongue roamed round
+my lips and eventually thrust into my mouth to plunder my tongue. We were
+both getting very aroused not only from the kissing but the contact that
+other parts of our bodies were having.
+
+Tania pulled back and sat up after a time and just looked down at me
+all the while stroking my chest with her hands and very gently and slightly
+moving her hips back and forth, rubbing herself on my penis. Her nipples
+stood proudly up, making little dents in the stocking.
+
+"Do you want me", she asked. Now what a crazy question when given the
+situation and definitely the fact that I had an erection like a steel pole
+and she was very wet! I nodded as I couldn't trust my voice to work at
+that moment. The smile on her lips and the sparkling of her eyes was acknowledgement
+that she knew just what was in my mind.
+
+She very slowly raised herself up until she was hovering just above
+my penis then reaching down she gripped my member and held it against her
+pussy lips, rubbing the head of my penis slowly and gently round the entrance
+to her love tunnel. As she did this, the look in her eyes was all I needed
+to see. It was pure pleasure, desire and lust.
+
+She closed her eyes then and still without haste, she now started to
+lower herself onto my turgid cock. She was so wet, my pole slid straight
+in without any hesitate at all until Tania now sat hard onto my pubic bone,
+grinding herself as far down as she could to try and get more of me in
+her. Sitting very still, she opened her eyes and looked down at me and
+started to laugh.
+
+What was so funny I wanted to know. She said she had really wanted to
+do that for a long time but had felt there was no way she could approach
+me to ask as she knew how I had hurt so much when we split up. And yet
+here and now, it all seemed  so very much in the past and this moment
+was exquisite. I took that opportunity to remind her that we had a deal.
+Her surprise was very real - what deal? I reminded her that after she released
+me, I got the chance to tie her up. She looked serious for a moment then
+laughed that light tinkle of a laugh again then reminded me that I was
+still very tied up and would stay that way until she decided.
+
+That comment certainly had a way of focussing my mind. Indeed I was
+very much in her power but having the next day as a work day meant she
+did have to let me go to go to work - didn't it?
+
+A thoughtful look crossed Tania's face then without any warning she
+raised herself off me and leapt from the bed. I had no idea what she was
+up to. She dived under the bed into the bags of various bondage gear we
+had accumulated. I didn't know what she was looking for but very quickly
+found out.
+
+She appeared again carrying a few bits and pieces in her hands. The
+most notable one was a large strap on gag. I had bought it quite recently
+and Tania hadn't seen it before but having found it amongst the bits and
+pieces, she was determined to use it. She pushed the gag into my mouth,
+filling it very effectively then went about buckling it in place with the
+three straps. Can't have you interrupting my fun she reckoned.
+
+She then reapplied the blindfold. This was a different lady who had
+been impaled on my penis a few short minutes ago. This was a lady who knew
+what she wanted and was going to get it regardless of what I wanted or
+thought. I was now totally in the dark so to speak - both literally and
+figuratively. I now had to work by pure senses of sound, smell and touch.
+
+I felt her moving about, still astride me but resting more on my stomach.
+Suddenly I felt her mouth on my right nipple. For a male I have very sensitive
+nipples and she had remembered this well. She sucked and nibbled at them,
+making them hard and proud just like hers had been then as suddenly she
+stopped. The next sensation was very quickly coming as she now placed nipple
+clips on me extended nipples. Even with the gag in, I couldn't help a sharp
+intake of breath at the sensation it gave. Were it not for the level of
+sexual arousal, I am sure I would have screamed at that point.
+
+I felt her move again, this time sliding further down my legs until
+she was perched lightly about my knee level. I felt her take my ball sack
+in her hands then felt her wrap a cord about the base of the sack and my
+penis. She had never done this before. She wound the cord round and round
+the base then looped it through between my balls, separating them and holding
+them tight. I felt her tie the cord off then she moved back up the bed
+again, repositioning herself on my thighs.
+
+She told me then that she was going to pleasure herself using me as
+a living dildo. She intended to use me as long as she could but she knew
+I performed well without coming for a long time, the cord round my balls
+would ensure that time was extended somewhat longer. All I had to do was
+lie back and enjoy because I was totally in her control and would be for
+quite some time yet.
+
+Well I thought, this is what I had dreamed about and fantasised about
+for many a year so I may as well do what she suggested and just lie back
+and enjoy.
+
+She got off me at that point and I could hear her moving about the room
+and going into the bathroom next door. I had no idea what she was up to
+but then I couldn't really do much about it anyway. When Tania returned,
+I heard a little tear then felt her putting a condom on me. This was very
+strange as I knew she didn't like condoms and besides, we were both extremely
+careful lovers so there was no need. Still that was what she was doing.
+
+Once the condom had been put on me well enough, I felt her climb up
+onto the bed again and sit astride me like before. I was still very hard
+particularly as the cord round my sack and penis made sure of that. She
+again gripped my penis and pointed it at her pussy and like before, lowered
+herself slowly onto my pole. A small sigh escaped her lips as she impaled
+herself fully onto me.
+
+Not contented to just sit there this time, she started gently raising
+and lowering herself on my penis, building inexorably to the inevitable
+orgasm. I really had no idea what she was up to. Normally she wanted to
+draw things out and judging by what she had said earlier, I thought that's
+what she was going to do but here she was, plunging headlong into a quick
+and mindblowing orgasm as soon as she could. Within seemingly seconds,
+I heard that gutteral cry that was so hers when she had reached that point
+of ecstasy.
+
+She collapsed slowly onto my chest, crushing the nipple clips into me
+and creating an exquisite pain in my nipples. She held her mouth by me
+ear and told me she just had to get that out of the way so she could now
+have a decent play and work on some really good orgasms. I was doing well
+she said but we had a long way to go!
+
+I felt her reach over to the corner of the bed and then felt the strap
+holding my right wrist in place, get pulled tightly. She then repeated
+the procedure with the left wrist. She couldn't have me thinking this was
+too easy she reckoned.
+
+She now raised herself off me and I could feel her shimmy up the bed
+a bit. Not far, perhaps only about 3 - 4 inches but she was very particular
+about how far she shifted. Next there was some movement that I couldn't describe. It felt like she was rubbing something onto herself but what,
+I was not immediately able to figure. I next felt her take my still hard
+member in her hand and start lowering herself closer to me. I knew she
+had moved up the bed and couldn't quite figure what she was up to until
+it dawned on me. She was going to fuck herself in the arse using my penis.
+We had never done that before but had talked about it and I gathered she
+really liked the idea of it. Now it was going to become a reality.
+
+I could feel my penis being pushed against what felt like an unyielding
+opening. Tania moaned slightly, telling me this was another thing she had
+dreamed about but hadn't managed but now was the time. She moved ever slow
+slightly and slowly, rocking back and forth as though trying to coax my
+penis into her. She lowered herself a little more and I felt her open slightly
+and my penis slip a little into her. She gasped and pulled away then gathering
+courage, tried again.
+
+It felt so big, she told me, but she had tried butt plugs before and
+didn't I have one in now. I nodded and she laughed, perhaps she would have
+to use a strapon on me one day she pondered. I nodded vigorously at that
+- another fantasy about to come true?
+
+Tania lowered herself onto me again and carefully aligned herself with
+my penis. This time when she applied pressure, she didn't pull away and
+I slid gently into her. I was just inside her and no more but she held
+herself there, waiting for the initial shock to wear off. She then lowered
+herself a little more, wriggling slightly to make me slide into her better
+until almost without realising it, I was right inside her. She just sat
+there, no sound, no movement, nothing, then she let out a most satisfied
+sigh - she had done it.
+
+Having got used to the feel of me inside her, Tania now started to slowly
+pump herself up and down. Her anal opening was very tight to start with
+but as she relaxed and started enjoying the feelings she was getting, her
+muscles let go and she started fucking me for all she was worth. She pounded
+up and down on my shaft and I could feel my own pressure rising, what with
+my predicament and the fact that I was up one of the cutest arses I had
+ever seen, it was almost too much. Suddenly though, with no warning at
+all, Tania came in the most earth shattering orgasm I had ever heard. She
+wailed and screamed, cried and laughed and eventually collapsed again onto
+my chest, pulling herself off my penis as she did so.
+
+She lay there on my chest for a few minutes, coming slowly back down
+to earth then sat back up. Reaching forward she took the blindfold off
+me, causing me to squint and blink again even in the candle light. She
+reckoned that was one of the most fantastic orgasms she had ever had and
+really wanted to do that again and not too far away either. She also said
+it was getting late and we both had to work tomorrow. We did have a deal
+though so would I be open to her coming back round tomorrow night and as
+it was Friday, we could use as much time as we liked. I readily agreed
+by nodding my head enthusiastically.
+
+Tania laughed suddenly and reached behind me to take off the gag that
+had so successfully silenced me during the last hour or so. We talked a
+little about what had happened. About the feelings we had felt, about the
+pain/pleasure she had inflicted on my nipples, about the anal play and
+most importantly about tomorrow night. Would she be round straight after
+work? Definitely! I could call the shots? Definitely! Should I go and buy
+a strap on? Up to me!
+
+Tomorrow at work was going to go very slowly - we both knew that, but
+for now, Tania untied me, changed and disappeared into the night. Tomorrow
+was another day.
+
+
+
+29.09.03 | updated -
