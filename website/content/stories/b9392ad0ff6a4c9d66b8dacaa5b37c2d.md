@@ -1,5 +1,6 @@
 ---
-original_url: https://grometsplaza.net/
+original_url: https://www.boundstories.net/storiesek/imasochist.html
+subcategory: Bound Stories
 title: 'I, Masochist - Chapter 1: Performance Art'
 authors:
 - The Technician

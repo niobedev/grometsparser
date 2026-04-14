@@ -1,5 +1,6 @@
 ---
-original_url: https://grometsplaza.net/
+original_url: https://www.boundstories.net/storiesek/forbiddentablets.html
+subcategory: Bound Stories
 title: The Forbidden Tablets
 authors:
 - The Technician

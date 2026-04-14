@@ -59,7 +59,9 @@ def parse_story_html(html, url, site_mapping=None):
             tags = [tag.strip() for tag in codes.split(";") if tag.strip()]
             metadata["tags"] = tags
 
-    content_div = soup.find("div", class_="storym")
+    content_div = soup.find("div", id="main", class_="storym")
+    if not content_div:
+        content_div = soup.find("div", class_="storym")
     if content_div:
         import copy
 

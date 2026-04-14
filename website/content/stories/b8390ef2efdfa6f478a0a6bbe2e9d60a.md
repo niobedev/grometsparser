@@ -1,5 +1,6 @@
 ---
-original_url: https://grometsplaza.net/
+original_url: https://www.maidbots.net/storieslr/maidbotinme4.html
+subcategory: Pony & Pet Girl
 title: The Maid-bot in Me
 authors:
 - Gromet

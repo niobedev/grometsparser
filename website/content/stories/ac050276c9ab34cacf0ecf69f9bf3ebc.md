@@ -1,5 +1,6 @@
 ---
-original_url: https://grometsplaza.net/
+original_url: https://www.boundstories.net/storieslr/metamorphosis.html
+subcategory: Bound Stories
 title: Metamorphosis
 authors:
 - The Technician
