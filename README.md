@@ -15,7 +15,7 @@ This repository contains the tools to scrape, clean, and re-host stories from [G
 - 📱 **Responsive Design:** Based on the clean and minimalist `PaperMod` Hugo theme.
 - 🎨 **Smart Markdown Correction:** Automatic detection and fixing of common formatting issues (broken italics, malformed author's notes).
 - 🏷️ **Rich Metadata:** Stories include author tags, story codes, and links to the original source.
-- 🚀 **Automated Daily Sync:** Docker-based daily sync with automatic git commits and website rebuilding.
+- 🚀 **Automated Two-Tier Sync:** Docker-based hourly quick sync and weekly full sync with automatic git commits and website rebuilding.
 
 ## 📂 Project Structure
 
@@ -25,8 +25,8 @@ This repository contains the tools to scrape, clean, and re-host stories from [G
 - `download_stories.py` - The main scraping engine with 404 tracking.
 - `convert_to_markdown.py` - Bridge script to move raw data into the web directory.
 - `detect_broken_markdown.py` - Quality control utility for fixing formatting.
-- `sync.py` - Core sync script with git commit functionality.
-- `daily_sync.sh` - Complete daily sync workflow for Docker automation.
+- `sync.py` - Core full sync script with git commit functionality.
+- `quick_sync.py` - Quick sync script that checks only the "Updates" section for hourly runs.
 - `sync_and_build.sh` - Simple sync and build without git operations.
 - `Makefile` - The automation hub for all common tasks.
 
@@ -50,23 +50,39 @@ make venv
 
 ## ⚙️ Usage Workflow
 
-The project is designed to be managed via `make` commands:
+The project is designed to be managed via `make` commands and supports a two-tier sync approach:
 
-### Step 1: Extract URLs
+### Two-Tier Sync Strategy
+
+**Quick Sync (Hourly)**
+- **Purpose**: Fast, lightweight check for recently posted stories
+- **Source**: Checks only the "Updates" section on https://grometsplaza.net/main.html
+- **Performance**: Very fast, only checks 20-30 recent stories
+- **Usage**: `make quick-sync` or `make docker-run-quick`
+
+**Full Sync (Weekly)**
+- **Purpose**: Complete scan of all story sites
+- **Source**: Scans all 19 story sites using search pagination
+- **Performance**: Heavy process, downloads and processes thousands of stories
+- **Usage**: `make sync` or `make docker-run`
+
+### Manual Workflow
+
+#### Step 1: Extract URLs
 Fetch all story URLs from the author index pages:
 ```bash
 # Run this manually (not in Makefile)
 python3 extract_urls.py
 ```
 
-### Step 2: Downloading
+#### Step 2: Downloading
 Fetch new stories that aren't already in your `stories/` folder:
 ```bash
 make download
 ```
 *Failed URLs (404s) are tracked in `failed_urls.json` to avoid redundant requests.*
 
-### Step 3: Quality Control
+#### Step 3: Quality Control
 Before publishing, check if any stories have rendering issues:
 ```bash
 # Detect broken formatting
@@ -76,7 +92,7 @@ python3 detect_broken_markdown.py
 python3 detect_broken_markdown.py --delete
 ```
 
-### Step 4: Conversion & Build
+#### Step 4: Conversion & Build
 Prepare the data for Hugo and generate the static site:
 ```bash
 # Sync stories to the website directory
@@ -120,18 +136,33 @@ The image will be available at:
 
 The project directory is mounted into the container at `/app`. Your GitHub token should be provided as an environment variable to allow git commits:
 
-#### Daily Sync (Recommended)
+#### Quick Sync (Hourly - Recommended)
 
-This will check for new stories, download them, convert to markdown, commit changes to git, and rebuild the website:
+This will check only the "Updates" section for recent stories, download any new ones, convert to markdown, and commit changes to git:
 
 ```bash
-# Run daily sync with git commits
+# Run quick sync with git commits
 docker run --rm \
   -e GITHUB_TOKEN=your_github_token \
   -v $(pwd):/app \
   ghcr.io/niobedev/grometsparser:latest \
-  /bin/bash daily_sync.sh
+  python3 quick_sync.py
 ```
+
+#### Full Sync (Weekly)
+
+This will perform a complete scan of all story sites, download all new stories, convert to markdown, and commit changes to git:
+
+```bash
+# Run full sync with git commits
+docker run --rm \
+  -e GITHUB_TOKEN=your_github_token \
+  -v $(pwd):/app \
+  ghcr.io/niobedev/grometsparser:latest \
+  python3 sync.py
+```
+
+
 
 #### Simple Sync and Build (No Git)
 
@@ -153,33 +184,49 @@ For daily sync with git operations:
 
 The container mounts the project at `/app`, so output files (built site, committed stories) are written directly to the mounted host directory.
 
-### Setting Up Daily Cron Job
+### Setting Up Automated Cron Jobs
 
-To run the sync daily at 2 AM, add this to your crontab:
+For the two-tier sync approach, set up both hourly quick sync and weekly full sync:
 
 ```bash
 # Edit crontab
 crontab -e
 
-# Add entry to run Docker sync daily at 2 AM
-0 2 * * * cd /path/to/your/repository && docker run --rm \
+# Quick sync - runs every hour at minute 5
+5 * * * * cd /path/to/your/repository && docker run --rm \
   -e GITHUB_TOKEN=your_github_token \
   -v $(pwd):/app \
   ghcr.io/niobedev/grometsparser:latest \
-  /bin/bash daily_sync.sh >> /var/log/gromets-sync.log 2>&1
+  python3 quick_sync.py >> /var/log/gromets-quick-sync.log 2>&1
+
+# Full sync - runs every Sunday at 2 AM
+0 2 * * 0 cd /path/to/your/repository && docker run --rm \
+  -e GITHUB_TOKEN=your_github_token \
+  -v $(pwd):/app \
+  ghcr.io/niobedev/grometsparser:latest \
+  python3 sync.py >> /var/log/gromets-full-sync.log 2>&1
 ```
 
 ### Manual Docker Run Examples
 
 ```bash
-# Run daily sync with git commits (recommended)
+# Quick sync with git commits (hourly recommended)
 docker run --rm \
   -e GITHUB_TOKEN=your_github_token \
   -v $(pwd):/app \
   ghcr.io/niobedev/grometsparser:latest \
-  /bin/bash daily_sync.sh
+  python3 quick_sync.py
 
-# Run simple sync and build without git
+# Full sync with git commits (weekly recommended)
+docker run --rm \
+  -e GITHUB_TOKEN=your_github_token \
+  -v $(pwd):/app \
+  ghcr.io/niobedev/grometsparser:latest \
+  python3 sync.py
+
+
+
+# Simple sync and build without git
 docker run --rm \
   -v $(pwd):/app \
   ghcr.io/niobedev/grometsparser:latest \
@@ -191,28 +238,30 @@ docker run --rm \
   -v $(pwd):/app \
   ghcr.io/niobedev/grometsparser:latest \
   python3 download_stories.py --retry-failed
-
-# Run only sync without build
-docker run --rm \
-  -v $(pwd):/app \
-  ghcr.io/niobedev/grometsparser:latest \
-  python3 sync.py
 ```
 
-### Daily Sync Script Details
+### Sync Script Details
 
-The `daily_sync.sh` script provides a complete automated workflow:
+#### Quick Sync Script (`quick_sync.py`)
+The `quick_sync.py` script provides an efficient hourly workflow:
 
-1. **HTTPS Setup**: Configures HTTPS authentication for git operations using GitHub token
-2. **Git Configuration**: Sets up git user for commits
-3. **Repository Sync**: Pulls latest changes if needed
-4. **Story Sync**: Runs `sync.py` to check for new stories
-5. **URL Extraction**: Updates story URL list
-6. **Download**: Downloads any new stories
-7. **Conversion**: Converts stories to markdown
-8. **Git Commit**: Commits new stories with descriptive message
-9. **Website Build**: Builds the Hugo site
-10. **Logging**: Provides detailed logging throughout the process
+1. **Fetch Main Page**: Retrieves https://grometsplaza.net/main.html
+2. **Parse Updates Section**: Extracts recent stories from the "Updates" section
+3. **Check Existing Stories**: Uses MD5 hashing to identify new stories
+4. **Download New Stories**: Only downloads stories not already in database
+5. **Convert to Markdown**: Converts new stories to website format
+6. **Git Commit**: Commits new stories with descriptive message
+7. **Cleanup**: Restores original story_urls.json
+
+#### Full Sync Script (`sync.py`)
+The `sync.py` script provides a complete weekly workflow:
+
+1. **URL Extraction**: Updates story URL list from all 19 story sites
+2. **Download All Stories**: Downloads all new stories across all sites
+3. **Convert to Markdown**: Converts stories to website format
+4. **Git Commit**: Commits new stories with descriptive message
+
+
 
 ### GitHub Actions
 

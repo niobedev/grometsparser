@@ -54,7 +54,8 @@ def main():
         existing_html.add(os.path.basename(f))
 
     print("\n[1/4] Extracting story URLs...")
-    rc, stdout, stderr = run_command("python3 extract_urls.py")
+    venv_python = sys.executable
+    rc, stdout, stderr = run_command(f"{venv_python} extract_urls.py")
     if rc != 0:
         print(f"Failed to extract URLs: {stderr}")
         sys.exit(1)
@@ -81,7 +82,8 @@ def main():
         print(f"\n[2/4] {len(new_files)} new stories to process")
 
     print("\n[3/4] Downloading new stories...")
-    rc, stdout, stderr = run_command("python3 download_stories.py")
+    venv_python = sys.executable
+    rc, stdout, stderr = run_command(f"{venv_python} download_stories.py")
     if rc != 0:
         print(f"Failed to download stories: {stderr}")
 
@@ -101,7 +103,8 @@ def main():
         print("Checking for updates to existing stories...")
 
     print("\n[4/4] Converting stories to markdown...")
-    rc, stdout, stderr = run_command("python3 convert_to_markdown.py")
+    venv_python = sys.executable
+    rc, stdout, stderr = run_command(f"{venv_python} convert_to_markdown.py")
     if rc != 0:
         print(f"Failed to convert stories: {stderr}")
 

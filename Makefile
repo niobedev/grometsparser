@@ -1,4 +1,4 @@
-.PHONY: download convert build clean all detect fix-broken serve docker-build docker-run docker-run-build
+.PHONY: download convert build clean all detect fix-broken serve docker-build docker-run docker-run-build sync quick-sync
 
 PYTHON = python3
 PIP = pip3
@@ -66,7 +66,15 @@ docker-run:
 		-e GITHUB_TOKEN=$(GITHUB_TOKEN) \
 		-v $(PWD):/app \
 		$(DOCKER_IMAGE) \
-		python3 sync.py
+		/bin/bash -c "git fetch && git pull && python3 sync.py"
+
+docker-run-quick:
+	@echo "Running quick sync in Docker..."
+	docker run --rm \
+		-e GITHUB_TOKEN=$(GITHUB_TOKEN) \
+		-v $(PWD):/app \
+		$(DOCKER_IMAGE) \
+		/bin/bash -c "git fetch && git pull && python3 quick_sync.py"
 
 docker-run-build:
 	@echo "Running sync and build in Docker..."
@@ -75,3 +83,13 @@ docker-run-build:
 		-v $(PWD):/app \
 		$(DOCKER_IMAGE) \
 		/bin/bash sync_and_build.sh
+
+
+
+sync: venv
+	@echo "Running sync.py without Docker..."
+	GITHUB_TOKEN=$(GITHUB_TOKEN) $(VENV_PYTHON) sync.py
+
+quick-sync: venv
+	@echo "Running quick_sync.py without Docker..."
+	GITHUB_TOKEN=$(GITHUB_TOKEN) $(VENV_PYTHON) quick_sync.py
