@@ -44,18 +44,15 @@ jobs:
           
           echo "Quick sync completed with exit code: $exit_code"
           
-          # Determine status based on exit code and set as step output
+          # Determine status based on exit code and write to output file
           if [ "$exit_code" = "1" ]; then
             echo "new_stories=true" >> $GITHUB_OUTPUT
-            echo "::set-output name=new_stories::true"
             echo "✓ New stories found"
           elif [ "$exit_code" = "0" ]; then
             echo "new_stories=false" >> $GITHUB_OUTPUT
-            echo "::set-output name=new_stories::false"
             echo "✓ No new stories"
           else
             echo "new_stories=error" >> $GITHUB_OUTPUT
-            echo "::set-output name=new_stories::error"
             echo "✗ Sync error: unexpected exit code: $exit_code"
             exit 1
           fi
@@ -63,8 +60,10 @@ jobs:
       - name: Check if new stories were found
         id: check_stories
         run: |
-          new_stories="${{ steps.sync.outputs.new_stories }}"
+          # Read from GITHUB_OUTPUT file using cat
+          new_stories=$(cat $GITHUB_OUTPUT | grep "^new_stories=" | cut -d= -f2)
           echo "New stories status: $new_stories"
+          
           if [ "$new_stories" = "false" ]; then
             echo "No new stories to process - skipping build"
             echo "skip_build=true" >> $GITHUB_OUTPUT
@@ -72,7 +71,7 @@ jobs:
             echo "New stories found - proceeding with build"
             echo "skip_build=false" >> $GITHUB_OUTPUT
           else
-            echo "Error determining story status - exiting"
+            echo "Error determining story status (got: $new_stories) - exiting"
             exit 1
           fi
 
