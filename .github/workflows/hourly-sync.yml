@@ -61,25 +61,34 @@ jobs:
         id: check_stories
         run: |
           new_stories=$(cat $GITHUB_OUTPUT | grep "new_stories=" | cut -d= -f2)
-          if [ "$new_stories" != "true" ]; then
-            echo "No new stories to process"
-            exit 0
+          echo "New stories status: $new_stories"
+          if [ "$new_stories" = "false" ]; then
+            echo "No new stories to process - skipping build"
+            echo "skip_build=true" >> $GITHUB_OUTPUT
+          elif [ "$new_stories" = "true" ]; then
+            echo "New stories found - proceeding with build"
+            echo "skip_build=false" >> $GITHUB_OUTPUT
+          else
+            echo "Error determining story status - exiting"
+            exit 1
           fi
-          echo "Processing new stories..."
 
       - name: Get new story titles for release
         id: stories_info
+        if: steps.check_stories.outputs.skip_build != 'true'
         run: |
           # Get the list of new stories from the last commit
           STORY_TITLES=$(git log -1 --pretty=format:"%B" | head -20)
           echo "story_titles=$STORY_TITLES" >> $GITHUB_OUTPUT
 
       - name: Build website
+        if: steps.check_stories.outputs.skip_build != 'true'
         run: |
           cd website
           hugo --minify
 
       - name: Verify build output
+        if: steps.check_stories.outputs.skip_build != 'true'
         run: |
           HTML_COUNT=$(find website/public -name "*.html" | wc -l)
           echo "Built $HTML_COUNT HTML files"
@@ -89,11 +98,13 @@ jobs:
           fi
 
       - name: Create archive
+        if: steps.check_stories.outputs.skip_build != 'true'
         run: |
           cd website
           tar -czf website-archive.tar.gz public/
 
       - name: Commit and push changes
+        if: steps.check_stories.outputs.skip_build != 'true'
         run: |
           git status --short
           git add -A
@@ -102,7 +113,7 @@ jobs:
 
       - name: Create release
         uses: softprops/action-gh-release@v1
-        if: success()
+        if: steps.check_stories.outputs.skip_build != 'true' && success()
         with:
           tag_name: sync-$(date +'%Y%m%d-%H%M%S')
           name: Website Update $(date +'%Y-%m-%d %H:%M')
@@ -125,3 +136,8 @@ jobs:
           prerelease: false
         env:
           GITHUB_TOKEN: ${{ secrets.GITHUB_TOKEN }}
+
+      - name: No new stories - success
+        if: steps.check_stories.outputs.skip_build == 'true'
+        run: |
+          echo "✓ No new stories found - workflow completed successfully (skipped)"
