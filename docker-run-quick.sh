@@ -22,8 +22,8 @@ EXIT_CODE=$?
 if [ $EXIT_CODE -eq 1 ]; then
     echo 'New stories added.'
     # cd /app/website
-    # hugo
-    # echo 'Website rebuilt successfully'
+    hugo --minify
+    echo 'Website rebuilt successfully'
 elif [ $EXIT_CODE -eq 0 ]; then
     echo 'No new stories, skipping website rebuild'
 else

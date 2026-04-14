@@ -452,6 +452,124 @@ If you prefer to build locally instead of using automated releases, you can stil
 make build
 ```
 
+## 🚨 Deployment Issues
+
+### CI Build Error: Template Parse Failed (RESOLVED)
+
+**Problem (Now Fixed):**
+GitHub Actions workflow was showing:
+```
+Error: error building site: "/home/runner/work/grometsparser/.../taxonomy.html:44:1": parse of template failed: template: _default/taxonomy.html:44: unexpected EOF
+Error: Process completed with exit code 1
+```
+
+**Root Cause:**
+The Hugo theme (`PaperMod`) is a Git submodule. GitHub Actions doesn't clone submodules by default, so the custom layouts in `website/layouts/_default/` couldn't find theme partials like `anchored_headings.html`, causing template parsing to fail.
+
+**Solution Implemented:**
+Added `submodules: recursive` to GitHub Actions workflow checkout step:
+
+```yaml
+- name: Checkout code
+  uses: actions/checkout@v4
+  with:
+    submodules: recursive  # This clones theme submodule
+```
+
+This ensures:
+1. Hugo theme submodule is properly cloned
+2. All theme partials are available to custom layouts
+3. Template parsing succeeds without errors
+4. Website builds correctly with all HTML files
+
+### CI Build Warnings About Missing Layouts (RESOLVED)
+
+**Problem (Now Fixed):**
+GitHub Actions workflow was showing warnings about missing layout files:
+```
+WARN found no layout file for "html" for kind "taxonomy"
+WARN found no layout file for "html" for kind "term"
+WARN found no layout file for "html" for kind "section"
+WARN found no layout file for "json" for kind "home"
+```
+
+**Why it happened:**
+Hugo expects specific layout files for different page kinds (home, taxonomy, term, section). The PaperMod theme uses a flexible `list.html` approach that handles all these cases, but Hugo still searches for the specific files by default.
+
+**Solution Implemented:**
+Created custom layouts in `website/layouts/_default/` to provide Hugo with the files it expects:
+
+1. **`index.html`** - Home page layout (based on theme's list.html)
+2. **`taxonomy.html`** - Taxonomy listing pages (tags, authors)
+3. **`term.html`** - Individual term pages (single tag/author)
+4. **`section.html`** - Section pages (stories listing)
+5. **`index.json`** - Search index generation for Fuse.js search
+
+All these layouts follow the same structure and partials as the theme, ensuring consistent behavior.
+
+**Result:**
+CI workflow now completes without layout warnings and generates a proper release archive with all HTML files in the correct Hugo structure.
+
+### No HTML files in extracted archive
+
+**Problem:** GitHub Actions workflow shows warnings like:
+```
+WARN found no layout file for "html" for kind "home"
+WARN found no layout file for "html" for kind "taxonomy"
+WARN found no layout file for "html" for kind "term"
+WARN found no layout file for "html" for kind "section"
+```
+
+**Why it happens:**
+Hugo looks for specific layout files for different page kinds (home.html, taxonomy.html, etc.). The PaperMod theme uses a flexible `list.html` approach, but Hugo still searches for the specific files.
+
+**Solution:**
+The project includes a custom `website/layouts/_default/index.html` that's based on the theme's `list.html`. This provides Hugo with the layout file it expects and eliminates the warnings while maintaining theme functionality.
+
+**Verification:**
+The build completes successfully and generates proper HTML files in the expected Hugo structure (stories/YYYY/MM/DD/slug/index.html).
+
+### No HTML files in extracted archive
+
+If you extract the archive and find no `index.html` files or the website doesn't work:
+
+```bash
+# Check what's actually in the archive
+tar -tzf website-archive.tar.gz | head -20
+
+# Count HTML files in extraction
+find /tmp/website-new/public -name "*.html" | wc -l
+
+# List all files
+find /tmp/website-new/public -type f | head -20
+```
+
+**Expected structure:**
+```
+public/
+├── stories/2026/04/12/story-name/index.html  ← This is the story HTML
+├── authors/author-name/index.html
+├── tags/tag-name/index.html
+├── index.html (homepage)
+└── ...
+```
+
+If you see **no `index.html` files**, the Hugo build failed. Check:
+1. GitHub Actions workflow logs for build errors
+2. The "Verify build output" step should show HTML file count > 0
+3. Look for Hugo configuration errors in the workflow run
+
+### Deployment Script Verification
+
+The `deploy.sh` script includes automatic verification:
+- Checks archive integrity before extraction
+- Verifies `public/` directory exists in archive
+- Counts HTML files before and after deployment
+- Shows detailed directory structure
+- Fails with clear error messages if something is wrong
+
+Check the script output for any "Error:" messages.
+
 ## ⚖️ License & Copyright
 
 **Stories are copyrighted by their respective authors.** Duplication of any kind is prohibited without express consent from the original creators. This software is provided for archival and educational purposes.
