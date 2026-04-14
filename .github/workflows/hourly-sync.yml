@@ -56,16 +56,12 @@ jobs:
             echo "✗ Sync error: unexpected exit code: $exit_code"
             exit 1
           fi
-        env:
-          new_stories: ${{ steps.sync.outputs.new_stories || 'pending' }}
 
       - name: Check if new stories were found
         id: check_stories
         run: |
-          # Read from env variable set in previous step
-          new_stories="${{ env.new_stories }}"
+          new_stories="${{ steps.sync.outputs.new_stories }}"
           echo "New stories status: $new_stories"
-          
           if [ "$new_stories" = "false" ]; then
             echo "No new stories to process - skipping build"
             echo "skip_build=true" >> $GITHUB_OUTPUT
@@ -73,7 +69,7 @@ jobs:
             echo "New stories found - proceeding with build"
             echo "skip_build=false" >> $GITHUB_OUTPUT
           else
-            echo "Error determining story status (got: $new_stories) - exiting"
+            echo "Error determining story status - exiting"
             exit 1
           fi
 
