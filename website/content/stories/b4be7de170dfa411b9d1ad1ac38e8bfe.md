@@ -1,6 +1,5 @@
 ---
-original_url: https://grometsplaza.net/eroticstories/storieslr/the_metamorphosis.html
-subcategory: Spandex
+original_url: https://grometsplaza.net/
 title: The Metamorphosis
 authors:
 - Khail_Lin

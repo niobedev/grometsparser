@@ -1,6 +1,5 @@
 ---
-original_url: https://www.mummified.net/storiesek/geneticmanipulatedcocoon.html
-subcategory: Mummified
+original_url: https://grometsplaza.net/
 title: Genetic Manipulated Cocoon
 authors:
 - Steff

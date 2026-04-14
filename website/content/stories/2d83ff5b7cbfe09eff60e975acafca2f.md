@@ -1,6 +1,5 @@
 ---
-original_url: https://www.selfbound.net/storiessz/web_they_weaved.html
-subcategory: Selfbound Stories
+original_url: https://grometsplaza.net/
 title: The Web They Weaved
 authors:
 - TS Fesseln

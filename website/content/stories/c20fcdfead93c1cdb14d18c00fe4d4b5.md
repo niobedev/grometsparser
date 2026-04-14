@@ -1,6 +1,5 @@
 ---
-original_url: https://www.latexstories.net/storiesek/finishing_school7.html
-subcategory: Latex Stories
+original_url: https://grometsplaza.net/
 title: Finishing School 7
 authors:
 - Rbbral

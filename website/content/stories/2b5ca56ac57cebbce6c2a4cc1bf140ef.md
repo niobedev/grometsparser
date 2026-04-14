@@ -1,6 +1,5 @@
 ---
-original_url: https://grometsplaza.net/world/tg/storieslr/myfavouriteoutfit.html
-subcategory: Transformation
+original_url: https://grometsplaza.net/
 title: My Favourite Outfit
 authors:
 - Tightlatextights

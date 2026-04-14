@@ -1,6 +1,5 @@
 ---
-original_url: https://www.latexstories.net/storiesek/ella.html
-subcategory: Latex Stories
+original_url: https://grometsplaza.net/
 title: Ella's Vacation Chapter 1
 authors:
 - William

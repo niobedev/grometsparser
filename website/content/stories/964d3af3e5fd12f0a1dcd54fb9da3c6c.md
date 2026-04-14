@@ -1,6 +1,5 @@
 ---
-original_url: https://www.dollstories.net/storiessz/the_statue.html
-subcategory: Doll Stories
+original_url: https://grometsplaza.net/
 title: The Statue
 authors:
 - Restricted

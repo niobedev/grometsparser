@@ -1,6 +1,5 @@
 ---
-original_url: https://www.mummified.net/storieslr/perfect_donor2.html
-subcategory: Mummified
+original_url: https://grometsplaza.net/
 title: The Perfect Donor 2
 authors:
 - Jim Williams

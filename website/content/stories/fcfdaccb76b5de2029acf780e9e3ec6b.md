@@ -1,6 +1,5 @@
 ---
-original_url: https://www.mummified.net/storieslr/machine4.html
-subcategory: Mummified
+original_url: https://grometsplaza.net/
 title: The Machine Part 4
 authors:
 - Darkraptor1

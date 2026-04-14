@@ -1,6 +1,5 @@
 ---
-original_url: https://www.trashcanstories.net/storiessz/savingprivatesryann.html
-subcategory: Erotic Stories
+original_url: https://grometsplaza.net/
 title: Saving Privates Ryann
 authors:
 - Trash girl / 64Fordman

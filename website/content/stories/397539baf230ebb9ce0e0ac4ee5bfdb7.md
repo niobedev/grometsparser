@@ -1,6 +1,5 @@
 ---
-original_url: https://grometsplaza.net/special/halloween22/the_party_bus.html
-subcategory: TG/CD Stories
+original_url: https://grometsplaza.net/
 title: The Party Bus
 authors:
 - The Technician

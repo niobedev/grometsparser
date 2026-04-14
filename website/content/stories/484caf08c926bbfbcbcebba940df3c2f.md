@@ -1,6 +1,5 @@
 ---
-original_url: https://grometsplaza.net/eroticstories/storiesek/einherjar.html
-subcategory: Spandex
+original_url: https://grometsplaza.net/
 title: Einherjar
 authors:
 - Darqside

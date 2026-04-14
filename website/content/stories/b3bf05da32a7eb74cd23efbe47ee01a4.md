@@ -1,6 +1,5 @@
 ---
-original_url: https://www.latexstories.net/storiessz/selfdestruction.html
-subcategory: Latex Stories
+original_url: https://grometsplaza.net/
 title: Self Destruction
 authors:
 - M88

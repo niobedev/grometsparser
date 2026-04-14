@@ -1,6 +1,5 @@
 ---
-original_url: https://www.dollstories.net/storiesad/clinic.html
-subcategory: Doll Stories
+original_url: https://grometsplaza.net/
 title: The Clinic
 authors:
 - Asudem

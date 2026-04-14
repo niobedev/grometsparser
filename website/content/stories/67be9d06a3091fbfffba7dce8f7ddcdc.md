@@ -1,6 +1,5 @@
 ---
-original_url: https://www.dollstories.net/storiesad/dollinthecorner.html
-subcategory: Doll Stories
+original_url: https://grometsplaza.net/
 title: The Doll in the Corner
 authors:
 - SFT

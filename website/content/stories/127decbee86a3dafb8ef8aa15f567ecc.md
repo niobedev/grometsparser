@@ -1,6 +1,5 @@
 ---
-original_url: https://www.packagedstories.net/storieslr/the_mass.html
-subcategory: Packaged/Encasement
+original_url: https://grometsplaza.net/
 title: The Mass
 authors:
 - Diplodicus

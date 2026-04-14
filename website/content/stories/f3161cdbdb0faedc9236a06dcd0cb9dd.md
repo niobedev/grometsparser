@@ -1,6 +1,5 @@
 ---
-original_url: https://www.boundstories.net/storieslr/oberon.html
-subcategory: Bound Stories
+original_url: https://grometsplaza.net/
 title: 'Oberon  1: Fresh From Auction'
 authors:
 - Ron McIngle

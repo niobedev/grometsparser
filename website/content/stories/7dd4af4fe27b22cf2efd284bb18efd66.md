@@ -1,6 +1,5 @@
 ---
-original_url: https://www.boundstories.net/storiessz/tradition.html
-subcategory: Bound Stories
+original_url: https://grometsplaza.net/
 title: Tradition
 authors:
 - T S Fesseln

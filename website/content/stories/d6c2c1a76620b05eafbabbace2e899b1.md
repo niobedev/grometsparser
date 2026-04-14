@@ -1,6 +1,5 @@
 ---
-original_url: https://www.mummified.net/storieslr/limbo.html
-subcategory: Mummified
+original_url: https://grometsplaza.net/
 title: Limbo
 authors:
 - Darkraptor1

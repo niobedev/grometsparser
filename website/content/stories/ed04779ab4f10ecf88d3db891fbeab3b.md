@@ -1,6 +1,5 @@
 ---
-original_url: https://www.boundstories.net/storiessz/waywelove.html
-subcategory: Bound Stories
+original_url: https://grometsplaza.net/
 title: The Way We Love
 authors:
 - Tryskell

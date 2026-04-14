@@ -1,6 +1,5 @@
 ---
-original_url: https://www.boundstories.net/storiessz/twelvedaysaslave.html
-subcategory: Bound Stories
+original_url: https://grometsplaza.net/
 title: Twelve Days a Slave
 authors:
 - The Technician

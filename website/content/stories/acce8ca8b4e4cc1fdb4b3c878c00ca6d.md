@@ -1,6 +1,5 @@
 ---
-original_url: https://www.packagedstories.net/storiessz/sarcophagus.html
-subcategory: Packaged/Encasement
+original_url: https://grometsplaza.net/
 title: Sarcophagus
 authors:
 - earlofnexus

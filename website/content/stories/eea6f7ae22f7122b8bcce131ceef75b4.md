@@ -1,6 +1,5 @@
 ---
-original_url: https://www.maidbots.net/storiessz/willinglytransformedintofembot.html
-subcategory: Pony & Pet Girl
+original_url: https://grometsplaza.net/
 title: Willingly Transformed into Fembot
 authors:
 - Robowomanbot

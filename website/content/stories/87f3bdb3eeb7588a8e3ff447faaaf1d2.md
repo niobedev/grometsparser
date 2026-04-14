@@ -1,6 +1,5 @@
 ---
-original_url: https://www.boundstories.net/storiesad/click2.html
-subcategory: Bound Stories
+original_url: https://grometsplaza.net/
 title: 'Click 2: Who''s Counting?'
 authors:
 - Secretive1

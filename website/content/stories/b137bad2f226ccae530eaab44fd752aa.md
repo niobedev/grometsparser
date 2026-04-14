@@ -1,6 +1,5 @@
 ---
-original_url: https://www.boundstories.net/storiesek/field_survey01.html
-subcategory: Bound Stories
+original_url: https://grometsplaza.net/
 title: Field Survey
 authors:
 - Zack

@@ -1,6 +1,5 @@
 ---
-original_url: https://www.latexstories.net/storiessz/who_dares.html
-subcategory: Latex Stories
+original_url: https://grometsplaza.net/
 title: Who Dares...?
 authors:
 - Greyrose

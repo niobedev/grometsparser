@@ -1,6 +1,5 @@
 ---
-original_url: https://www.selfbound.net/storiesek/howtogoclubbing.html
-subcategory: Selfbound Stories
+original_url: https://grometsplaza.net/
 title: How to go Clubbing when you’re Single
 authors:
 - WannabeasuB

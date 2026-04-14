@@ -1,6 +1,5 @@
 ---
-original_url: https://www.boundstories.net/storieslr/love_bondage.html
-subcategory: Bound Stories
+original_url: https://grometsplaza.net/
 title: Love Bondage
 authors:
 - Sensual Robert

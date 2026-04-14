@@ -1,6 +1,5 @@
 ---
-original_url: https://www.boundstories.net/storiesad/aninterestingturnofevents.html
-subcategory: Bound Stories
+original_url: https://grometsplaza.net/
 title: An Interesting Turn of Events
 authors:
 - Canlock

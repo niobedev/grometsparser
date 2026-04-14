@@ -1,6 +1,5 @@
 ---
-original_url: https://grometsplaza.net/eroticstories/storiesek/erotic_disclosure6.html
-subcategory: Spandex
+original_url: https://grometsplaza.net/
 title: 'Erotic Disclosure Chapter 6: Decadence'
 authors:
 - Wiccedwoman

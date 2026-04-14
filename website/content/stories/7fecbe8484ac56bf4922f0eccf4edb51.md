@@ -1,6 +1,5 @@
 ---
-original_url: https://www.latexstories.net/storieslr/mistresslatexasrubberdoll4.html
-subcategory: Latex Stories
+original_url: https://grometsplaza.net/
 title: 'Mistress Latexa''s Rubberdoll 4: The Wedding Album'
 authors:
 - tessa

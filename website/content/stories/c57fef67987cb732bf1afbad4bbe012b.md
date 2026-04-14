@@ -1,6 +1,5 @@
 ---
-original_url: https://www.boundstories.net/storiesad/alice_amanda2.html
-subcategory: Bound Stories
+original_url: https://grometsplaza.net/
 title: 'Alice & Amanda 2: Living Together'
 authors:
 - Alina Aamu

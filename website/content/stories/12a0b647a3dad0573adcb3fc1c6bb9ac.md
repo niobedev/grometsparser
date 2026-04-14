@@ -1,6 +1,5 @@
 ---
-original_url: https://www.dollstories.net/storieslr/nightofthelivingdolls10.html
-subcategory: Doll Stories
+original_url: https://grometsplaza.net/
 title: 'Night of the Living Dolls Chapter 10: A fight unlike any other'
 authors:
 - Northern Chill

@@ -1,6 +1,5 @@
 ---
-original_url: https://www.selfbound.net/storieslr/ridinglessons.html
-subcategory: Selfbound Stories
+original_url: https://grometsplaza.net/
 title: Riding Lessons
 authors:
 - Tar Feathers

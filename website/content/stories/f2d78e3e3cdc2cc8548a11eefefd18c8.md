@@ -1,6 +1,5 @@
 ---
-original_url: https://www.dollstories.net/storieslr/pulling_strings.html
-subcategory: Doll Stories
+original_url: https://grometsplaza.net/
 title: Pulling Strings
 authors:
 - Jay Petto

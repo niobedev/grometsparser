@@ -1,6 +1,5 @@
 ---
-original_url: https://grometsplaza.net/special/halloween21/another_year_another_slave.html
-subcategory: TG/CD Stories
+original_url: https://grometsplaza.net/
 title: Another Year, Another Slave to Own
 authors:
 - Kristin Kailey

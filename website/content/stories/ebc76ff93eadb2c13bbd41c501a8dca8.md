@@ -1,6 +1,5 @@
 ---
-original_url: https://www.boundstories.net/storiesad/bob_carol_alice.html
-subcategory: Bound Stories
+original_url: https://grometsplaza.net/
 title: Bob and Carol and Alice
 authors:
 - Racer & Rick

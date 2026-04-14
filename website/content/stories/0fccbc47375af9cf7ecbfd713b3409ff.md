@@ -1,6 +1,5 @@
 ---
-original_url: https://www.boundstories.net/storieslr/no_good_deed_goes_unpunished.html
-subcategory: Bound Stories
+original_url: https://grometsplaza.net/
 title: No Good Deed Goes Unpunished
 authors:
 - Steff

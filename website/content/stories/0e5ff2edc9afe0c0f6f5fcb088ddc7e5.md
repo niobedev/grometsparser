@@ -1,6 +1,5 @@
 ---
-original_url: https://www.boundstories.net/storiessz/womens_circle.html
-subcategory: Bound Stories
+original_url: https://grometsplaza.net/
 title: Women's Circle
 authors:
 - Mike Silklover

@@ -1,6 +1,5 @@
 ---
-original_url: https://grometsplaza.net/world/ponygirl/storiessz/siege.html
-subcategory: Giantess & Shrinking
+original_url: https://grometsplaza.net/
 title: The Seige
 authors:
 - Jackie Rabbit

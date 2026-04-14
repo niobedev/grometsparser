@@ -1,6 +1,5 @@
 ---
-original_url: https://grometsplaza.net/world/buried/storiessz/who_knew.html
-subcategory: Trashcan Stories
+original_url: https://grometsplaza.net/
 title: Who Knew?
 authors:
 - Darkraptor

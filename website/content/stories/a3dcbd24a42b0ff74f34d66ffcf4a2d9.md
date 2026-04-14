@@ -1,6 +1,5 @@
 ---
-original_url: https://grometsplaza.net/eroticstories/storiesad/belated_birthday_gift.html
-subcategory: Spandex
+original_url: https://grometsplaza.net/
 title: Belated Birthday Gift
 authors:
 - lizsubintampa

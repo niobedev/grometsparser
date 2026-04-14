@@ -1,6 +1,5 @@
 ---
-original_url: https://www.boundstories.net/storiesad/chicken_shit.html
-subcategory: Bound Stories
+original_url: https://grometsplaza.net/
 title: Chicken Shit
 authors:
 - Captain Lance

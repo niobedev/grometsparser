@@ -1,6 +1,5 @@
 ---
-original_url: https://www.boundstories.net/storiesad/captured_and_tortured.html
-subcategory: Bound Stories
+original_url: https://grometsplaza.net/
 title: Captured and Tortured
 authors:
 - gopi

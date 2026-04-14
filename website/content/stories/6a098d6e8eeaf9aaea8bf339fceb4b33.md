@@ -1,6 +1,5 @@
 ---
-original_url: https://grometsplaza.net/world/tg/storiesek/fetish_ball.html
-subcategory: Transformation
+original_url: https://grometsplaza.net/
 title: The Fetish Ball
 authors:
 - Sensual Erotic

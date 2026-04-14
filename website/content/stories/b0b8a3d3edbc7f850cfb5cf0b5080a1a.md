@@ -1,6 +1,5 @@
 ---
-original_url: https://www.dollstories.net/storiesek/inthelandofthedolls4.html
-subcategory: Doll Stories
+original_url: https://grometsplaza.net/
 title: 'In the Land of the Dolls 4: Out in the Garden'
 authors:
 - Cropsncuffs

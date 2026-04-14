@@ -1,6 +1,5 @@
 ---
-original_url: https://grometsplaza.net/world/tg/storiesek/fantasybb3.html
-subcategory: Transformation
+original_url: https://grometsplaza.net/
 title: Fantasy B&B Part 3
 authors:
 - Lynda Christine

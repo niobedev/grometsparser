@@ -1,6 +1,5 @@
 ---
-original_url: https://www.boundstories.net/storiesek/gentlemans_delemma.html
-subcategory: Bound Stories
+original_url: https://grometsplaza.net/
 title: Gentleman's Delemma
 authors:
 - Cynthia Harder

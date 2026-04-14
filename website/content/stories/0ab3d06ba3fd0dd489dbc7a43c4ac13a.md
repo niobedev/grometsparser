@@ -1,6 +1,5 @@
 ---
-original_url: https://www.mummified.net/storiesek/just_another_day.html
-subcategory: Mummified
+original_url: https://grometsplaza.net/
 title: Just Another Day at Work
 authors:
 - Darkraptor1

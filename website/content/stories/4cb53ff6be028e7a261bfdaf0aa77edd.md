@@ -1,6 +1,5 @@
 ---
-original_url: https://www.packagedstories.net/storiessz/veryspecialdelivery.html
-subcategory: Packaged/Encasement
+original_url: https://grometsplaza.net/
 title: A Very Special Delivery
 authors:
 - Snap

@@ -1,6 +1,5 @@
 ---
-original_url: https://grometsplaza.net/world/machine/storiesek/joiningcollectorsarmy.html
-subcategory: Devoured Stories
+original_url: https://grometsplaza.net/
 title: Joining the Collector's Army
 authors:
 - Lobo De la Sombra

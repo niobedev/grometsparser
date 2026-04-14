@@ -1,6 +1,5 @@
 ---
-original_url: https://www.trashcanstories.net/storieslr/nightiwontsoonforget.html
-subcategory: Erotic Stories
+original_url: https://grometsplaza.net/
 title: A Night I Won't Soon Forget
 authors:
 - Desolate Mistral

@@ -1,6 +1,5 @@
 ---
-original_url: https://www.packagedstories.net/storiessz/subterraneansally3.html
-subcategory: Packaged/Encasement
+original_url: https://grometsplaza.net/
 title: Subterranean Sally 3
 authors:
 - Wingco

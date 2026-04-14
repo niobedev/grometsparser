@@ -1,6 +1,5 @@
 ---
-original_url: https://www.trashcanstories.net/storieslr/living_the_dream.html
-subcategory: Erotic Stories
+original_url: https://grometsplaza.net/
 title: Living The Dream
 authors:
 - crushedwithdiapers

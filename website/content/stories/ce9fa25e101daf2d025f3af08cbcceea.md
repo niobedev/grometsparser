@@ -1,6 +1,5 @@
 ---
-original_url: https://www.selfbound.net/storieslr/rachelsweeklywebshow.html
-subcategory: Selfbound Stories
+original_url: https://grometsplaza.net/
 title: Rachel’s Weekly Web Show
 authors:
 - Kinky Writer

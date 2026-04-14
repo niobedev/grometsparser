@@ -1,6 +1,5 @@
 ---
-original_url: https://www.selfbound.net/storieslr/longestrestraint3.html
-subcategory: Selfbound Stories
+original_url: https://grometsplaza.net/
 title: 'The Longest Restraint 3: Prisoner in my Own Home'
 authors:
 - Matty

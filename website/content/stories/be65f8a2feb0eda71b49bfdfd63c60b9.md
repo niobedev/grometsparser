@@ -1,6 +1,5 @@
 ---
-original_url: https://grometsplaza.net/world/machine/storiessz/smartducttape2.html
-subcategory: Devoured Stories
+original_url: https://grometsplaza.net/
 title: The Smart Duct Tape 2
 authors:
 - Jessica

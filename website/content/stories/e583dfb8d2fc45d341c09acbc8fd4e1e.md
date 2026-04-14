@@ -1,6 +1,5 @@
 ---
-original_url: https://www.boundstories.net/storiessz/smoking_issues4.html
-subcategory: Bound Stories
+original_url: https://grometsplaza.net/
 title: Smoking Issues 4
 authors:
 - Mumman

@@ -1,6 +1,5 @@
 ---
-original_url: https://www.selfbound.net/storiesad/bbf5.html
-subcategory: Selfbound Stories
+original_url: https://grometsplaza.net/
 title: 'BBF 5: Into the Woods'
 authors:
 - The Watcher

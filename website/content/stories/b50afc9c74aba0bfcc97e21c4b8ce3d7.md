@@ -1,6 +1,5 @@
 ---
-original_url: https://www.latexstories.net/storieslr/latexandchains.html
-subcategory: Latex Stories
+original_url: https://grometsplaza.net/
 title: Latex and Chains
 authors:
 - Mikel

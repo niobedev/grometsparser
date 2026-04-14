@@ -1,6 +1,5 @@
 ---
-original_url: https://www.selfbound.net/storiesek/junessbmistake8.html
-subcategory: Selfbound Stories
+original_url: https://grometsplaza.net/
 title: June’s Self Bondage Mistake 8
 authors:
 - ChgoBinder

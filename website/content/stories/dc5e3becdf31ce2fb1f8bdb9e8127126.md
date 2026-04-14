@@ -1,6 +1,5 @@
 ---
-original_url: https://grometsplaza.net/special/halloween22/ghostly_encounter.html
-subcategory: TG/CD Stories
+original_url: https://grometsplaza.net/
 title: Ghostly Encounter
 authors:
 - earlofnexus

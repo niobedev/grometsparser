@@ -1,6 +1,5 @@
 ---
-original_url: https://www.dollstories.net/storiesek/inthelandofthedolls5.html
-subcategory: Doll Stories
+original_url: https://grometsplaza.net/
 title: 'In the Land of the Dolls 5: And Then There Were Three'
 authors:
 - Cropsncuffs

@@ -1,6 +1,5 @@
 ---
-original_url: https://www.dollstories.net/storieslr/replacing_the_rubber_dolly.html
-subcategory: Doll Stories
+original_url: https://grometsplaza.net/
 title: Replacing the Rubber Dolly
 authors:
 - Gromet

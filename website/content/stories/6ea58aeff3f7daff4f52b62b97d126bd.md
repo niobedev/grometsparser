@@ -1,6 +1,5 @@
 ---
-original_url: https://www.boundstories.net/storiessz/susans_return.html
-subcategory: Bound Stories
+original_url: https://grometsplaza.net/
 title: Susan's Return
 authors:
 - SwitchMan

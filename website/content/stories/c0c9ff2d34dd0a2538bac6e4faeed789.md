@@ -1,6 +1,5 @@
 ---
-original_url: https://www.selfbound.net/storiessz/sara_christina_lynn1.html
-subcategory: Selfbound Stories
+original_url: https://grometsplaza.net/
 title: Sara, Christina & Lynn
 authors:
 - Voodoo

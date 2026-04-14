@@ -1,6 +1,5 @@
 ---
-original_url: https://www.selfbound.net/storiessz/spring_break_discovery.html
-subcategory: Selfbound Stories
+original_url: https://grometsplaza.net/
 title: Spring Break Discovery
 authors:
 - JC

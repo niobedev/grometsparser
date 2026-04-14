@@ -1,6 +1,5 @@
 ---
-original_url: https://grometsplaza.net/eroticstories/storiesad/awayonbusiness4.html
-subcategory: Spandex
+original_url: https://grometsplaza.net/
 title: 'Away On  Business 4: No Escape'
 authors:
 - Adam N. Eaves

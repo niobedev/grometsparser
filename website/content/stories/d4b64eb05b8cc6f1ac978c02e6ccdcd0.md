@@ -1,6 +1,5 @@
 ---
-original_url: https://www.trashcanstories.net/storiesad/automart.html
-subcategory: Erotic Stories
+original_url: https://grometsplaza.net/
 title: Automart
 authors:
 - 64Fordman

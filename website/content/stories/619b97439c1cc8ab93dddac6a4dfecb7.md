@@ -1,6 +1,5 @@
 ---
-original_url: https://www.boundstories.net/storieslr/lions_mouth.html
-subcategory: Bound Stories
+original_url: https://grometsplaza.net/
 title: The Lion's Mouth
 authors:
 - T S Fesslen

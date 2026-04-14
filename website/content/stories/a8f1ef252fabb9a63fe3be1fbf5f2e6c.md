@@ -1,6 +1,5 @@
 ---
-original_url: https://www.selfbound.net/storiesad/captiveofanevilqueen.html
-subcategory: Selfbound Stories
+original_url: https://grometsplaza.net/
 title: Captive of an Evil Queen
 authors:
 - Jimdini

@@ -1,6 +1,5 @@
 ---
-original_url: https://www.latexstories.net/storieslr/rubberhell3.html
-subcategory: Latex Stories
+original_url: https://grometsplaza.net/
 title: Rubber Hell
 authors:
 - 'M88 3: Why'

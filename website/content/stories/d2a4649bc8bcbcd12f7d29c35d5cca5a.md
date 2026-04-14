@@ -1,6 +1,5 @@
 ---
-original_url: https://www.packagedstories.net/storiesek/howdidiendupinthisbox.html
-subcategory: Packaged/Encasement
+original_url: https://grometsplaza.net/
 title: How Did I End Up in This Box?
 authors:
 - Vaughan

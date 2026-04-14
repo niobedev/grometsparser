@@ -1,6 +1,5 @@
 ---
-original_url: https://grometsplaza.net/eroticstories/storiesad/blackpantiesofsubmission.html
-subcategory: Spandex
+original_url: https://grometsplaza.net/
 title: The Black Panties Of Submission
 authors:
 - Jackie Rabbit

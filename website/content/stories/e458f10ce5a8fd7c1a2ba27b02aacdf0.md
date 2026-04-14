@@ -1,6 +1,5 @@
 ---
-original_url: https://www.boundstories.net/storieslr/newyearsevegift.html
-subcategory: Bound Stories
+original_url: https://grometsplaza.net/
 title: New Year's Eve Gift
 authors:
 - Jon Deets

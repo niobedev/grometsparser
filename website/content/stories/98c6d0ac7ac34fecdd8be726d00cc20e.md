@@ -1,6 +1,5 @@
 ---
-original_url: https://www.boundstories.net/storiesek/foundvideo2.html
-subcategory: Bound Stories
+original_url: https://grometsplaza.net/
 title: Found Video Part 2
 authors:
 - Jackie Rabbit

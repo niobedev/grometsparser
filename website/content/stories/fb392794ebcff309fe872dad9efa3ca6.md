@@ -1,6 +1,5 @@
 ---
-original_url: https://grometsplaza.net/eroticstories/storieslr/playing_maid2.html
-subcategory: Spandex
+original_url: https://grometsplaza.net/
 title: Playing Maid
 authors:
 - Jackie Rabbit

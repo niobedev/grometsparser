@@ -1,6 +1,5 @@
 ---
-original_url: https://www.latexstories.net/storiesek/further_trainingofs08.html
-subcategory: Latex Stories
+original_url: https://grometsplaza.net/
 title: 'The Further Training of ''S'' 8: Serving Maid'
 authors:
 - James W

@@ -1,6 +1,5 @@
 ---
-original_url: https://www.packagedstories.net/storiessz/samanthasburial.html
-subcategory: Packaged/Encasement
+original_url: https://grometsplaza.net/
 title: Samantha's Burial
 authors:
 - Cynthia Trusscot

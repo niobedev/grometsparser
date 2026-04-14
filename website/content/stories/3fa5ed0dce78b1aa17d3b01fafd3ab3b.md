@@ -1,6 +1,5 @@
 ---
-original_url: https://www.latexstories.net/storieslr/restaurantmeeting.html
-subcategory: Latex Stories
+original_url: https://grometsplaza.net/
 title: Restaurant Meeting
 authors:
 - Rubber Devotee

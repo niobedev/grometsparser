@@ -1,6 +1,5 @@
 ---
-original_url: https://grometsplaza.net/eroticstories/storieslr/nursekatsmedicalexamination.html
-subcategory: Spandex
+original_url: https://grometsplaza.net/
 title: Nurse Kat's Medical Examination
 authors:
 - Adam N. Eaves

@@ -1,6 +1,5 @@
 ---
-original_url: https://www.selfbound.net/storieslr/pleasure_poled.html
-subcategory: Selfbound Stories
+original_url: https://grometsplaza.net/
 title: Pleasure Poled
 authors:
 - Dana

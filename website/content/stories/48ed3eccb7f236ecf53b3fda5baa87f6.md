@@ -1,6 +1,5 @@
 ---
-original_url: https://www.selfbound.net/storiesad/adultwebonline.html
-subcategory: Selfbound Stories
+original_url: https://grometsplaza.net/
 title: AdultWebOnline
 authors:
 - Canadom

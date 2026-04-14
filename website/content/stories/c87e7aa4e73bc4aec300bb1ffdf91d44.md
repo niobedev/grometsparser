@@ -1,6 +1,5 @@
 ---
-original_url: https://www.latexstories.net/storieslr/merge.html
-subcategory: Latex Stories
+original_url: https://grometsplaza.net/
 title: M.E.R.G.E
 authors:
 - Dreamweaver

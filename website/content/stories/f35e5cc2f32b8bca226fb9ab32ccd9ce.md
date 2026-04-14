@@ -1,6 +1,5 @@
 ---
-original_url: https://grometsplaza.net/eroticstories/storieslr/my_sealed_girlfriend.html
-subcategory: Spandex
+original_url: https://grometsplaza.net/
 title: My Sealed Girlfriend
 authors:
 - Kinky in B

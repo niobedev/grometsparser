@@ -1,6 +1,5 @@
 ---
-original_url: https://grometsplaza.net/spandex/storiesak/ilovewearingleotardsforhalloween.html
-subcategory: Maid-bot Stories
+original_url: https://grometsplaza.net/
 title: I Love Wearing Leotards for Halloween
 authors:
 - Leotardspank

@@ -1,6 +1,5 @@
 ---
-original_url: https://www.boundstories.net/storiesad/aloneinthehouse.html
-subcategory: Bound Stories
+original_url: https://grometsplaza.net/
 title: Alone in the House
 authors:
 - Slave Victoria

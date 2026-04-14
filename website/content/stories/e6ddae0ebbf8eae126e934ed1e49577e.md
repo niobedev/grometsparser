@@ -1,6 +1,5 @@
 ---
-original_url: https://www.selfbound.net/storiesad/caught_by_don2.html
-subcategory: Selfbound Stories
+original_url: https://grometsplaza.net/
 title: Caught 2
 authors:
 - Don

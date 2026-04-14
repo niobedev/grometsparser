@@ -1,6 +1,5 @@
 ---
-original_url: https://www.latexstories.net/storiessz/special_delivery9.html
-subcategory: Latex Stories
+original_url: https://grometsplaza.net/
 title: 'Special Delivery 9: Rubberman''s Further Education'
 authors:
 - rbbral

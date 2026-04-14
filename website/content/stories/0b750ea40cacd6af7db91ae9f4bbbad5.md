@@ -1,6 +1,5 @@
 ---
-original_url: https://www.boundstories.net/storiessz/whateveryouwant.html
-subcategory: Bound Stories
+original_url: https://grometsplaza.net/
 title: Whatever You Want
 authors:
 - The White Knight

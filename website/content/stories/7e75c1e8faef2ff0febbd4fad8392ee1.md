@@ -1,6 +1,5 @@
 ---
-original_url: https://www.selfbound.net/storiesek/flatmate.html
-subcategory: Selfbound Stories
+original_url: https://grometsplaza.net/
 title: Flatmates
 authors:
 - Sean Malone

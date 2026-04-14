@@ -1,6 +1,5 @@
 ---
-original_url: https://www.maidbots.net/storieslr/no_longer_alone.html
-subcategory: Pony & Pet Girl
+original_url: https://grometsplaza.net/
 title: No Longer Alone
 authors:
 - Gromet

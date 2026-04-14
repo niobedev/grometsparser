@@ -1,6 +1,5 @@
 ---
-original_url: https://www.dollstories.net/storieslr/the_prank.html
-subcategory: Doll Stories
+original_url: https://grometsplaza.net/
 title: The Prank
 authors:
 - Gromet

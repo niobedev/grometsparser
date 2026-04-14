@@ -1,6 +1,5 @@
 ---
-original_url: https://www.dollstories.net/storiessz/sexdollyfactory5.html
-subcategory: Doll Stories
+original_url: https://grometsplaza.net/
 title: The Sex Dolly Factory
 authors:
 - Vleight

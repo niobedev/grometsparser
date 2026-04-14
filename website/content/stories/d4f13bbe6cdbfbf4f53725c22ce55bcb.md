@@ -1,6 +1,5 @@
 ---
-original_url: https://grometsplaza.net/special/halloween23/ghosts_of_burkittsville.html
-subcategory: TG/CD Stories
+original_url: https://grometsplaza.net/
 title: Ghosts of Burkittsville
 authors:
 - Lancer175

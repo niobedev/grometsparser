@@ -1,6 +1,5 @@
 ---
-original_url: https://www.latexstories.net/storiesad/claudias_exquisite_death.html
-subcategory: Latex Stories
+original_url: https://grometsplaza.net/
 title: Claudia’s Exquisite Death
 authors:
 - Michael Knight

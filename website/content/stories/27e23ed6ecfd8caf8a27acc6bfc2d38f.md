@@ -1,6 +1,5 @@
 ---
-original_url: https://www.trashcanstories.net/storieslr/pornshoot.html
-subcategory: Erotic Stories
+original_url: https://grometsplaza.net/
 title: The Porn Shoot
 authors:
 - DumpsterLife

@@ -1,6 +1,5 @@
 ---
-original_url: https://grometsplaza.net/world/ponygirl/storiessz/stallionsinthecorral.html
-subcategory: Giantess & Shrinking
+original_url: https://grometsplaza.net/
 title: Stallions in the Corral
 authors:
 - Techster+Techie

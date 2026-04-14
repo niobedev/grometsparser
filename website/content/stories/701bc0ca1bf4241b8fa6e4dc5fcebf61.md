@@ -1,6 +1,5 @@
 ---
-original_url: https://www.mummified.net/storiessz/sleep_tight.html
-subcategory: Mummified
+original_url: https://grometsplaza.net/
 title: Sleep Tight, Pleasant Dreams!
 authors:
 - Jsmith7471

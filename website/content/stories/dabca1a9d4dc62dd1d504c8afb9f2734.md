@@ -1,6 +1,5 @@
 ---
-original_url: https://www.latexstories.net/storiessz/training_slaveselena12.html
-subcategory: Latex Stories
+original_url: https://grometsplaza.net/
 title: 'The Training of Slave Selena 12: Stainless Steel Slave'
 authors:
 - James W

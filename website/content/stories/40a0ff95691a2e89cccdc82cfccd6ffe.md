@@ -1,6 +1,5 @@
 ---
-original_url: https://www.boundstories.net/storiesek/kristen_moot_court2.html
-subcategory: Bound Stories
+original_url: https://grometsplaza.net/
 title: Kristen & the Moot Court
 authors:
 - Zack

@@ -1,6 +1,5 @@
 ---
-original_url: https://grometsplaza.net/world/tg/storiesek/it_had_to_happen_one_day.html
-subcategory: Transformation
+original_url: https://grometsplaza.net/
 title: It Had To Happen One Day
 authors:
 - John Hammond

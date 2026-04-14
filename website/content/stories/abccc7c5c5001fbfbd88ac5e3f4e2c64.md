@@ -1,6 +1,5 @@
 ---
-original_url: https://www.dollstories.net/storieslr/process7.html
-subcategory: Doll Stories
+original_url: https://grometsplaza.net/
 title: 'The Process 7: New Additions'
 authors:
 - Tit for Tat

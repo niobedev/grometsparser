@@ -1,6 +1,5 @@
 ---
-original_url: https://www.packagedstories.net/storieslr/locked_inside.html
-subcategory: Packaged/Encasement
+original_url: https://grometsplaza.net/
 title: Locked Inside
 authors:
 - Michael Tremayne

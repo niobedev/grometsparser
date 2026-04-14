@@ -1,6 +1,5 @@
 ---
-original_url: https://www.mummified.net/storiessz/taken_in.html
-subcategory: Mummified
+original_url: https://grometsplaza.net/
 title: Taken In
 authors:
 - Xplaspete

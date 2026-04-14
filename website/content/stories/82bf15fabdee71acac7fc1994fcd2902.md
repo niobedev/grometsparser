@@ -1,6 +1,5 @@
 ---
-original_url: https://www.latexstories.net/storiessz/turmoil15.html
-subcategory: Latex Stories
+original_url: https://grometsplaza.net/
 title: 'Turmoil 15: Spinning Yarns'
 authors:
 - Ludwig

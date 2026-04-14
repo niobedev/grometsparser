@@ -1,6 +1,5 @@
 ---
-original_url: https://www.selfbound.net/storiesad/duty_bound3.html
-subcategory: Selfbound Stories
+original_url: https://grometsplaza.net/
 title: Duty Bound
 authors:
 - Guy le Bouc

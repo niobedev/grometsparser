@@ -1,6 +1,5 @@
 ---
-original_url: https://www.boundstories.net/storieslr/mybondageadventure.html
-subcategory: Bound Stories
+original_url: https://grometsplaza.net/
 title: My Bondage Adventure
 authors:
 - Joe D

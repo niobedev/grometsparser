@@ -1,6 +1,5 @@
 ---
-original_url: https://www.latexstories.net/storieslr/rubber_fairy_tale.html
-subcategory: Latex Stories
+original_url: https://grometsplaza.net/
 title: Rubber Fairy Tale
 authors:
 - Darqside

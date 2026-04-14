@@ -1,6 +1,5 @@
 ---
-original_url: https://grometsplaza.net/world/ponygirl/storiessz/thirty_minute_challenge.html
-subcategory: Giantess & Shrinking
+original_url: https://grometsplaza.net/
 title: The Thirty-Minute Challenge
 authors:
 - MrJohnSmith

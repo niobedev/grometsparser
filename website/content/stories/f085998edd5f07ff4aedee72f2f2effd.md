@@ -1,6 +1,5 @@
 ---
-original_url: https://www.mummified.net/storiesek/hoteltransylvania.html
-subcategory: Mummified
+original_url: https://grometsplaza.net/
 title: Hotel Transylvania – Alternate Version
 authors:
 - Abbacor

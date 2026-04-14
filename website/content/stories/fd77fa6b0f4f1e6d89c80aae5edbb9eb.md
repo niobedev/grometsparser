@@ -1,6 +1,5 @@
 ---
-original_url: https://www.latexstories.net/storieslr/latexprisoner.html
-subcategory: Latex Stories
+original_url: https://grometsplaza.net/
 title: The Latex Prisoner
 authors:
 - Gwendoline

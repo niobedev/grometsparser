@@ -1,6 +1,5 @@
 ---
-original_url: https://grometsplaza.net/world/transformation/storieslr/lacey_is_just_a_fish_now.html
-subcategory: Buried & Sinking
+original_url: https://grometsplaza.net/
 title: Lacey Is Just A Fish Now
 authors:
 - Garsponlin

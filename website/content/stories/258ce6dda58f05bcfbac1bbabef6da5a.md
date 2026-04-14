@@ -1,6 +1,5 @@
 ---
-original_url: https://www.boundstories.net/storieslr/leather_twins11.html
-subcategory: Bound Stories
+original_url: https://grometsplaza.net/
 title: 'The Leather Twins Part 11: It Never Rains but It Pours'
 authors:
 - Anne Gray

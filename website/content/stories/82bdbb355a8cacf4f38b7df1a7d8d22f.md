@@ -1,6 +1,5 @@
 ---
-original_url: https://grometsplaza.net/world/giantess/storiesek/homeinvasion4.html
-subcategory: Machine
+original_url: https://grometsplaza.net/
 title: 'Home Invasion 4: Death & the Rat'
 authors:
 - Carnaj

@@ -1,6 +1,5 @@
 ---
-original_url: https://www.trashcanstories.net/storiessz/surprisedbythegarbagewoman.html
-subcategory: Erotic Stories
+original_url: https://grometsplaza.net/
 title: Surprised by the Garbage Woman
 authors:
 - Unknown

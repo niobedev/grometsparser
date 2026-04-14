@@ -1,6 +1,5 @@
 ---
-original_url: https://www.boundstories.net/storieslr/lounge_act.html
-subcategory: Bound Stories
+original_url: https://grometsplaza.net/
 title: Lounge Act
 authors:
 - Dawes

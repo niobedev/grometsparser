@@ -1,6 +1,5 @@
 ---
-original_url: https://www.boundstories.net/storiesek/the_gingerbread_house_bloody_kiss.html
-subcategory: Bound Stories
+original_url: https://grometsplaza.net/
 title: The Gingerbread House
 authors:
 - Darkwolf

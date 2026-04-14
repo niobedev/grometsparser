@@ -1,6 +1,5 @@
 ---
-original_url: https://www.latexstories.net/storiessz/sound_and_fury.html
-subcategory: Latex Stories
+original_url: https://grometsplaza.net/
 title: A Sound And Some Fury
 authors:
 - Rubberking

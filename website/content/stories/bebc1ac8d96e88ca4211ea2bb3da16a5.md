@@ -1,6 +1,5 @@
 ---
-original_url: https://www.latexstories.net/storiessz/special_delivery7.html
-subcategory: Latex Stories
+original_url: https://grometsplaza.net/
 title: 'Special Delivery 7: Playing Doctor And Patient'
 authors:
 - rbbral

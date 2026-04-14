@@ -1,6 +1,5 @@
 ---
-original_url: https://www.boundstories.net/storiesad/anotherdatewithstrand.html
-subcategory: Bound Stories
+original_url: https://grometsplaza.net/
 title: Another Date with Strand
 authors:
 - Max Roper

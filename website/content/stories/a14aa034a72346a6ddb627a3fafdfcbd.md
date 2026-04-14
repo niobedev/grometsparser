@@ -1,6 +1,5 @@
 ---
-original_url: https://www.boundstories.net/storiesad/anothersaturdaymorning3.html
-subcategory: Bound Stories
+original_url: https://grometsplaza.net/
 title: 'Another Saturday Morning 3: Still Another Saturday Morning'
 authors:
 - Cindy

@@ -1,6 +1,5 @@
 ---
-original_url: https://www.boundstories.net/storiessz/sweet_caroline2.html
-subcategory: Bound Stories
+original_url: https://grometsplaza.net/
 title: 'Sweet Caroline 2: More Caroline'
 authors:
 - iamacdtom

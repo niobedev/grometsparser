@@ -1,6 +1,5 @@
 ---
-original_url: https://www.mummified.net/storieslr/lastfewseconds.html
-subcategory: Mummified
+original_url: https://grometsplaza.net/
 title: Last Few Seconds
 authors:
 - BP

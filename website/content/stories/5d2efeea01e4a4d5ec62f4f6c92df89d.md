@@ -1,6 +1,5 @@
 ---
-original_url: https://grometsplaza.net/eroticstories/storiesad/afterparty.html
-subcategory: Spandex
+original_url: https://grometsplaza.net/
 title: After Party
 authors:
 - Nathan Black

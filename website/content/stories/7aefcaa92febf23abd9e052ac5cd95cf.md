@@ -1,6 +1,5 @@
 ---
-original_url: https://www.boundstories.net/storiessz/widowcorsetropessubmission4.html
-subcategory: Bound Stories
+original_url: https://grometsplaza.net/
 title: 'Widow, Corset, Ropes, Submission Part 4: Vibrators from Heaven and Hell'
 authors:
 - Margaret M

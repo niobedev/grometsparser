@@ -1,6 +1,5 @@
 ---
-original_url: https://www.latexstories.net/storiesad/143.html
-subcategory: Latex Stories
+original_url: https://grometsplaza.net/
 title: '143'
 authors:
 - Penalt

@@ -1,6 +1,5 @@
 ---
-original_url: https://www.packagedstories.net/storiessz/secretary.html
-subcategory: Packaged/Encasement
+original_url: https://grometsplaza.net/
 title: The Secretary
 authors:
 - Tr_veller

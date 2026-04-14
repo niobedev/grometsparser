@@ -1,6 +1,5 @@
 ---
-original_url: https://www.selfbound.net/storiessz/simpleenough.html
-subcategory: Selfbound Stories
+original_url: https://grometsplaza.net/
 title: Simple Enough
 authors:
 - Baubleheadz

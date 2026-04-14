@@ -1,6 +1,5 @@
 ---
-original_url: https://www.mummified.net/storieslr/plaster_boy.html
-subcategory: Mummified
+original_url: https://grometsplaza.net/
 title: Plaster Boy
 authors:
 - Neale Suddens

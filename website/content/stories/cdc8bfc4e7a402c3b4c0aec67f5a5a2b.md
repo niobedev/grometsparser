@@ -1,6 +1,5 @@
 ---
-original_url: https://www.dollstories.net/storiesad/dollinthepark.html
-subcategory: Doll Stories
+original_url: https://grometsplaza.net/
 title: The Doll in the Park
 authors:
 - SFT

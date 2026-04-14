@@ -1,6 +1,5 @@
 ---
-original_url: https://www.selfbound.net/storiesad/asian_selfbondage.html
-subcategory: Selfbound Stories
+original_url: https://grometsplaza.net/
 title: Asian Self bondage
 authors:
 - Asian slave

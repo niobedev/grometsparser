@@ -1,6 +1,5 @@
 ---
-original_url: https://grometsplaza.net/world/tg/storieslr/therack.html
-subcategory: Transformation
+original_url: https://grometsplaza.net/
 title: The Rack
 authors:
 - Cynthia Trusscot

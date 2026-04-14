@@ -1,6 +1,5 @@
 ---
-original_url: https://www.devouredstories.net/storiessz/simple_plan.html
-subcategory: Halloween Specials
+original_url: https://grometsplaza.net/
 title: A Simple Plan
 authors:
 - Adeline

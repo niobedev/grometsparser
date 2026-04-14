@@ -1,6 +1,5 @@
 ---
-original_url: https://www.mummified.net/storiesek/in_service_elders.html
-subcategory: Mummified
+original_url: https://grometsplaza.net/
 title: In Service of the Elders
 authors:
 - Wrapper's Delight and Red-Dreamer

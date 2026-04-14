@@ -1,6 +1,5 @@
 ---
-original_url: https://grometsplaza.net/eroticstories/storiessz/temple_of_domina_arianny.html
-subcategory: Spandex
+original_url: https://grometsplaza.net/
 title: 'Temple of Domina: Arianny'
 authors:
 - The Scribe of Domina

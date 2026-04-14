@@ -1,6 +1,5 @@
 ---
-original_url: https://www.selfbound.net/storiessz/xi.html
-subcategory: Selfbound Stories
+original_url: https://grometsplaza.net/
 title: Xi - The Locked Box
 authors:
 - Nerbus

@@ -1,6 +1,5 @@
 ---
-original_url: https://www.boundstories.net/storieslr/perhapsishouldhavetoldhim.html
-subcategory: Bound Stories
+original_url: https://grometsplaza.net/
 title: Perhaps I Should Have Told Him
 authors:
 - EveryBody_Else

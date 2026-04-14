@@ -1,6 +1,5 @@
 ---
-original_url: https://www.latexstories.net/storiesek/fall_mistressdiana4.html
-subcategory: Latex Stories
+original_url: https://grometsplaza.net/
 title: 'The Fall of Mistress Diana 4: Getting back to Business'
 authors:
 - Worzel

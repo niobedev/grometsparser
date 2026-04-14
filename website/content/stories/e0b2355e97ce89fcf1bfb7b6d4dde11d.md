@@ -1,6 +1,5 @@
 ---
-original_url: https://www.packagedstories.net/storiessz/when_you_come_at_the_ceo.html
-subcategory: Packaged/Encasement
+original_url: https://grometsplaza.net/
 title: When You Come at the CEO
 authors:
 - Tonya Souther

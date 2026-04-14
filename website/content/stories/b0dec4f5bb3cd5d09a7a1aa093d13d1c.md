@@ -1,6 +1,5 @@
 ---
-original_url: https://www.boundstories.net/storiesek/gameday.html
-subcategory: Bound Stories
+original_url: https://grometsplaza.net/
 title: Game Day
 authors:
 - Normand

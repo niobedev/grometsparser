@@ -1,6 +1,5 @@
 ---
-original_url: https://www.dollstories.net/storiessz/tds_perfectgift.html
-subcategory: Doll Stories
+original_url: https://grometsplaza.net/
 title: 'Tales from the Dolly Shoppe: The Perfect Gift'
 authors:
 - URN My Power

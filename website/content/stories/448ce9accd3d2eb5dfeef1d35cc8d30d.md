@@ -1,6 +1,5 @@
 ---
-original_url: https://www.latexstories.net/storiessz/the_watcher.html
-subcategory: Latex Stories
+original_url: https://grometsplaza.net/
 title: The Watcher
 authors:
 - Rubber Ballet

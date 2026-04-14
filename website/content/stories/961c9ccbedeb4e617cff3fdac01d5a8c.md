@@ -1,6 +1,5 @@
 ---
-original_url: https://www.latexstories.net/storieslr/phoenix4.html
-subcategory: Latex Stories
+original_url: https://grometsplaza.net/
 title: Phoenix
 authors:
 - Alcatraz

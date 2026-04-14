@@ -1,6 +1,5 @@
 ---
-original_url: https://www.selfbound.net/storiessz/weekend_fantasia_work.html
-subcategory: Selfbound Stories
+original_url: https://grometsplaza.net/
 title: Weekend Fantasia-Work
 authors:
 - Prof. Challenger

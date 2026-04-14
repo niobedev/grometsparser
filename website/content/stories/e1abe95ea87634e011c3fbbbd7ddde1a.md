@@ -1,6 +1,5 @@
 ---
-original_url: https://www.dollstories.net/storieslr/plastique_surgery2.html
-subcategory: Doll Stories
+original_url: https://grometsplaza.net/
 title: Plastique Surgery 2
 authors:
 - Darqside

@@ -1,6 +1,5 @@
 ---
-original_url: https://www.boundstories.net/storiesad/bringing_down_the_cult.html
-subcategory: Bound Stories
+original_url: https://grometsplaza.net/
 title: Bringing Down the Cult
 authors:
 - The Technician

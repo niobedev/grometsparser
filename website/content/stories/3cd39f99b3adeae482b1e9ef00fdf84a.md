@@ -1,6 +1,5 @@
 ---
-original_url: https://www.mummified.net/storiesek/judith.html
-subcategory: Mummified
+original_url: https://grometsplaza.net/
 title: Judith's Wetpack
 authors:
 - Mr Spraycan

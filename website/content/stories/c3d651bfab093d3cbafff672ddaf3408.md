@@ -1,6 +1,5 @@
 ---
-original_url: https://www.boundstories.net/storiesek/friend_in_deed.html
-subcategory: Bound Stories
+original_url: https://grometsplaza.net/
 title: A Friend in Deed
 authors:
 - T S Fesslen

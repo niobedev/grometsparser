@@ -1,6 +1,5 @@
 ---
-original_url: https://www.dollstories.net/storiesad/centrefolds2.html
-subcategory: Doll Stories
+original_url: https://grometsplaza.net/
 title: Centrefolds Part 2
 authors:
 - Northern Chill

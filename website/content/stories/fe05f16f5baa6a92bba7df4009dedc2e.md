@@ -1,6 +1,5 @@
 ---
-original_url: https://www.boundstories.net/storiesek/fourlessons_goodsubmissive.html
-subcategory: Bound Stories
+original_url: https://grometsplaza.net/
 title: 4 Lessons on how not to be a good Submissive
 authors:
 - Morgan Le Fe

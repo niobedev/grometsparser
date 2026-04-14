@@ -1,6 +1,5 @@
 ---
-original_url: https://grometsplaza.net/eroticstories/storiesek/help_wanted.html
-subcategory: Spandex
+original_url: https://grometsplaza.net/
 title: Help Wanted
 authors:
 - Mythik

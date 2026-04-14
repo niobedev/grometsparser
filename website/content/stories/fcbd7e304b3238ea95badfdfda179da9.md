@@ -1,6 +1,5 @@
 ---
-original_url: https://www.boundstories.net/storiessz/wild_idea.html
-subcategory: Bound Stories
+original_url: https://grometsplaza.net/
 title: Wild Idea
 authors:
 - Prometheus

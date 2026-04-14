@@ -1,6 +1,5 @@
 ---
-original_url: https://www.selfbound.net/storiesek/engineer.html
-subcategory: Selfbound Stories
+original_url: https://grometsplaza.net/
 title: An Engineer’s Approach to Selfbondage
 authors:
 - Techster

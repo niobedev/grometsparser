@@ -1,6 +1,5 @@
 ---
-original_url: https://www.boundstories.net/storiessz/tasha.html
-subcategory: Bound Stories
+original_url: https://grometsplaza.net/
 title: Tasha
 authors:
 - Lobo De la Sombra

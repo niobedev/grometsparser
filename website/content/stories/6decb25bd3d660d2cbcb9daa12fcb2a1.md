@@ -1,6 +1,5 @@
 ---
-original_url: https://www.devouredstories.net/storiesad/danielle.html
-subcategory: Halloween Specials
+original_url: https://grometsplaza.net/
 title: Danielle
 authors:
 - Anonymous

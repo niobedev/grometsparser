@@ -1,6 +1,5 @@
 ---
-original_url: https://grometsplaza.net/world/tg/storiesad/bound_by_love.html
-subcategory: Transformation
+original_url: https://grometsplaza.net/
 title: Bound by Love
 authors:
 - DarkStar

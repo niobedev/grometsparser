@@ -1,6 +1,5 @@
 ---
-original_url: https://www.dollstories.net/storiesad/applied_latex_101.html
-subcategory: Doll Stories
+original_url: https://grometsplaza.net/
 title: Applied Latex 101
 authors:
 - Andie

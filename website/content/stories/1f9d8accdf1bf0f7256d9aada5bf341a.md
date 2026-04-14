@@ -1,6 +1,5 @@
 ---
-original_url: https://www.boundstories.net/storieslr/mr_williams_loves_a_good_cliffhanger.html
-subcategory: Bound Stories
+original_url: https://grometsplaza.net/
 title: Mr. Williams Loves a Good Cliffhanger
 authors:
 - Anonymous in NYC

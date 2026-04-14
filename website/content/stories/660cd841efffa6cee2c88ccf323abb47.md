@@ -1,6 +1,5 @@
 ---
-original_url: https://www.boundstories.net/storiessz/truedreams2.html
-subcategory: Bound Stories
+original_url: https://grometsplaza.net/
 title: 'True Dreams Part 2: Too Good to be True'
 authors:
 - Alice

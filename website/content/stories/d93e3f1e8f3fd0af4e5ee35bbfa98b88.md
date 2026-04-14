@@ -1,6 +1,5 @@
 ---
-original_url: https://www.dollstories.net/storiessz/violetlovedoll9.html
-subcategory: Doll Stories
+original_url: https://grometsplaza.net/
 title: Violet Lovedoll
 authors:
 - Snowdropviolet

@@ -1,6 +1,5 @@
 ---
-original_url: https://www.selfbound.net/storiessz/sundaymorningsurprise.html
-subcategory: Selfbound Stories
+original_url: https://grometsplaza.net/
 title: Sunday Morning Surprise
 authors:
 - Dil Apsus

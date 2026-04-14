@@ -1,6 +1,5 @@
 ---
-original_url: https://www.dollstories.net/storiesek/easy_riding_doll.html
-subcategory: Doll Stories
+original_url: https://grometsplaza.net/
 title: Easy Riding Doll
 authors:
 - Northern Chill

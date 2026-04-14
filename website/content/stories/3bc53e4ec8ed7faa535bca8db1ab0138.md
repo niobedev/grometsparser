@@ -1,6 +1,5 @@
 ---
-original_url: https://www.dollstories.net/storieslr/nightofthelivingdolls2.html
-subcategory: Doll Stories
+original_url: https://grometsplaza.net/
 title: 'Night of the Living Dolls Chapter 2: Bright Sky, Dark Changes'
 authors:
 - Northern Chill

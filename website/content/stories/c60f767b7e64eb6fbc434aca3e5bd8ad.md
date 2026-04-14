@@ -1,6 +1,5 @@
 ---
-original_url: https://www.devouredstories.net/storiesek/erranterrand.html
-subcategory: Halloween Specials
+original_url: https://grometsplaza.net/
 title: Errant Errand
 authors:
 - Kaol

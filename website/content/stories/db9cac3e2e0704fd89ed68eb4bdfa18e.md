@@ -1,6 +1,5 @@
 ---
-original_url: https://www.boundstories.net/storieslr/perfect_class.html
-subcategory: Bound Stories
+original_url: https://grometsplaza.net/
 title: Perfect Class
 authors:
 - Studbound

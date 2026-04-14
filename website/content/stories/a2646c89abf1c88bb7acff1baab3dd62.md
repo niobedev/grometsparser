@@ -1,6 +1,5 @@
 ---
-original_url: https://www.selfbound.net/storieslr/the_meeting.html
-subcategory: Selfbound Stories
+original_url: https://grometsplaza.net/
 title: The Meeting
 authors:
 - Voodoo

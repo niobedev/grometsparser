@@ -1,6 +1,5 @@
 ---
-original_url: https://www.selfbound.net/storieslr/paybackonthethirteenthfloor.html
-subcategory: Selfbound Stories
+original_url: https://grometsplaza.net/
 title: Payback on the Thirteenth Floor
 authors:
 - Teann Daorsa

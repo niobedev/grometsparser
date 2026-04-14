@@ -1,6 +1,5 @@
 ---
-original_url: https://grometsplaza.net/world/tg/storiesad/day_in_the_woods.html
-subcategory: Transformation
+original_url: https://grometsplaza.net/
 title: A Day In The Woods
 authors:
 - slut_jennie

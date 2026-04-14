@@ -1,6 +1,5 @@
 ---
-original_url: https://grometsplaza.net/eroticstories/storiessz/silent_auction.html
-subcategory: Spandex
+original_url: https://grometsplaza.net/
 title: Silent Auction
 authors:
 - Baubleheadz

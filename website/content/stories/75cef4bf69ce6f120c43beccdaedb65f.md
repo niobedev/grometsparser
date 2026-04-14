@@ -1,6 +1,5 @@
 ---
-original_url: https://www.boundstories.net/storiesek/joannes_exhibition2.html
-subcategory: Bound Stories
+original_url: https://grometsplaza.net/
 title: Joanne's Story 4a
 authors:
 - Gordian

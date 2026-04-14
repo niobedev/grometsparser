@@ -1,6 +1,5 @@
 ---
-original_url: https://www.devouredstories.net/storieslr/planted2.html
-subcategory: Halloween Specials
+original_url: https://grometsplaza.net/
 title: Plant(ed) 2 - The Diet Plan
 authors:
 - Baubleheadz

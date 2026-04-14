@@ -1,6 +1,5 @@
 ---
-original_url: https://www.latexstories.net/storieslr/latex_mummysack.html
-subcategory: Latex Stories
+original_url: https://grometsplaza.net/
 title: Latex Mummy Sack
 authors:
 - Nimrod

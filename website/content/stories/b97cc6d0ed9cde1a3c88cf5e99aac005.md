@@ -1,6 +1,5 @@
 ---
-original_url: https://www.maidbots.net/storiessz/shoppingforcassie.html
-subcategory: Pony & Pet Girl
+original_url: https://grometsplaza.net/
 title: Shopping for Cassie
 authors:
 - PoseMe

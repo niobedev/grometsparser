@@ -1,6 +1,5 @@
 ---
-original_url: https://www.dollstories.net/storieslr/process81.html
-subcategory: Doll Stories
+original_url: https://grometsplaza.net/
 title: 'The Process 8.1: Changes'
 authors:
 - Tit for Tat

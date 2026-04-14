@@ -1,6 +1,5 @@
 ---
-original_url: https://www.latexstories.net/storieslr/room1.html
-subcategory: Latex Stories
+original_url: https://grometsplaza.net/
 title: 'Room: 1'
 authors:
 - M88

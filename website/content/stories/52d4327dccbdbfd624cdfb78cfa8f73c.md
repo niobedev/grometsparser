@@ -1,6 +1,5 @@
 ---
-original_url: https://www.boundstories.net/storieslr/our_aruban_vacation.html
-subcategory: Bound Stories
+original_url: https://grometsplaza.net/
 title: Our Aruban Vacation
 authors:
 - Polarbear

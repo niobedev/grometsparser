@@ -1,6 +1,5 @@
 ---
-original_url: https://grometsplaza.net/world/tg/storiesek/firstsessionnightmare.html
-subcategory: Transformation
+original_url: https://grometsplaza.net/
 title: First Session Nightmare
 authors:
 - SissyJayla

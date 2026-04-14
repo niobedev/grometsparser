@@ -1,6 +1,5 @@
 ---
-original_url: https://www.dollstories.net/storiesek/inflatingprospects.html
-subcategory: Doll Stories
+original_url: https://grometsplaza.net/
 title: Inflating Prospects
 authors:
 - Kari Pink

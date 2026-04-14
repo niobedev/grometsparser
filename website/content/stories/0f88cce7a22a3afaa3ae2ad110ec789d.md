@@ -1,6 +1,5 @@
 ---
-original_url: https://www.maidbots.net/storiessz/sophiemaidtobeamaidbot.html
-subcategory: Pony & Pet Girl
+original_url: https://grometsplaza.net/
 title: Sophie Maid to be a Maidbot
 authors:
 - PoseMe

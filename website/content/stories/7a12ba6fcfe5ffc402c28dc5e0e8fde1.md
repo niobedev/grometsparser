@@ -1,6 +1,5 @@
 ---
-original_url: https://www.boundstories.net/storieslr/lisa_painful_lesson.html
-subcategory: Bound Stories
+original_url: https://grometsplaza.net/
 title: Lisa's Painful Lesson!
 authors:
 - Anne Gray

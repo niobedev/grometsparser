@@ -1,6 +1,5 @@
 ---
-original_url: https://www.latexstories.net/storieslr/marriedlife.html
-subcategory: Latex Stories
+original_url: https://grometsplaza.net/
 title: Married Life
 authors:
 - Rubber Phantom

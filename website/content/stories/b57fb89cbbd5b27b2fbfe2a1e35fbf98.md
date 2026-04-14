@@ -1,6 +1,5 @@
 ---
-original_url: https://grometsplaza.net/world/ponygirl/storiesad/bitgirl2.html
-subcategory: Giantess & Shrinking
+original_url: https://grometsplaza.net/
 title: 'Bitgirl Part 2: Bitgirl'
 authors:
 - Jo

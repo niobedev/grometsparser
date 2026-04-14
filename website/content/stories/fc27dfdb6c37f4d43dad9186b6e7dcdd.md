@@ -1,6 +1,5 @@
 ---
-original_url: https://www.dollstories.net/storieslr/lookingforlove.html
-subcategory: Doll Stories
+original_url: https://grometsplaza.net/
 title: Looking for Love
 authors:
 - Northern Chill

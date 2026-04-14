@@ -1,6 +1,5 @@
 ---
-original_url: https://www.latexstories.net/storiesad/abandoned_slave.html
-subcategory: Latex Stories
+original_url: https://grometsplaza.net/
 title: Abandoned Slave
 authors:
 - Qwert493

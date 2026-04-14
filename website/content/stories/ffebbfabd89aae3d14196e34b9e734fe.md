@@ -1,6 +1,5 @@
 ---
-original_url: https://www.latexstories.net/storiesad/blueraincoat.html
-subcategory: Latex Stories
+original_url: https://grometsplaza.net/
 title: The Blue Raincoat
 authors:
 - Jennifer Wilson

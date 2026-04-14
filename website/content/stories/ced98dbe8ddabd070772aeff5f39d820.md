@@ -1,6 +1,5 @@
 ---
-original_url: https://www.selfbound.net/storiesad/angies_fix.html
-subcategory: Selfbound Stories
+original_url: https://grometsplaza.net/
 title: Angie’s Fix
 authors:
 - Master Ties

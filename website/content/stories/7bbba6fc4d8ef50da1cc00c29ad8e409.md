@@ -1,6 +1,5 @@
 ---
-original_url: https://www.trashcanstories.net/storiesek/juliestrashtime.html
-subcategory: Erotic Stories
+original_url: https://grometsplaza.net/
 title: Julie's Trash Time
 authors:
 - Trash Girl / 64Fordman

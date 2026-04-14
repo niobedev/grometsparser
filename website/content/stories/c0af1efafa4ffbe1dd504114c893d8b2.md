@@ -1,6 +1,5 @@
 ---
-original_url: https://grometsplaza.net/world/tg/storiesad/caught_crossdresser.html
-subcategory: Transformation
+original_url: https://grometsplaza.net/
 title: Caught Crossdresser
 authors:
 - Amber

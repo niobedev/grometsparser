@@ -1,6 +1,5 @@
 ---
-original_url: https://www.boundstories.net/storiessz/star_struck.html
-subcategory: Bound Stories
+original_url: https://grometsplaza.net/
 title: 'Star Struck: Pamela''s Pet'
 authors:
 - ZTVFemdomtales

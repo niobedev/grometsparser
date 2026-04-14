@@ -1,6 +1,5 @@
 ---
-original_url: https://www.latexstories.net/storiessz/visitingmyrubbermistresses3.html
-subcategory: Latex Stories
+original_url: https://grometsplaza.net/
 title: 'Visiting my Rubber Mistresses 3: Mistress Terri'
 authors:
 - Rb6009

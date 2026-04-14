@@ -1,6 +1,5 @@
 ---
-original_url: https://www.boundstories.net/storiesek/gaishift_thermocline1.html
-subcategory: Bound Stories
+original_url: https://grometsplaza.net/
 title: 'Gai-Shift - Thermocline Chapter 1: Coming of the Norsewomen'
 authors:
 - Rohana

@@ -1,6 +1,5 @@
 ---
-original_url: https://www.boundstories.net/storieslr/realbondageforanne.html
-subcategory: Bound Stories
+original_url: https://grometsplaza.net/
 title: Real Bondage For Anne!
 authors:
 - OkmrocksU

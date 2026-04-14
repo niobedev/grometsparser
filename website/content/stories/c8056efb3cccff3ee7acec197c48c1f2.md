@@ -1,6 +1,5 @@
 ---
-original_url: https://www.latexstories.net/storiesad/amysoldlatexdolly.html
-subcategory: Latex Stories
+original_url: https://grometsplaza.net/
 title: Amy's Old Latex Dolly
 authors:
 - Worzel

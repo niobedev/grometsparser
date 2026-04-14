@@ -1,6 +1,5 @@
 ---
-original_url: https://www.selfbound.net/storiesek/hole_bag.html
-subcategory: Selfbound Stories
+original_url: https://grometsplaza.net/
 title: Hole in my Bag
 authors:
 - Thomas Denny

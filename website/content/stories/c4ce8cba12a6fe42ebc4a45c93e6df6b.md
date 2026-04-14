@@ -1,6 +1,5 @@
 ---
-original_url: https://www.boundstories.net/storiesek/imasochist8.html
-subcategory: Bound Stories
+original_url: https://grometsplaza.net/
 title: 'I, Masochist - Chapter 8: Shelly'
 authors:
 - The Technician

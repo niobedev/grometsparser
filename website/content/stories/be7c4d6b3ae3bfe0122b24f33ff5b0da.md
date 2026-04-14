@@ -1,6 +1,5 @@
 ---
-original_url: https://www.boundstories.net/storiessz/viking_market.html
-subcategory: Bound Stories
+original_url: https://grometsplaza.net/
 title: Viking Market
 authors:
 - Bill M

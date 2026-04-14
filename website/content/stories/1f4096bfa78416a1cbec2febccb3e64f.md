@@ -1,6 +1,5 @@
 ---
-original_url: https://www.boundstories.net/storieslr/leather_lace5.html
-subcategory: Bound Stories
+original_url: https://grometsplaza.net/
 title: Leather & Lace
 authors:
 - The White Knight

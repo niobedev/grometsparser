@@ -1,6 +1,5 @@
 ---
-original_url: https://www.selfbound.net/storiesad/burglar.html
-subcategory: Selfbound Stories
+original_url: https://grometsplaza.net/
 title: The Burglar
 authors:
 - Jo

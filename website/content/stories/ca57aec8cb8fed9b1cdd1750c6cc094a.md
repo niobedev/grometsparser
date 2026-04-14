@@ -1,6 +1,5 @@
 ---
-original_url: https://www.mummified.net/storieslr/mummification_pole.html
-subcategory: Mummified
+original_url: https://grometsplaza.net/
 title: The Mummification Pole
 authors:
 - Daniel Guy

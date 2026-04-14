@@ -1,6 +1,5 @@
 ---
-original_url: https://www.mummified.net/storiessz/stress_relief.html
-subcategory: Mummified
+original_url: https://grometsplaza.net/
 title: Stress Relief
 authors:
 - Darkraptor1

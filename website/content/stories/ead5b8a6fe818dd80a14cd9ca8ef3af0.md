@@ -1,6 +1,5 @@
 ---
-original_url: https://www.dollstories.net/storieslr/latex_clothing.html
-subcategory: Doll Stories
+original_url: https://grometsplaza.net/
 title: Latex Clothing Latex Doll
 authors:
 - Northern Chill

@@ -1,6 +1,5 @@
 ---
-original_url: https://www.selfbound.net/storiessz/sweet_escape.html
-subcategory: Selfbound Stories
+original_url: https://grometsplaza.net/
 title: Sweet Escape
 authors:
 - Gravip14

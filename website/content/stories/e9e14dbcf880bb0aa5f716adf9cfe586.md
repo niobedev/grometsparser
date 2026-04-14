@@ -1,6 +1,5 @@
 ---
-original_url: https://www.latexstories.net/storiessz/visit_from_rubber_friend.html
-subcategory: Latex Stories
+original_url: https://grometsplaza.net/
 title: A Visit from a Rubber Friend
 authors:
 - Rubberking

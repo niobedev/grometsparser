@@ -1,6 +1,5 @@
 ---
-original_url: https://grometsplaza.net/world/tg/storiesek/extremeequestrienne.html
-subcategory: Transformation
+original_url: https://grometsplaza.net/
 title: Extreme Equestrienne
 authors:
 - Paul Lovelace

@@ -1,6 +1,5 @@
 ---
-original_url: https://www.packagedstories.net/storiesek/friendslikethese.html
-subcategory: Packaged/Encasement
+original_url: https://grometsplaza.net/
 title: Friends Like These
 authors:
 - Doctor Vader

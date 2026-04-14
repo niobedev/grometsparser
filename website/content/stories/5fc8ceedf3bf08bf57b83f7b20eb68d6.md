@@ -1,6 +1,5 @@
 ---
-original_url: https://grometsplaza.net/world/tg/storiesad/captured_escort5.html
-subcategory: Transformation
+original_url: https://grometsplaza.net/
 title: Captured Escort 5
 authors:
 - Sophia Usher

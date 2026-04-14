@@ -1,6 +1,5 @@
 ---
-original_url: https://www.boundstories.net/storieslr/the_reluctant_slave.html
-subcategory: Bound Stories
+original_url: https://grometsplaza.net/
 title: The Reluctant Slave
 authors:
 - MasterKGray

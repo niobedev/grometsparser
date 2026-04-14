@@ -1,6 +1,5 @@
 ---
-original_url: https://www.selfbound.net/storiesad/caught_enslaved.html
-subcategory: Selfbound Stories
+original_url: https://grometsplaza.net/
 title: Caught and Enslaved
 authors:
 - Subgamble

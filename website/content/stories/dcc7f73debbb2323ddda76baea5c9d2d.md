@@ -1,6 +1,5 @@
 ---
-original_url: https://www.latexstories.net/storiesek/heathers_halloween_hell.html
-subcategory: Latex Stories
+original_url: https://grometsplaza.net/
 title: Heather's Halloween Hell
 authors:
 - Kim Manners

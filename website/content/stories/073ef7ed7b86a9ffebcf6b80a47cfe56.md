@@ -1,6 +1,5 @@
 ---
-original_url: https://grometsplaza.net/world/tg/storieslr/the_quickie.html
-subcategory: Transformation
+original_url: https://grometsplaza.net/
 title: The Quickie
 authors:
 - Sandra Steeple-Langford

@@ -1,6 +1,5 @@
 ---
-original_url: https://www.dollstories.net/storiesek/grunge.html
-subcategory: Doll Stories
+original_url: https://grometsplaza.net/
 title: Grunge - Beer, Pizza and Dolls
 authors:
 - Northern Chill

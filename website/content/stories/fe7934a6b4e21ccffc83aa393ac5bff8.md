@@ -1,6 +1,5 @@
 ---
-original_url: https://www.latexstories.net/storiesad/christmas_gift.html
-subcategory: Latex Stories
+original_url: https://grometsplaza.net/
 title: A Christmas Gift
 authors:
 - ZM

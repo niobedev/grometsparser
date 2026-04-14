@@ -1,6 +1,5 @@
 ---
-original_url: https://www.selfbound.net/storiessz/sb_for_two.html
-subcategory: Selfbound Stories
+original_url: https://grometsplaza.net/
 title: Selfbondage for Two
 authors:
 - Tantalis

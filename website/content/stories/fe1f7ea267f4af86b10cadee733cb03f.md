@@ -1,6 +1,5 @@
 ---
-original_url: https://grometsplaza.net/world/ponygirl/storiesek/investigativereporter9.html
-subcategory: Giantess & Shrinking
+original_url: https://grometsplaza.net/
 title: 'The Investigative Reporter 9: Finding A Winning Mount'
 authors:
 - Jackie Rabbit

@@ -1,6 +1,5 @@
 ---
-original_url: https://grometsplaza.net/spandex/storieslz/lingerie_shop.html
-subcategory: Maid-bot Stories
+original_url: https://grometsplaza.net/
 title: Lingerie Shop
 authors:
 - TBN

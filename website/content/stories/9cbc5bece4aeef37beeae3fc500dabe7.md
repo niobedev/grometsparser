@@ -1,6 +1,5 @@
 ---
-original_url: https://www.latexstories.net/storieslr/rbrbillslastsolo.html
-subcategory: Latex Stories
+original_url: https://grometsplaza.net/
 title: Rbrbill's Last Solo
 authors:
 - rbrbill

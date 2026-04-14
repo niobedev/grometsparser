@@ -1,6 +1,5 @@
 ---
-original_url: https://www.latexstories.net/storiesad/cat_named_misha.html
-subcategory: Latex Stories
+original_url: https://grometsplaza.net/
 title: A Cat Named Misha
 authors:
 - Reblatex

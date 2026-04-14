@@ -1,6 +1,5 @@
 ---
-original_url: https://www.latexstories.net/storieslr/magic_panties.html
-subcategory: Latex Stories
+original_url: https://grometsplaza.net/
 title: Magic Panties
 authors:
 - Mikel

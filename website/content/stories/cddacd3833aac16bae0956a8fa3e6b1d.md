@@ -1,6 +1,5 @@
 ---
-original_url: https://www.boundstories.net/storiessz/summer_project11.html
-subcategory: Bound Stories
+original_url: https://grometsplaza.net/
 title: The Summer Project Part 11
 authors:
 - T S Fesseln

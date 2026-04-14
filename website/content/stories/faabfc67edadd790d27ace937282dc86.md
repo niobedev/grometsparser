@@ -1,6 +1,5 @@
 ---
-original_url: https://www.packagedstories.net/storieslr/a_life_boxed_away.html
-subcategory: Packaged/Encasement
+original_url: https://grometsplaza.net/
 title: A Life Boxed Away
 authors:
 - Jordan D

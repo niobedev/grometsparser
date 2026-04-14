@@ -1,6 +1,5 @@
 ---
-original_url: https://www.selfbound.net/storieslr/opa69_selfbondage.html
-subcategory: Selfbound Stories
+original_url: https://grometsplaza.net/
 title: Opa69 Selfbondage
 authors:
 - Opa69

@@ -1,6 +1,5 @@
 ---
-original_url: https://www.latexstories.net/storiesek/eisannas_fantasy.html
-subcategory: Latex Stories
+original_url: https://grometsplaza.net/
 title: Eisanna's Fantasy
 authors:
 - Eisanna Maria

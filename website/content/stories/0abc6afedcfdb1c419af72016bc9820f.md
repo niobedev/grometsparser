@@ -1,6 +1,5 @@
 ---
-original_url: https://www.latexstories.net/storiesad/anunfortunatenightswork.html
-subcategory: Latex Stories
+original_url: https://grometsplaza.net/
 title: An Unfortunate Nights Work
 authors:
 - Worzel

@@ -1,6 +1,5 @@
 ---
-original_url: https://www.selfbound.net/storieslr/notjustawalk.html
-subcategory: Selfbound Stories
+original_url: https://grometsplaza.net/
 title: Not Just a Walk in the Park
 authors:
 - Ralph

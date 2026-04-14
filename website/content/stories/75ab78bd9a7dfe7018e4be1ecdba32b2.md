@@ -1,6 +1,5 @@
 ---
-original_url: https://www.mummified.net/storiessz/sex_worm.html
-subcategory: Mummified
+original_url: https://grometsplaza.net/
 title: Sex Worm
 authors:
 - PHF

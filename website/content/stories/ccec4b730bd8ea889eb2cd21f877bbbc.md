@@ -1,6 +1,5 @@
 ---
-original_url: https://www.latexstories.net/storieslr/latex_sorceress4.html
-subcategory: Latex Stories
+original_url: https://grometsplaza.net/
 title: The Latex Sorceress 4
 authors:
 - Dollmaster

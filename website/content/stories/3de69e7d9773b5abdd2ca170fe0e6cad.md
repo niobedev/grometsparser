@@ -1,6 +1,5 @@
 ---
-original_url: https://grometsplaza.net/spandex/storieslz/leopard_one_night.html
-subcategory: Maid-bot Stories
+original_url: https://grometsplaza.net/
 title: Leopard One Night
 authors:
 - Tigerstretch

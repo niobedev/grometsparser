@@ -1,6 +1,5 @@
 ---
-original_url: https://www.boundstories.net/storieslr/mind_diary_of_a_judicial_slave11.html
-subcategory: Bound Stories
+original_url: https://grometsplaza.net/
 title: 642, Mind Diary of a Judicial Slave
 authors:
 - The Technician

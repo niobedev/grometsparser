@@ -1,6 +1,5 @@
 ---
-original_url: https://grometsplaza.net/world/tg/storiessz/silk_a_game_of_peril.html
-subcategory: Transformation
+original_url: https://grometsplaza.net/
 title: 'Silk: A Game of Peril'
 authors:
 - Sensual Robert

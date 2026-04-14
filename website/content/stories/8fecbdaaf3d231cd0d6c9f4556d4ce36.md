@@ -1,6 +1,5 @@
 ---
-original_url: https://grometsplaza.net/world/ponygirl/storieslr/mypetdog2.html
-subcategory: Giantess & Shrinking
+original_url: https://grometsplaza.net/
 title: My Pet Dog
 authors:
 - Garsponlin

@@ -1,6 +1,5 @@
 ---
-original_url: https://www.latexstories.net/storieslr/perverse_rubber_weekend.html
-subcategory: Latex Stories
+original_url: https://grometsplaza.net/
 title: Perverse Rubber Weekend
 authors:
 - Latexx

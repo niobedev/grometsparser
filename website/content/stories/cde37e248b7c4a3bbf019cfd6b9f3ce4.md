@@ -1,6 +1,5 @@
 ---
-original_url: https://www.boundstories.net/storiesek/intruder_technician.html
-subcategory: Bound Stories
+original_url: https://grometsplaza.net/
 title: Intruder
 authors:
 - The Technician

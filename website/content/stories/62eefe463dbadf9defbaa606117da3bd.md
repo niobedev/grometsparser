@@ -1,6 +1,5 @@
 ---
-original_url: https://www.boundstories.net/storiesek/the_instructions.html
-subcategory: Bound Stories
+original_url: https://grometsplaza.net/
 title: The Instructions
 authors:
 - Chris Powell

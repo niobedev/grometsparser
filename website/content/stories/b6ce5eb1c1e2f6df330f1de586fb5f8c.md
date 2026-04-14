@@ -1,6 +1,5 @@
 ---
-original_url: https://www.mummified.net/storieslr/rejuvenation.html
-subcategory: Mummified
+original_url: https://grometsplaza.net/
 title: Rejuvenation
 authors:
 - K

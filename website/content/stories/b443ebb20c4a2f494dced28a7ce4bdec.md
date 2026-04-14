@@ -1,6 +1,5 @@
 ---
-original_url: https://www.boundstories.net/storiesek/gaishift_oasis2.html
-subcategory: Bound Stories
+original_url: https://grometsplaza.net/
 title: 'Gai-Shift - Oasis Chapter 2: Carin the Flower Vitch'
 authors:
 - Rohana

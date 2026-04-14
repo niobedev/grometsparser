@@ -1,6 +1,5 @@
 ---
-original_url: https://www.boundstories.net/storiesad/aisforabduction.html
-subcategory: Bound Stories
+original_url: https://grometsplaza.net/
 title: A is for Abduction
 authors:
 - DarqueSoul

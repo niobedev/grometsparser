@@ -1,6 +1,5 @@
 ---
-original_url: https://www.selfbound.net/storiesad/balltied_belinda.html
-subcategory: Selfbound Stories
+original_url: https://grometsplaza.net/
 title: Balltied Belinda
 authors:
 - selfbound_2000

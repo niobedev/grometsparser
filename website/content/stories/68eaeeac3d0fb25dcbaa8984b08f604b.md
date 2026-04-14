@@ -1,6 +1,5 @@
 ---
-original_url: https://www.boundstories.net/storiesad/americandream6.html
-subcategory: Bound Stories
+original_url: https://grometsplaza.net/
 title: 'American Dream 6: Together Again'
 authors:
 - Andy Le Strange

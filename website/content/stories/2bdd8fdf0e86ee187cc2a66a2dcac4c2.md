@@ -1,6 +1,5 @@
 ---
-original_url: https://www.selfbound.net/storieslr/nakednightwalk.html
-subcategory: Selfbound Stories
+original_url: https://grometsplaza.net/
 title: Naked Night Walk
 authors:
 - Ima

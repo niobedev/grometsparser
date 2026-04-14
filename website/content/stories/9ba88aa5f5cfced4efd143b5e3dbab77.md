@@ -1,6 +1,5 @@
 ---
-original_url: https://grometsplaza.net/world/machine/storieslr/perilsofpauline2b.html
-subcategory: Devoured Stories
+original_url: https://grometsplaza.net/
 title: 'The Perils of Pauline 2: Married Bliss Part 2'
 authors:
 - 64Fordman

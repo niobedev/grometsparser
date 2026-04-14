@@ -1,6 +1,5 @@
 ---
-original_url: https://www.boundstories.net/storiesad/controlling_pauline.html
-subcategory: Bound Stories
+original_url: https://grometsplaza.net/
 title: Controlling Pauline
 authors:
 - Peter

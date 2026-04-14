@@ -1,6 +1,5 @@
 ---
-original_url: https://www.selfbound.net/storiesad/day_I_was_caught.html
-subcategory: Selfbound Stories
+original_url: https://grometsplaza.net/
 title: The Day I was Caught in Selfbondage
 authors:
 - Hershel Shaeffer

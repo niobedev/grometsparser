@@ -1,6 +1,5 @@
 ---
-original_url: https://grometsplaza.net/world/machine/storieslr/machine2a_encased.html
-subcategory: Devoured Stories
+original_url: https://grometsplaza.net/
 title: The Machine 2a - Encased
 authors:
 - Christy

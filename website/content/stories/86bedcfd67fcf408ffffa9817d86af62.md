@@ -1,6 +1,5 @@
 ---
-original_url: https://grometsplaza.net/world/tg/storieslr/night_on_the_deck.html
-subcategory: Transformation
+original_url: https://grometsplaza.net/
 title: A Night on the Deck
 authors:
 - Cindy

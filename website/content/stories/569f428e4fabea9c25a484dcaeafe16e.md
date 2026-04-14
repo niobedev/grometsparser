@@ -1,6 +1,5 @@
 ---
-original_url: https://www.boundstories.net/storiessz/sacrifice250.html
-subcategory: Bound Stories
+original_url: https://grometsplaza.net/
 title: Sacrifice 250
 authors:
 - The Technician

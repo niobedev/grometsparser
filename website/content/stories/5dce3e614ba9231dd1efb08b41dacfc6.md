@@ -1,6 +1,5 @@
 ---
-original_url: https://www.latexstories.net/storieslr/quiettimeinlatex.html
-subcategory: Latex Stories
+original_url: https://grometsplaza.net/
 title: Quiet Time in Latex
 authors:
 - KinkyWriter

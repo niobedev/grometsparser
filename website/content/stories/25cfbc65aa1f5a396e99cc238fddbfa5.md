@@ -1,6 +1,5 @@
 ---
-original_url: https://www.boundstories.net/storiessz/squires_surprise.html
-subcategory: Bound Stories
+original_url: https://grometsplaza.net/
 title: Squire's Surprise
 authors:
 - Squire

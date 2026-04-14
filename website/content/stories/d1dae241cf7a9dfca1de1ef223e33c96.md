@@ -1,6 +1,5 @@
 ---
-original_url: https://www.dollstories.net/storiesek/flying.html
-subcategory: Doll Stories
+original_url: https://grometsplaza.net/
 title: Flying High in the Sky
 authors:
 - Northern Chill

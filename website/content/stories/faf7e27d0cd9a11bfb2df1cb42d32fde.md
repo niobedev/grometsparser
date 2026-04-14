@@ -1,6 +1,5 @@
 ---
-original_url: https://grometsplaza.net/world/machine/storiesad/automart.html
-subcategory: Devoured Stories
+original_url: https://grometsplaza.net/
 title: Automart
 authors:
 - 64Fordman

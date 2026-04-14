@@ -1,6 +1,5 @@
 ---
-original_url: https://www.boundstories.net/storiesek/keepingkellybusy.html
-subcategory: Bound Stories
+original_url: https://grometsplaza.net/
 title: Keeping Kelly Busy
 authors:
 - MindSplinter

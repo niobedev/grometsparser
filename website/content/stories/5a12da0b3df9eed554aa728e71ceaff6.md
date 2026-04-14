@@ -1,6 +1,5 @@
 ---
-original_url: https://www.boundstories.net/storieslr/paradicelost5.html
-subcategory: Bound Stories
+original_url: https://grometsplaza.net/
 title: 'Paradice Lost 5: A Rare Gift'
 authors:
 - A Pensive Pen

@@ -1,6 +1,5 @@
 ---
-original_url: https://grometsplaza.net/eroticstories/storiesad/choker.html
-subcategory: Spandex
+original_url: https://grometsplaza.net/
 title: Choker
 authors:
 - Baubleheadz

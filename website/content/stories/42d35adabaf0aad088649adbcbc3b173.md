@@ -1,6 +1,5 @@
 ---
-original_url: https://www.latexstories.net/storiesad/coldturkey.html
-subcategory: Latex Stories
+original_url: https://grometsplaza.net/
 title: Cold Turkey
 authors:
 - Rbbral

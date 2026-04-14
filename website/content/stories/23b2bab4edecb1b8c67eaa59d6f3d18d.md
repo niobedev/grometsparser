@@ -1,6 +1,5 @@
 ---
-original_url: https://www.selfbound.net/storiessz/unexpected_mind_blower.html
-subcategory: Selfbound Stories
+original_url: https://grometsplaza.net/
 title: Unexpected Mind Blower
 authors:
 - Sean Dunne

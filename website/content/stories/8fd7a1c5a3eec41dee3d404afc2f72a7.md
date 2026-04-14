@@ -1,6 +1,5 @@
 ---
-original_url: https://grometsplaza.net/world/ponygirl/storieslr/ponyforrent2.html
-subcategory: Giantess & Shrinking
+original_url: https://grometsplaza.net/
 title: 'Pony for Rent 2: Competition'
 authors:
 - Ron McIngle

@@ -1,6 +1,5 @@
 ---
-original_url: https://www.mummified.net/storiesad/blue_mummy.html
-subcategory: Mummified
+original_url: https://grometsplaza.net/
 title: Blue Mummy
 authors:
 - Morniel

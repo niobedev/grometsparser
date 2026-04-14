@@ -1,6 +1,5 @@
 ---
-original_url: https://www.boundstories.net/storiesek/gifts.html
-subcategory: Bound Stories
+original_url: https://grometsplaza.net/
 title: Gifts Part 1
 authors:
 - J&P

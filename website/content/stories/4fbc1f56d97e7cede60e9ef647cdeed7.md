@@ -1,6 +1,5 @@
 ---
-original_url: https://www.packagedstories.net/storiesek/jessicadisplay3.html
-subcategory: Packaged/Encasement
+original_url: https://grometsplaza.net/
 title: The Jessica Display 3
 authors:
 - Jackie Rabbit

@@ -1,6 +1,5 @@
 ---
-original_url: https://www.selfbound.net/storiessz/spandex_selfbondage.html
-subcategory: Selfbound Stories
+original_url: https://grometsplaza.net/
 title: Spandex Self-bondage
 authors:
 - LycraLover

@@ -1,6 +1,5 @@
 ---
-original_url: https://www.boundstories.net/storieslr/my_wife_locked_up_my_cock.html
-subcategory: Bound Stories
+original_url: https://grometsplaza.net/
 title: My Wife Locked Up My Cock
 authors:
 - Sensual Robert

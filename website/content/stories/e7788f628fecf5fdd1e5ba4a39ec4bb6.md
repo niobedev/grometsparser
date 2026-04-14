@@ -1,6 +1,5 @@
 ---
-original_url: https://www.latexstories.net/storiessz/seeing_orange3.html
-subcategory: Latex Stories
+original_url: https://grometsplaza.net/
 title: Seeing Orange 3
 authors:
 - Latexcheeks

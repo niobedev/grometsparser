@@ -1,6 +1,5 @@
 ---
-original_url: https://www.selfbound.net/storiesad/discovered_badposition2.html
-subcategory: Selfbound Stories
+original_url: https://grometsplaza.net/
 title: 'Discovered in a Bad Position 2: Punishment'
 authors:
 - Ralph

@@ -1,6 +1,5 @@
 ---
-original_url: https://www.boundstories.net/storiesad/brags_female3.html
-subcategory: Bound Stories
+original_url: https://grometsplaza.net/
 title: Brag's Female
 authors:
 - LilCthulhu

@@ -1,6 +1,5 @@
 ---
-original_url: https://grometsplaza.net/special/halloween21/cassies_curses.html
-subcategory: TG/CD Stories
+original_url: https://grometsplaza.net/
 title: Cassie's Curses
 authors:
 - ZTVFemdomtales

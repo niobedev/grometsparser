@@ -1,6 +1,5 @@
 ---
-original_url: https://www.boundstories.net/storieslr/reprogramming.html
-subcategory: Bound Stories
+original_url: https://grometsplaza.net/
 title: Reprogramming
 authors:
 - Darkraptor1

@@ -1,6 +1,5 @@
 ---
-original_url: https://www.latexstories.net/storiessz/wheel_fortune2.html
-subcategory: Latex Stories
+original_url: https://grometsplaza.net/
 title: Wheel of Fortune
 authors:
 - Ultraprene

@@ -1,6 +1,5 @@
 ---
-original_url: https://www.packagedstories.net/storiesek/erin_eleanor.html
-subcategory: Packaged/Encasement
+original_url: https://grometsplaza.net/
 title: Erin & Eleanor
 authors:
 - Lobo De la Sombra

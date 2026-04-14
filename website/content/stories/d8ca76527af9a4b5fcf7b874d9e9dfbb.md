@@ -1,6 +1,5 @@
 ---
-original_url: https://www.boundstories.net/storiesek/friendly_wager.html
-subcategory: Bound Stories
+original_url: https://grometsplaza.net/
 title: A Friendly Wager
 authors:
 - Unknown

@@ -1,6 +1,5 @@
 ---
-original_url: https://www.boundstories.net/storiesek/invitation.html
-subcategory: Bound Stories
+original_url: https://grometsplaza.net/
 title: Invitation
 authors:
 - Scarecrow

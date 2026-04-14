@@ -1,6 +1,5 @@
 ---
-original_url: https://www.selfbound.net/storiesek/holiday_hogtie.html
-subcategory: Selfbound Stories
+original_url: https://grometsplaza.net/
 title: Holiday Hogtie
 authors:
 - Wishful Husband

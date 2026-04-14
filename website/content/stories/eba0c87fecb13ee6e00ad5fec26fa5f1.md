@@ -1,6 +1,5 @@
 ---
-original_url: https://grometsplaza.net/world/machine/storieslr/maryshelleysmonster.html
-subcategory: Devoured Stories
+original_url: https://grometsplaza.net/
 title: Mary Shelley's Monster
 authors:
 - Daviddrb6

@@ -1,6 +1,5 @@
 ---
-original_url: https://www.latexstories.net/storiesek/installation_puppet.html
-subcategory: Latex Stories
+original_url: https://grometsplaza.net/
 title: 'Installation 6: Puppet'
 authors:
 - Cdpx

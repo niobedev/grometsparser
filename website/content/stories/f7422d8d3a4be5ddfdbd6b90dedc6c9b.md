@@ -1,6 +1,5 @@
 ---
-original_url: https://www.boundstories.net/storieslr/latenightlibraryfantasy.html
-subcategory: Bound Stories
+original_url: https://grometsplaza.net/
 title: Late Night Library Fantasy
 authors:
 - Miss Trussed

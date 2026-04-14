@@ -1,6 +1,5 @@
 ---
-original_url: https://www.trashcanstories.net/storiessz/therapy.html
-subcategory: Erotic Stories
+original_url: https://grometsplaza.net/
 title: Therapy
 authors:
 - Schattenrose Miriam

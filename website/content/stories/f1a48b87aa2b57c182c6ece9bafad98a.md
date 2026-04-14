@@ -1,6 +1,5 @@
 ---
-original_url: https://www.boundstories.net/storiesad/bound_for_vegas.html
-subcategory: Bound Stories
+original_url: https://grometsplaza.net/
 title: Bound For Vegas Bondcon 2004
 authors:
 - Pierced_m

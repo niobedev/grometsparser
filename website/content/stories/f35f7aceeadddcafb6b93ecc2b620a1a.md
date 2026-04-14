@@ -1,6 +1,5 @@
 ---
-original_url: https://www.boundstories.net/storiesek/her_captor4.html
-subcategory: Bound Stories
+original_url: https://grometsplaza.net/
 title: Her Captor
 authors:
 - Walt A.K.A. Xan

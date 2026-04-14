@@ -1,6 +1,5 @@
 ---
-original_url: https://www.selfbound.net/storiesad/bound_for_vengence.html
-subcategory: Selfbound Stories
+original_url: https://grometsplaza.net/
 title: Bound for Vengeance
 authors:
 - Otto Dix

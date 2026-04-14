@@ -1,6 +1,5 @@
 ---
-original_url: https://grometsplaza.net/world/ponygirl/storiessz/workinghumanmilkfactory.html
-subcategory: Giantess & Shrinking
+original_url: https://grometsplaza.net/
 title: Working at the Human-Milk Factory
 authors:
 - Denkira7

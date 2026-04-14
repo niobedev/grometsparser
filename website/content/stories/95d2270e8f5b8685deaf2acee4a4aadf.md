@@ -1,6 +1,5 @@
 ---
-original_url: https://www.selfbound.net/storiesad/adventures_alanya.html
-subcategory: Selfbound Stories
+original_url: https://grometsplaza.net/
 title: Adventures in Alanya
 authors:
 - Andi

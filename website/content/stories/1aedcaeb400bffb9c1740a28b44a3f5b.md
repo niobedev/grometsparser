@@ -1,6 +1,5 @@
 ---
-original_url: https://www.latexstories.net/storiesek/installation_icequeen.html
-subcategory: Latex Stories
+original_url: https://grometsplaza.net/
 title: 'Installation 4: Ice Queen'
 authors:
 - Cdpx

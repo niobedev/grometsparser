@@ -1,6 +1,5 @@
 ---
-original_url: https://www.packagedstories.net/storieslr/laurascouch2.html
-subcategory: Packaged/Encasement
+original_url: https://grometsplaza.net/
 title: Laura's Couch 2
 authors:
 - Andrea Jordan

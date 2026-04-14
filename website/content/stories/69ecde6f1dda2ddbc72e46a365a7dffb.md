@@ -1,6 +1,5 @@
 ---
-original_url: https://www.selfbound.net/storiesek/thejacket.html
-subcategory: Selfbound Stories
+original_url: https://grometsplaza.net/
 title: The Jacket
 authors:
 - Rupes

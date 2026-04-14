@@ -1,6 +1,5 @@
 ---
-original_url: https://www.selfbound.net/storieslr/rivals3.html
-subcategory: Selfbound Stories
+original_url: https://grometsplaza.net/
 title: 'The Rivals 3: When It Rains, It Pours'
 authors:
 - Miss Fortune

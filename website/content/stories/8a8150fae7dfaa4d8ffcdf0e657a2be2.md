@@ -1,6 +1,5 @@
 ---
-original_url: https://www.boundstories.net/storiessz/sleep_sack.html
-subcategory: Bound Stories
+original_url: https://grometsplaza.net/
 title: Sleep Sack
 authors:
 - Mikel

@@ -1,6 +1,5 @@
 ---
-original_url: https://www.latexstories.net/storiesek/fourplay3.html
-subcategory: Latex Stories
+original_url: https://grometsplaza.net/
 title: 'Four Play 3: Decision Time'
 authors:
 - Rbbral

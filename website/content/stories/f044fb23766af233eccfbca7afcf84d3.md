@@ -1,6 +1,5 @@
 ---
-original_url: https://www.latexstories.net/storiesek/theexperiment3.html
-subcategory: Latex Stories
+original_url: https://grometsplaza.net/
 title: The Experiment 3
 authors:
 - Lobo De la Sombra

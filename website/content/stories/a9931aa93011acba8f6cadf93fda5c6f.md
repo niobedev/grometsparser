@@ -1,6 +1,5 @@
 ---
-original_url: https://www.selfbound.net/storiesek/just_good_friends.html
-subcategory: Selfbound Stories
+original_url: https://grometsplaza.net/
 title: Just Good Friends
 authors:
 - Jay Jansen

@@ -1,6 +1,5 @@
 ---
-original_url: https://www.latexstories.net/storieslr/rocky_road_to_ruin.html
-subcategory: Latex Stories
+original_url: https://grometsplaza.net/
 title: The Rocky Road to Ruin
 authors:
 - Rubberwolf

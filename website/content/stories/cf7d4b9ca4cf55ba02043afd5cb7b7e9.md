@@ -1,6 +1,5 @@
 ---
-original_url: https://grometsplaza.net/world/transformation/storieslr/mimeinthebox.html
-subcategory: Buried & Sinking
+original_url: https://grometsplaza.net/
 title: The Mime In The Box
 authors:
 - Rubberbando

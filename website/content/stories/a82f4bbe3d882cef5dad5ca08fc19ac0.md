@@ -1,6 +1,5 @@
 ---
-original_url: https://www.boundstories.net/storiessz/troubleinfairyland4.html
-subcategory: Bound Stories
+original_url: https://grometsplaza.net/
 title: 'Trouble in Fairyland 4: Snow White Turned'
 authors:
 - Cropsncuffs

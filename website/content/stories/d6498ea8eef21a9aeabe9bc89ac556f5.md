@@ -1,6 +1,5 @@
 ---
-original_url: https://grometsplaza.net/world/machine/storiessz/smart_tape_robot.html
-subcategory: Devoured Stories
+original_url: https://grometsplaza.net/
 title: 'Smart Duct tape: The robot'
 authors:
 - Darkraptor

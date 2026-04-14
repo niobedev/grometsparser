@@ -1,6 +1,5 @@
 ---
-original_url: https://www.latexstories.net/storiesad/black_amoeba.html
-subcategory: Latex Stories
+original_url: https://grometsplaza.net/
 title: Black Amoeba & the Holy Grail
 authors:
 - Ataraxia

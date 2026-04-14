@@ -1,6 +1,5 @@
 ---
-original_url: https://www.packagedstories.net/storiesek/erotic_magic_club4.html
-subcategory: Packaged/Encasement
+original_url: https://grometsplaza.net/
 title: The Erotic Magic Club Part 4
 authors:
 - Doug S

@@ -1,6 +1,5 @@
 ---
-original_url: https://www.boundstories.net/storiesek/fantasticlavacake.html
-subcategory: Bound Stories
+original_url: https://grometsplaza.net/
 title: Fantastic Lava Cake
 authors:
 - Kristjan

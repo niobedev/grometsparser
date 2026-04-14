@@ -1,6 +1,5 @@
 ---
-original_url: https://www.boundstories.net/storiesek/house_of_the_rising_sun.html
-subcategory: Bound Stories
+original_url: https://grometsplaza.net/
 title: House of the Rising Sun
 authors:
 - prometheus_b

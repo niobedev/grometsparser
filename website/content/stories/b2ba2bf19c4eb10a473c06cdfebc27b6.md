@@ -1,6 +1,5 @@
 ---
-original_url: https://www.selfbound.net/storiessz/selfbondage_slave.html
-subcategory: Selfbound Stories
+original_url: https://grometsplaza.net/
 title: Selfbondage Slave
 authors:
 - Apryllrain

@@ -1,6 +1,5 @@
 ---
-original_url: https://grometsplaza.net/world/transformation/storiessz/transformation_vignettes.html
-subcategory: Buried & Sinking
+original_url: https://grometsplaza.net/
 title: Transformation Vignettes
 authors:
 - Baubleheadz

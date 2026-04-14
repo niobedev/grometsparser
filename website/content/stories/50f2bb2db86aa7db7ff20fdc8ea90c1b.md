@@ -1,6 +1,5 @@
 ---
-original_url: https://www.boundstories.net/storieslr/moroccan_vacation.html
-subcategory: Bound Stories
+original_url: https://grometsplaza.net/
 title: Moroccan Vacation
 authors:
 - TagsAPoppin

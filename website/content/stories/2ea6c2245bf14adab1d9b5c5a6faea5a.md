@@ -1,6 +1,5 @@
 ---
-original_url: https://grometsplaza.net/special/halloween23/supergirl.html
-subcategory: TG/CD Stories
+original_url: https://grometsplaza.net/
 title: Supergirl
 authors:
 - Tigerstretch

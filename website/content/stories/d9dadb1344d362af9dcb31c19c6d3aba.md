@@ -1,6 +1,5 @@
 ---
-original_url: https://www.selfbound.net/storiessz/table_tied_mistake.html
-subcategory: Selfbound Stories
+original_url: https://grometsplaza.net/
 title: The Table Tied Mistake
 authors:
 - Johan

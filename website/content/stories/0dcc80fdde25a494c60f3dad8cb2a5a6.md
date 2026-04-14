@@ -1,6 +1,5 @@
 ---
-original_url: https://www.boundstories.net/storieslr/ladieswestward.html
-subcategory: Bound Stories
+original_url: https://grometsplaza.net/
 title: Ladies Westward
 authors:
 - Uto

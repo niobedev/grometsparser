@@ -1,6 +1,5 @@
 ---
-original_url: https://www.latexstories.net/storiesek/hopefloats3.html
-subcategory: Latex Stories
+original_url: https://grometsplaza.net/
 title: 'Hope Floats Part 3: Mermaids'
 authors:
 - Nate Walis

@@ -1,6 +1,5 @@
 ---
-original_url: https://www.boundstories.net/storiesad/daveannisnight.html
-subcategory: Bound Stories
+original_url: https://grometsplaza.net/
 title: A Dave Annis Night
 authors:
 - Jenny Bonici

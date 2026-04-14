@@ -1,6 +1,5 @@
 ---
-original_url: https://grometsplaza.net/world/machine/storiesek/the_invention2.html
-subcategory: Devoured Stories
+original_url: https://grometsplaza.net/
 title: The Invention Part 2
 authors:
 - Lobo De la Sombra

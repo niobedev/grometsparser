@@ -1,6 +1,5 @@
 ---
-original_url: https://www.mummified.net/storiesek/happy_couple.html
-subcategory: Mummified
+original_url: https://grometsplaza.net/
 title: The Happy Couple
 authors:
 - Darkraptor1

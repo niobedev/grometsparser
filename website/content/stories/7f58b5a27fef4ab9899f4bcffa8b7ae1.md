@@ -1,6 +1,5 @@
 ---
-original_url: https://grometsplaza.net/world/buried/storieslr/the_pond.html
-subcategory: Trashcan Stories
+original_url: https://grometsplaza.net/
 title: The Pond
 authors:
 - Jo

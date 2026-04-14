@@ -1,6 +1,5 @@
 ---
-original_url: https://grometsplaza.net/world/tg/storiesad/blackmailed_for_the_first_time.html
-subcategory: Transformation
+original_url: https://grometsplaza.net/
 title: Blackmailed For The First Time
 authors:
 - sissykelli92

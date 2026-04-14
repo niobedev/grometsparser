@@ -1,6 +1,5 @@
 ---
-original_url: https://www.packagedstories.net/storiessz/servingroan.html
-subcategory: Packaged/Encasement
+original_url: https://grometsplaza.net/
 title: Serving Ro-an
 authors:
 - OutCast

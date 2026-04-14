@@ -1,6 +1,5 @@
 ---
-original_url: https://www.latexstories.net/storiesek/fitting_mount.html
-subcategory: Latex Stories
+original_url: https://grometsplaza.net/
 title: A Fitting Mount
 authors:
 - Rubberwolf

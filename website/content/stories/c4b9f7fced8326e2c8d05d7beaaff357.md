@@ -1,6 +1,5 @@
 ---
-original_url: https://www.selfbound.net/storiessz/whatanightmare.html
-subcategory: Selfbound Stories
+original_url: https://grometsplaza.net/
 title: What a Nightmare
 authors:
 - Mikel

@@ -1,6 +1,5 @@
 ---
-original_url: https://grometsplaza.net/world/machine/storiessz/takeitlikeasheep2.html
-subcategory: Devoured Stories
+original_url: https://grometsplaza.net/
 title: 'Take it Like a Sheep! 2: Julia on a Stick'
 authors:
 - Riptieron

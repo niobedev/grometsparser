@@ -1,6 +1,5 @@
 ---
-original_url: https://grometsplaza.net/world/transformation/storiessz/sru_anexcitingpresent2.html
-subcategory: Buried & Sinking
+original_url: https://grometsplaza.net/
 title: 'SRU: An Exciting Present 2: Consequences'
 authors:
 - Lycra GG

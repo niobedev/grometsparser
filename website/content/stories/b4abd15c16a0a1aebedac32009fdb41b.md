@@ -1,6 +1,5 @@
 ---
-original_url: https://www.selfbound.net/storiesad/distress_call.html
-subcategory: Selfbound Stories
+original_url: https://grometsplaza.net/
 title: Distress Call
 authors:
 - Ralph

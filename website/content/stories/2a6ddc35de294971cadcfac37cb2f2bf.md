@@ -1,6 +1,5 @@
 ---
-original_url: https://grometsplaza.net/world/transformation/storieslr/reunion.html
-subcategory: Buried & Sinking
+original_url: https://grometsplaza.net/
 title: Reunion
 authors:
 - AmyAmy

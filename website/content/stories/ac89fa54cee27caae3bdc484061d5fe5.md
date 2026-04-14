@@ -1,6 +1,5 @@
 ---
-original_url: https://www.boundstories.net/storiesek/iwanttobeadominatrix.html
-subcategory: Bound Stories
+original_url: https://grometsplaza.net/
 title: I Want to be a Dominatrix
 authors:
 - Lady Tressa

@@ -1,6 +1,5 @@
 ---
-original_url: https://www.mummified.net/storiesek/just_punishment.html
-subcategory: Mummified
+original_url: https://grometsplaza.net/
 title: The Just Punishment
 authors:
 - Restricted

@@ -1,6 +1,5 @@
 ---
-original_url: https://www.latexstories.net/storieslr/lettersfromkaylin5.html
-subcategory: Latex Stories
+original_url: https://grometsplaza.net/
 title: 'Letters From Kaylin Chapter 2: Journeys Part 3'
 authors:
 - RbrBill

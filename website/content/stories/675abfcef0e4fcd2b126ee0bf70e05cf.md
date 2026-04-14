@@ -1,6 +1,5 @@
 ---
-original_url: https://www.selfbound.net/storiessz/sb_fantasy.html
-subcategory: Selfbound Stories
+original_url: https://grometsplaza.net/
 title: Self Bondage Fantasy
 authors:
 - Azn_Selfbondage

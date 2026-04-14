@@ -1,6 +1,5 @@
 ---
-original_url: https://www.selfbound.net/storiessz/vickis_mistake.html
-subcategory: Selfbound Stories
+original_url: https://grometsplaza.net/
 title: Vicky’s Mistake
 authors:
 - James Ellis

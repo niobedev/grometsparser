@@ -1,6 +1,5 @@
 ---
-original_url: https://grometsplaza.net/spandex/storieslz/spandexmaidsbirthdaysurprise.html
-subcategory: Maid-bot Stories
+original_url: https://grometsplaza.net/
 title: Spandex Maids' Birthday Surprise
 authors:
 - The Spandex Maid

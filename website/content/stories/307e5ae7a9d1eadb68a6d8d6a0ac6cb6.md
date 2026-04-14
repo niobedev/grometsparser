@@ -1,6 +1,5 @@
 ---
-original_url: https://www.latexstories.net/storiesek/enteringrubbersociety3.html
-subcategory: Latex Stories
+original_url: https://grometsplaza.net/
 title: 'Entering Rubber Society 3: The Fitting'
 authors:
 - LatexLadyLL

@@ -1,6 +1,5 @@
 ---
-original_url: https://www.trashcanstories.net/storieslr/thelandfill.html
-subcategory: Erotic Stories
+original_url: https://grometsplaza.net/
 title: The Landfill
 authors:
 - Trashydiaperedman

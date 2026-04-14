@@ -1,6 +1,5 @@
 ---
-original_url: https://www.latexstories.net/storiesek/katesgoingtosea.html
-subcategory: Latex Stories
+original_url: https://grometsplaza.net/
 title: Kate's Going to Sea
 authors:
 - Druid5

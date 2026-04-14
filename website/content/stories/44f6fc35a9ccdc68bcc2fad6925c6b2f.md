@@ -1,6 +1,5 @@
 ---
-original_url: https://www.latexstories.net/storiesek/enteringrubbersociety4.html
-subcategory: Latex Stories
+original_url: https://grometsplaza.net/
 title: 'Entering Rubber Society 4: The Streets'
 authors:
 - LatexLadyLL

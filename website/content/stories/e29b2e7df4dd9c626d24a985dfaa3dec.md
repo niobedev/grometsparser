@@ -1,6 +1,5 @@
 ---
-original_url: https://www.selfbound.net/storiesek/janie.html
-subcategory: Selfbound Stories
+original_url: https://grometsplaza.net/
 title: Janie
 authors:
 - The Storyteller

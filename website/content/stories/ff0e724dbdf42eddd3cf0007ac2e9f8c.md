@@ -1,6 +1,5 @@
 ---
-original_url: https://www.mummified.net/storiessz/sara_kidnapped.html
-subcategory: Mummified
+original_url: https://grometsplaza.net/
 title: Sara Kidnapped
 authors:
 - Sarablade1967

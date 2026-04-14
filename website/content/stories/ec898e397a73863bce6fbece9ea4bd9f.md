@@ -1,6 +1,5 @@
 ---
-original_url: https://www.latexstories.net/storiessz/willing_to_be_a_mistress.html
-subcategory: Latex Stories
+original_url: https://grometsplaza.net/
 title: Willing to be a Mistress
 authors:
 - Enclosed Lady

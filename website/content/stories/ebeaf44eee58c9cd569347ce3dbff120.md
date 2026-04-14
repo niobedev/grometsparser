@@ -1,6 +1,5 @@
 ---
-original_url: https://www.boundstories.net/storiesek/jamies_day.html
-subcategory: Bound Stories
+original_url: https://grometsplaza.net/
 title: Jamie’s Day
 authors:
 - Cynthia Harder

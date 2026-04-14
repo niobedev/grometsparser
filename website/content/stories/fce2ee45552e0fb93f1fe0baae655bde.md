@@ -1,6 +1,5 @@
 ---
-original_url: https://www.boundstories.net/storiesad/behind_closed_doors9.html
-subcategory: Bound Stories
+original_url: https://grometsplaza.net/
 title: Behind Closed Doors 9 - Party Pistons
 authors:
 - Anne Gray

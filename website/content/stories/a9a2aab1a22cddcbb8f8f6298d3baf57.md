@@ -1,6 +1,5 @@
 ---
-original_url: https://grometsplaza.net/world/ponygirl/storiesad/animal_cafe20.html
-subcategory: Giantess & Shrinking
+original_url: https://grometsplaza.net/
 title: Animal Cafe
 authors:
 - Tigerstretch

@@ -1,6 +1,5 @@
 ---
-original_url: https://www.mummified.net/storieslr/livingthemummydream2.html
-subcategory: Mummified
+original_url: https://grometsplaza.net/
 title: Livin’ the Mummy Dream 2
 authors:
 - Mumman

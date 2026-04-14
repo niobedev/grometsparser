@@ -1,6 +1,5 @@
 ---
-original_url: https://www.boundstories.net/storieslr/moreeverytwoweeks.html
-subcategory: Bound Stories
+original_url: https://grometsplaza.net/
 title: More Every Two Weeks
 authors:
 - Jeza

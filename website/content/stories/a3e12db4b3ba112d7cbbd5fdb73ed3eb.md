@@ -1,6 +1,5 @@
 ---
-original_url: https://www.selfbound.net/storiessz/winners_losers.html
-subcategory: Selfbound Stories
+original_url: https://grometsplaza.net/
 title: Winners & Losers
 authors:
 - New Guy

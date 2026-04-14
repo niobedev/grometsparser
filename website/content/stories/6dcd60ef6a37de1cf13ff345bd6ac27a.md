@@ -1,6 +1,5 @@
 ---
-original_url: https://www.latexstories.net/storiesek/jessica_darling9.html
-subcategory: Latex Stories
+original_url: https://grometsplaza.net/
 title: 'Jessica Darling 9: Can I Get a Little Help?'
 authors:
 - Michael England

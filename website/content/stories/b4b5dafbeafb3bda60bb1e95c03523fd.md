@@ -1,6 +1,5 @@
 ---
-original_url: https://www.latexstories.net/storieslr/late-x.html
-subcategory: Latex Stories
+original_url: https://grometsplaza.net/
 title: Late-X
 authors:
 - The Latex Girl

@@ -1,6 +1,5 @@
 ---
-original_url: https://www.boundstories.net/storiessz/too_clever_by_half.html
-subcategory: Bound Stories
+original_url: https://grometsplaza.net/
 title: Too Clever By Half
 authors:
 - Guy le Bouc

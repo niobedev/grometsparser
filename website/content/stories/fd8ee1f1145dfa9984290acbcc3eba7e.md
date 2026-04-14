@@ -1,6 +1,5 @@
 ---
-original_url: https://www.dollstories.net/storieslr/operationrubberdoll.html
-subcategory: Doll Stories
+original_url: https://grometsplaza.net/
 title: Operation Rubberdoll
 authors:
 - PlastiClown

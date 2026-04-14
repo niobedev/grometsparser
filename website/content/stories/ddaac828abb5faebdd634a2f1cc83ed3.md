@@ -1,6 +1,5 @@
 ---
-original_url: https://www.boundstories.net/storiesek/gai_shift11.html
-subcategory: Bound Stories
+original_url: https://grometsplaza.net/
 title: 'Gai-Shift 11: The Sister with the Forward Tail'
 authors:
 - Rohana

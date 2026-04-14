@@ -1,6 +1,5 @@
 ---
-original_url: https://grometsplaza.net/world/ponygirl/storiesek/investigativereporter4.html
-subcategory: Giantess & Shrinking
+original_url: https://grometsplaza.net/
 title: 'The Investigative Reporter 4: Observations'
 authors:
 - Jackie Rabbit

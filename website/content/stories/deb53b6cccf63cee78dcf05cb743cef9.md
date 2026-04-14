@@ -1,6 +1,5 @@
 ---
-original_url: https://www.selfbound.net/storiesad/absolute_trust.html
-subcategory: Selfbound Stories
+original_url: https://grometsplaza.net/
 title: Absolute Trust
 authors:
 - Mistress Melinda

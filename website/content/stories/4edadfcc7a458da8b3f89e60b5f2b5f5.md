@@ -1,6 +1,5 @@
 ---
-original_url: https://www.boundstories.net/storiesek/eighteen_hours.html
-subcategory: Bound Stories
+original_url: https://grometsplaza.net/
 title: 18 Hours of Bondage
 authors:
 - Cdsub4u

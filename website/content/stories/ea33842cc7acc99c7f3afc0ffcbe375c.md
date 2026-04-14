@@ -1,6 +1,5 @@
 ---
-original_url: https://www.boundstories.net/storieslr/reinventionofthemaskedman3.html
-subcategory: Bound Stories
+original_url: https://grometsplaza.net/
 title: The Reinvention of the Masked Man 3
 authors:
 - Lady Tressa

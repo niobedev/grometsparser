@@ -1,6 +1,5 @@
 ---
-original_url: https://www.latexstories.net/storieslr/pleasekeepyourticket3.html
-subcategory: Latex Stories
+original_url: https://grometsplaza.net/
 title: 'Please Keep Your Ticket With You 3: Like Flies'
 authors:
 - Andy Latex

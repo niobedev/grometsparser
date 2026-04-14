@@ -1,6 +1,5 @@
 ---
-original_url: https://www.dollstories.net/storiesad/dreamweaver01.html
-subcategory: Doll Stories
+original_url: https://grometsplaza.net/
 title: 'Dream Weaver: A Week in Plastic'
 authors:
 - Shaded Sun

@@ -1,6 +1,5 @@
 ---
-original_url: https://www.dollstories.net/storiesad/alternativemedicine.html
-subcategory: Doll Stories
+original_url: https://grometsplaza.net/
 title: Alternative Medicine
 authors:
 - Redneck Rubber

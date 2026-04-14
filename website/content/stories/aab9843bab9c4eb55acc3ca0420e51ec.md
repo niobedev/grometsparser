@@ -1,6 +1,5 @@
 ---
-original_url: https://www.boundstories.net/storiesek/findinglori.html
-subcategory: Bound Stories
+original_url: https://grometsplaza.net/
 title: Finding Lori
 authors:
 - Mikel

@@ -1,6 +1,5 @@
 ---
-original_url: https://www.latexstories.net/storieslr/luckyfunnoveltycompany.html
-subcategory: Latex Stories
+original_url: https://grometsplaza.net/
 title: The Lucky Fun Novelty Company
 authors:
 - Jo

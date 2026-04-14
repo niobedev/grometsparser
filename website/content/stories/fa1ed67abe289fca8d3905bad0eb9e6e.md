@@ -1,6 +1,5 @@
 ---
-original_url: https://www.mummified.net/storiessz/why_we_do_it.html
-subcategory: Mummified
+original_url: https://grometsplaza.net/
 title: Why do we do It
 authors:
 - Jenny

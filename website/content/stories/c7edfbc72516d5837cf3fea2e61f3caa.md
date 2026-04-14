@@ -1,6 +1,5 @@
 ---
-original_url: https://www.trashcanstories.net/storieslr/mindandbody.html
-subcategory: Erotic Stories
+original_url: https://grometsplaza.net/
 title: Mind & Body
 authors:
 - Doctor Vader

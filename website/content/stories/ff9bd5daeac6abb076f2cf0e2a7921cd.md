@@ -1,6 +1,5 @@
 ---
-original_url: https://grometsplaza.net/spandex/storieslz/sushibarofkink.html
-subcategory: Maid-bot Stories
+original_url: https://grometsplaza.net/
 title: Sushi Bar of Kink
 authors:
 - Agentdrow

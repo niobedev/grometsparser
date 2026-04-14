@@ -1,6 +1,5 @@
 ---
-original_url: https://www.latexstories.net/storieslr/newspringline7.html
-subcategory: Latex Stories
+original_url: https://grometsplaza.net/
 title: The New Spring Line
 authors:
 - RubberH

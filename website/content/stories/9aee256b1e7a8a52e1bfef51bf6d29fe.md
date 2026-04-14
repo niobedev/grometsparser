@@ -1,6 +1,5 @@
 ---
-original_url: https://www.mummified.net/storiesek/foaming.html
-subcategory: Mummified
+original_url: https://grometsplaza.net/
 title: Foaming
 authors:
 - Jenny

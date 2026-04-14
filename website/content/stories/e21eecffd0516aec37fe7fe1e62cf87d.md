@@ -1,6 +1,5 @@
 ---
-original_url: https://www.selfbound.net/storiessz/sucking_for_freedom.html
-subcategory: Selfbound Stories
+original_url: https://grometsplaza.net/
 title: Sucking for Freedom
 authors:
 - Sir Psycho

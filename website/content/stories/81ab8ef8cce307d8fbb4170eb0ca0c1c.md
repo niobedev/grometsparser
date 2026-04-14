@@ -1,6 +1,5 @@
 ---
-original_url: https://www.maidbots.net/storiesek/error_i_think_im_the_maidbot.html
-subcategory: Pony & Pet Girl
+original_url: https://grometsplaza.net/
 title: ERROR! I Think I'm The MaidBot
 authors:
 - PhoenixianSirenanna

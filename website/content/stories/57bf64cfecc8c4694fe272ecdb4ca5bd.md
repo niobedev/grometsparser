@@ -1,6 +1,5 @@
 ---
-original_url: https://www.packagedstories.net/storiessz/thevivarium2.html
-subcategory: Packaged/Encasement
+original_url: https://grometsplaza.net/
 title: The Vivarium
 authors:
 - Garsponlin

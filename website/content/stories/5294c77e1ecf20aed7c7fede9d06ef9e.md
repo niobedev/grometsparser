@@ -1,6 +1,5 @@
 ---
-original_url: https://www.devouredstories.net/storiesad/donnaslastestmeal.html
-subcategory: Halloween Specials
+original_url: https://grometsplaza.net/
 title: Donna's Latest Meal
 authors:
 - Bnimrod

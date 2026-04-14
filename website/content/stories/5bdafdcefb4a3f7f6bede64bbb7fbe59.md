@@ -1,6 +1,5 @@
 ---
-original_url: https://www.dollstories.net/storiesek/familymaid2.html
-subcategory: Doll Stories
+original_url: https://grometsplaza.net/
 title: 'The Family Maid 2: The Sister from Hell'
 authors:
 - Gromet

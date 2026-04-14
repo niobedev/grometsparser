@@ -1,6 +1,5 @@
 ---
-original_url: https://www.dollstories.net/storiesad/datingprocess.html
-subcategory: Doll Stories
+original_url: https://grometsplaza.net/
 title: The Dating Process
 authors:
 - Druid5

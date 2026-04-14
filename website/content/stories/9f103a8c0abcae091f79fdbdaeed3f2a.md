@@ -1,6 +1,5 @@
 ---
-original_url: https://www.dollstories.net/storiessz/specialorderdoll.html
-subcategory: Doll Stories
+original_url: https://grometsplaza.net/
 title: The Special Order Doll
 authors:
 - Gromet

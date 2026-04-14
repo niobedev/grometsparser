@@ -1,6 +1,5 @@
 ---
-original_url: https://www.mummified.net/storieslr/medic_class2.html
-subcategory: Mummified
+original_url: https://grometsplaza.net/
 title: 'The Medic Class 2: The Potter''s  Wheel'
 authors:
 - Lancer175

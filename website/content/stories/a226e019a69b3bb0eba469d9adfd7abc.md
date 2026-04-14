@@ -1,6 +1,5 @@
 ---
-original_url: https://www.boundstories.net/storieslr/mr_williams_gets_a_mouth_full.html
-subcategory: Bound Stories
+original_url: https://grometsplaza.net/
 title: Mr. Williams Gets a Mouth Full
 authors:
 - Anonymous in NYC

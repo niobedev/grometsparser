@@ -1,6 +1,5 @@
 ---
-original_url: https://grometsplaza.net/eroticstories/storiessz/the_seduction.html
-subcategory: Spandex
+original_url: https://grometsplaza.net/
 title: The Seduction
 authors:
 - Jo

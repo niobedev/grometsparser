@@ -1,6 +1,5 @@
 ---
-original_url: https://www.selfbound.net/storiesek/fiftylitres.html
-subcategory: Selfbound Stories
+original_url: https://grometsplaza.net/
 title: Fifty Litres
 authors:
 - Jeza

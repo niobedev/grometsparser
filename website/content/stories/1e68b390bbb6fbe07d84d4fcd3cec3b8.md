@@ -1,6 +1,5 @@
 ---
-original_url: https://www.trashcanstories.net/storiessz/trashdoesnthaveaname.html
-subcategory: Erotic Stories
+original_url: https://grometsplaza.net/
 title: Trash Doesn't Have a Name
 authors:
 - Doctor Vader

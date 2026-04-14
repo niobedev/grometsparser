@@ -1,6 +1,5 @@
 ---
-original_url: https://www.selfbound.net/storieslr/my_sb_experience.html
-subcategory: Selfbound Stories
+original_url: https://grometsplaza.net/
 title: My Selfbondage Experience
 authors:
 - memyselfanye

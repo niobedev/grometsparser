@@ -1,6 +1,5 @@
 ---
-original_url: https://www.selfbound.net/storieslr/notanaffair.html
-subcategory: Selfbound Stories
+original_url: https://grometsplaza.net/
 title: Not an Affair
 authors:
 - Howard S

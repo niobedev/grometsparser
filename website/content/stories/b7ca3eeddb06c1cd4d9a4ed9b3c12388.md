@@ -1,6 +1,5 @@
 ---
-original_url: https://www.latexstories.net/storieslr/rubber_bondage_slave07.html
-subcategory: Latex Stories
+original_url: https://grometsplaza.net/
 title: Rubber Bondage Slave 7
 authors:
 - rbp818

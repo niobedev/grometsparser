@@ -1,6 +1,5 @@
 ---
-original_url: https://grometsplaza.net/world/tg/storiesad/consultants417.html
-subcategory: Transformation
+original_url: https://grometsplaza.net/
 title: The Consultants 4.17
 authors:
 - Charlotte Arabella Graham

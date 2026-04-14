@@ -1,6 +1,5 @@
 ---
-original_url: https://www.selfbound.net/storiessz/suspended.html
-subcategory: Selfbound Stories
+original_url: https://grometsplaza.net/
 title: Suspended
 authors:
 - Jan Smith

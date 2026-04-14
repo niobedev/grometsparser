@@ -1,6 +1,5 @@
 ---
-original_url: https://grometsplaza.net/world/transformation/storiesek/kimberleysnightmuseum.html
-subcategory: Buried & Sinking
+original_url: https://grometsplaza.net/
 title: Kimberley's Night at the Museum
 authors:
 - Kimberley Robbe-Grillet

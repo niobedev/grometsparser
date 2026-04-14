@@ -1,6 +1,5 @@
 ---
-original_url: https://grometsplaza.net/world/tg/storiesad/clothesmakethewoman.html
-subcategory: Transformation
+original_url: https://grometsplaza.net/
 title: The Clothes Make The Woman
 authors:
 - Jackie Rabbit

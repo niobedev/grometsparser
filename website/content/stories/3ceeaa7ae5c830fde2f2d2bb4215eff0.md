@@ -1,6 +1,5 @@
 ---
-original_url: https://www.boundstories.net/storiessz/summer_training09.html
-subcategory: Bound Stories
+original_url: https://grometsplaza.net/
 title: Summer Training 9
 authors:
 - T S Fesseln

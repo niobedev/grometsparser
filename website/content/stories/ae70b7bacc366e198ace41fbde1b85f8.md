@@ -1,6 +1,5 @@
 ---
-original_url: https://www.selfbound.net/storiesad/big_night.html
-subcategory: Selfbound Stories
+original_url: https://grometsplaza.net/
 title: The Big Night
 authors:
 - Dana Sauter

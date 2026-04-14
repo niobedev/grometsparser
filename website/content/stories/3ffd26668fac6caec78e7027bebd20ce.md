@@ -1,6 +1,5 @@
 ---
-original_url: https://www.boundstories.net/storiessz/sheila4.html
-subcategory: Bound Stories
+original_url: https://grometsplaza.net/
 title: Sheila
 authors:
 - Zephyr

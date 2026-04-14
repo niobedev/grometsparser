@@ -1,6 +1,5 @@
 ---
-original_url: https://www.dollstories.net/storieslr/meettheparents.html
-subcategory: Doll Stories
+original_url: https://grometsplaza.net/
 title: Meet the Parents
 authors:
 - Simskin

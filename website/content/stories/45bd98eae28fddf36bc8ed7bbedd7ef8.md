@@ -1,6 +1,5 @@
 ---
-original_url: https://www.selfbound.net/storieslr/lot_of_bull.html
-subcategory: Selfbound Stories
+original_url: https://grometsplaza.net/
 title: A Lot of Bull
 authors:
 - Nickerlas

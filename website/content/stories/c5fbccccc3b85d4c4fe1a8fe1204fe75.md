@@ -1,6 +1,5 @@
 ---
-original_url: https://www.boundstories.net/storiesek/helensjourney2.html
-subcategory: Bound Stories
+original_url: https://grometsplaza.net/
 title: 'Helen''s Journey 2: Therapy Begins'
 authors:
 - Lobo De La Sombra

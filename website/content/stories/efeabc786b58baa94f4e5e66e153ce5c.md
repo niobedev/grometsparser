@@ -1,6 +1,5 @@
 ---
-original_url: https://www.boundstories.net/storiesek/haves_have_not.html
-subcategory: Bound Stories
+original_url: https://grometsplaza.net/
 title: The Haves and the Have Knots
 authors:
 - R G Bargy

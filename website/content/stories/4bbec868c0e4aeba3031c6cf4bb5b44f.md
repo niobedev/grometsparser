@@ -1,6 +1,5 @@
 ---
-original_url: https://www.packagedstories.net/storiesek/essenceofman.html
-subcategory: Packaged/Encasement
+original_url: https://grometsplaza.net/
 title: Essence of Man
 authors:
 - Tonya Souther

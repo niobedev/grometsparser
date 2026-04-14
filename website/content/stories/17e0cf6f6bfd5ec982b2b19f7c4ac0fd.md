@@ -1,6 +1,5 @@
 ---
-original_url: https://www.mummified.net/storiessz/the_test.html
-subcategory: Mummified
+original_url: https://grometsplaza.net/
 title: The Test
 authors:
 - mrdoogles

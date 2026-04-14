@@ -1,6 +1,5 @@
 ---
-original_url: https://www.latexstories.net/storiessz/visit_rubber_house.html
-subcategory: Latex Stories
+original_url: https://grometsplaza.net/
 title: A Visit to the Rubber House
 authors:
 - Latexx

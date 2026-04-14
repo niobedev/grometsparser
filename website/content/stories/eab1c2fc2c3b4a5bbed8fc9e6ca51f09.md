@@ -1,6 +1,5 @@
 ---
-original_url: https://www.selfbound.net/storiessz/sindy_surprise.html
-subcategory: Selfbound Stories
+original_url: https://grometsplaza.net/
 title: Sin_dy’s Surprise
 authors:
 - sin_dy

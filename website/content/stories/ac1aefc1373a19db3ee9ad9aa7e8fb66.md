@@ -1,6 +1,5 @@
 ---
-original_url: https://www.selfbound.net/storiesad/chance_encounter.html
-subcategory: Selfbound Stories
+original_url: https://grometsplaza.net/
 title: Chance Encounter
 authors:
 - Ben Keete

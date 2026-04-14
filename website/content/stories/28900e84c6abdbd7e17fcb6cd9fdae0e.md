@@ -1,6 +1,5 @@
 ---
-original_url: https://www.boundstories.net/storiessz/slaver_gets_trained.html
-subcategory: Bound Stories
+original_url: https://grometsplaza.net/
 title: Slaver Gets Trained
 authors:
 - KnottyNarrator

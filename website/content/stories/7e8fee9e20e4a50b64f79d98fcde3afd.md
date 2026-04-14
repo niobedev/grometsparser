@@ -1,6 +1,5 @@
 ---
-original_url: https://www.selfbound.net/storiessz/self_inflicted.html
-subcategory: Selfbound Stories
+original_url: https://grometsplaza.net/
 title: Self Inflicted
 authors:
 - Tied Tightly

@@ -1,6 +1,5 @@
 ---
-original_url: https://www.boundstories.net/storiesek/kidnappedbyafriend.html
-subcategory: Bound Stories
+original_url: https://grometsplaza.net/
 title: Kidnapped by a Friend; Delivered to a Stranger
 authors:
 - Jake R

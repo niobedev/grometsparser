@@ -1,6 +1,5 @@
 ---
-original_url: https://www.selfbound.net/storiesek/jennys_life_changes.html
-subcategory: Selfbound Stories
+original_url: https://grometsplaza.net/
 title: Jenny’s Life Changes
 authors:
 - jennysub

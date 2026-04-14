@@ -1,6 +1,5 @@
 ---
-original_url: https://www.mummified.net/storieslr/mynewgirlfriend_friday.html
-subcategory: Mummified
+original_url: https://grometsplaza.net/
 title: My New Girlfriend, Friday
 authors:
 - Grumpy

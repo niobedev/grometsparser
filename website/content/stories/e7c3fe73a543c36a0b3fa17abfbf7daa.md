@@ -1,6 +1,5 @@
 ---
-original_url: https://grometsplaza.net/spandex/storieslz/myfirstleotard.html
-subcategory: Maid-bot Stories
+original_url: https://grometsplaza.net/
 title: My First Leotard and Tights
 authors:
 - Leotardspank

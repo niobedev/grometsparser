@@ -1,6 +1,5 @@
 ---
-original_url: https://www.trashcanstories.net/storieslr/recycled3.html
-subcategory: Erotic Stories
+original_url: https://grometsplaza.net/
 title: Recycled 3
 authors:
 - Carnaj

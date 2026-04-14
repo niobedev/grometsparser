@@ -1,6 +1,5 @@
 ---
-original_url: https://grometsplaza.net/world/machine/storieslr/my_robot_led_relationship.html
-subcategory: Devoured Stories
+original_url: https://grometsplaza.net/
 title: My Robot-led Relationship
 authors:
 - Spencer

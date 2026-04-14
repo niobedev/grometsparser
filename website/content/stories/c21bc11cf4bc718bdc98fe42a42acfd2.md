@@ -1,6 +1,5 @@
 ---
-original_url: https://www.dollstories.net/storieslr/manniquinization_of_lindsey_stirling.html
-subcategory: Doll Stories
+original_url: https://grometsplaza.net/
 title: Manniquinization of Lindsey Stirling
 authors:
 - LatexSuperGirl

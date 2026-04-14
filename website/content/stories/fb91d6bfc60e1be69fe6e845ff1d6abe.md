@@ -1,6 +1,5 @@
 ---
-original_url: https://www.boundstories.net/storiesek/kens_birthday_gift.html
-subcategory: Bound Stories
+original_url: https://grometsplaza.net/
 title: Ken's Birthday Gift
 authors:
 - Jackrabbit

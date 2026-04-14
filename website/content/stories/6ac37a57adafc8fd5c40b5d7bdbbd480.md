@@ -1,6 +1,5 @@
 ---
-original_url: https://www.latexstories.net/storiessz/stickydream.html
-subcategory: Latex Stories
+original_url: https://grometsplaza.net/
 title: Sticky Dream
 authors:
 - Ban Gozawa

@@ -1,6 +1,5 @@
 ---
-original_url: https://www.dollstories.net/storieslr/pantyhose_dolls.html
-subcategory: Doll Stories
+original_url: https://grometsplaza.net/
 title: Pantyhose Dolls
 authors:
 - Northern Chill

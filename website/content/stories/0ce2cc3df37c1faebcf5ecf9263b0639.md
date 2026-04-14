@@ -1,6 +1,5 @@
 ---
-original_url: https://grometsplaza.net/world/tg/storieslr/mswestburysniece.html
-subcategory: Transformation
+original_url: https://grometsplaza.net/
 title: Ms Westbury's Niece
 authors:
 - Charlotte Arabella Graham

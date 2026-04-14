@@ -1,6 +1,5 @@
 ---
-original_url: https://www.boundstories.net/storiessz/slave_wifes_la_domaine_experience.html
-subcategory: Bound Stories
+original_url: https://grometsplaza.net/
 title: Slave Wife's La Domaine Experience
 authors:
 - Jon Deets

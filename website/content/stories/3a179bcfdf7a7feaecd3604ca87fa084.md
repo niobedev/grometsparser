@@ -1,6 +1,5 @@
 ---
-original_url: https://grometsplaza.net/world/machine/storieslr/robotsandthesecretary.html
-subcategory: Devoured Stories
+original_url: https://grometsplaza.net/
 title: The Robots and the Secretary
 authors:
 - Turboman87

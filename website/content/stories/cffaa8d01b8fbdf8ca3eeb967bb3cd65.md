@@ -1,6 +1,5 @@
 ---
-original_url: https://www.selfbound.net/storiessz/sue.html
-subcategory: Selfbound Stories
+original_url: https://grometsplaza.net/
 title: Sue
 authors:
 - Excalibur

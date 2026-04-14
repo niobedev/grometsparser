@@ -1,6 +1,5 @@
 ---
-original_url: https://www.selfbound.net/storiesad/the_box.html
-subcategory: Selfbound Stories
+original_url: https://grometsplaza.net/
 title: The Box
 authors:
 - yourbdtop

@@ -1,6 +1,5 @@
 ---
-original_url: https://www.boundstories.net/storiesek/geri.html
-subcategory: Bound Stories
+original_url: https://grometsplaza.net/
 title: Geri
 authors:
 - Zephyr

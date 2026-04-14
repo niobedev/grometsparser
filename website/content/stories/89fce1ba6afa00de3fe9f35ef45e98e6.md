@@ -1,6 +1,5 @@
 ---
-original_url: https://www.dollstories.net/storiessz/an_untangling_of_strings.html
-subcategory: Doll Stories
+original_url: https://grometsplaza.net/
 title: An Untangling of Strings
 authors:
 - Eris Lobo

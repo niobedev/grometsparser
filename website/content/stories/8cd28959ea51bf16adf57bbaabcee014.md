@@ -1,6 +1,5 @@
 ---
-original_url: https://www.dollstories.net/storiesad/automata2.html
-subcategory: Doll Stories
+original_url: https://grometsplaza.net/
 title: 'Automata 2: The Escape'
 authors:
 - Tam Lin

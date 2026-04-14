@@ -1,6 +1,5 @@
 ---
-original_url: https://www.latexstories.net/storiesek/industrial_espionage.html
-subcategory: Latex Stories
+original_url: https://grometsplaza.net/
 title: Industrial Espionage
 authors:
 - Jezziebelle

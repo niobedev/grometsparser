@@ -1,6 +1,5 @@
 ---
-original_url: https://www.boundstories.net/storieslr/ladyheart.html
-subcategory: Bound Stories
+original_url: https://grometsplaza.net/
 title: Ladyheart
 authors:
 - Lobo De La Sombra

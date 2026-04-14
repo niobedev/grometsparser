@@ -1,6 +1,5 @@
 ---
-original_url: https://www.boundstories.net/storiessz/turning_of_the_tables.html
-subcategory: Bound Stories
+original_url: https://grometsplaza.net/
 title: Turning of the Tables
 authors:
 - Frosted Moonwright

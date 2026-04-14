@@ -1,6 +1,5 @@
 ---
-original_url: https://www.boundstories.net/storieslr/a_plan_goes_awry.html
-subcategory: Bound Stories
+original_url: https://grometsplaza.net/
 title: A Plan Goes Awry
 authors:
 - Jon Deets

@@ -1,6 +1,5 @@
 ---
-original_url: https://www.latexstories.net/storiesad/clubhouse_rules.html
-subcategory: Latex Stories
+original_url: https://grometsplaza.net/
 title: Clubhouse Rules
 authors:
 - lckdnrbbr

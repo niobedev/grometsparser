@@ -1,6 +1,5 @@
 ---
-original_url: https://grometsplaza.net/world/tg/storiesek/fembug.html
-subcategory: Transformation
+original_url: https://grometsplaza.net/
 title: Fembug
 authors:
 - Jackie Rabbit

@@ -1,6 +1,5 @@
 ---
-original_url: https://www.latexstories.net/storiesek/houseofservitude.html
-subcategory: Latex Stories
+original_url: https://grometsplaza.net/
 title: House of Servitude
 authors:
 - Edruber

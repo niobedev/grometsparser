@@ -1,6 +1,5 @@
 ---
-original_url: https://www.boundstories.net/storiesek/fugazi.html
-subcategory: Bound Stories
+original_url: https://grometsplaza.net/
 title: Fugazi
 authors:
 - Mila V

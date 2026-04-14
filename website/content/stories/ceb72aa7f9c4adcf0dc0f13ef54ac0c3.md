@@ -1,6 +1,5 @@
 ---
-original_url: https://grometsplaza.net/world/transformation/storiesek/jim_christina.html
-subcategory: Buried & Sinking
+original_url: https://grometsplaza.net/
 title: Jim and Christina
 authors:
 - Lobo De la Sombra

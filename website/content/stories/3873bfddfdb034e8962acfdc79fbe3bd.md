@@ -1,6 +1,5 @@
 ---
-original_url: https://www.packagedstories.net/storiesad/bondagebarbiedeluxe.html
-subcategory: Packaged/Encasement
+original_url: https://grometsplaza.net/
 title: Bondage Barbie Deluxe
 authors:
 - Jackrabbit

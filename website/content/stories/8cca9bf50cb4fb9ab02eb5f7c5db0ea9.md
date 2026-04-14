@@ -1,6 +1,5 @@
 ---
-original_url: https://www.latexstories.net/storieslr/latexsissyrubberbitch.html
-subcategory: Latex Stories
+original_url: https://grometsplaza.net/
 title: Latex Sissy, Rubber Bitch
 authors:
 - M88

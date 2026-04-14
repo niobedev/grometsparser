@@ -1,6 +1,5 @@
 ---
-original_url: https://www.maidbots.net/storiesek/fembotroles.html
-subcategory: Pony & Pet Girl
+original_url: https://grometsplaza.net/
 title: Fembot Roles
 authors:
 - Robowomanbot

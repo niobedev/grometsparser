@@ -1,6 +1,5 @@
 ---
-original_url: https://www.boundstories.net/storiesek/gaishift_hotelcalifornia1.html
-subcategory: Bound Stories
+original_url: https://grometsplaza.net/
 title: 'Gai-Shift - Hotel California Chapter 1: Laundry Service'
 authors:
 - Rohana

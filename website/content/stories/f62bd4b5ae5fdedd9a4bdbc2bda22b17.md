@@ -1,6 +1,5 @@
 ---
-original_url: https://grometsplaza.net/eroticstories/storieslr/naked_anna2.html
-subcategory: Spandex
+original_url: https://grometsplaza.net/
 title: Naked Anna
 authors:
 - CK

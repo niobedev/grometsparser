@@ -1,6 +1,5 @@
 ---
-original_url: https://www.selfbound.net/storiesek/hotel_meeting.html
-subcategory: Selfbound Stories
+original_url: https://grometsplaza.net/
 title: Hotel Meeting
 authors:
 - Christy

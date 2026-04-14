@@ -1,6 +1,5 @@
 ---
-original_url: https://www.boundstories.net/storiesek/keyholder_demoness1.html
-subcategory: Bound Stories
+original_url: https://grometsplaza.net/
 title: Keyholder Demoness
 authors:
 - syrynsmyth

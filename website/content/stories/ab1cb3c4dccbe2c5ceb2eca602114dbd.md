@@ -1,6 +1,5 @@
 ---
-original_url: https://www.selfbound.net/storiesek/first_spanking.html
-subcategory: Selfbound Stories
+original_url: https://grometsplaza.net/
 title: First Spanking
 authors:
 - Jan Smith

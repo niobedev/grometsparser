@@ -1,6 +1,5 @@
 ---
-original_url: https://www.latexstories.net/storiesek/karens_punishment.html
-subcategory: Latex Stories
+original_url: https://grometsplaza.net/
 title: Karens Punishment
 authors:
 - Ted S

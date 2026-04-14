@@ -1,6 +1,5 @@
 ---
-original_url: https://www.latexstories.net/storieslr/longdarknights.html
-subcategory: Latex Stories
+original_url: https://grometsplaza.net/
 title: Long Dark Nights
 authors:
 - M88

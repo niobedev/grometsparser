@@ -1,6 +1,5 @@
 ---
-original_url: https://www.mummified.net/storiessz/wrongmail.html
-subcategory: Mummified
+original_url: https://grometsplaza.net/
 title: The Wrong Mail
 authors:
 - Miss Stacey

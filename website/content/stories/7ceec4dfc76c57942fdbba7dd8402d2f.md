@@ -1,6 +1,5 @@
 ---
-original_url: https://www.dollstories.net/storiesad/after_work_dolly.html
-subcategory: Doll Stories
+original_url: https://grometsplaza.net/
 title: After Work Dolly
 authors:
 - Northern Chill

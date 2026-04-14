@@ -1,6 +1,5 @@
 ---
-original_url: https://www.maidbots.net/storiesek/emmabot_on_display7.html
-subcategory: Pony & Pet Girl
+original_url: https://grometsplaza.net/
 title: Emma-bot on Display
 authors:
 - Gromet

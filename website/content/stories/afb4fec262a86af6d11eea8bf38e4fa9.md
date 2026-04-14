@@ -1,6 +1,5 @@
 ---
-original_url: https://www.latexstories.net/storiesek/karenscompartmentalization.html
-subcategory: Latex Stories
+original_url: https://grometsplaza.net/
 title: Karen's Compartmentalization
 authors:
 - trembleevermore

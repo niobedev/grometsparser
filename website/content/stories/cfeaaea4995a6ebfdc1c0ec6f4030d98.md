@@ -1,6 +1,5 @@
 ---
-original_url: https://www.boundstories.net/storiessz/the_trainer4.html
-subcategory: Bound Stories
+original_url: https://grometsplaza.net/
 title: The Trainer 4
 authors:
 - Milagros317

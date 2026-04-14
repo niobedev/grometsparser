@@ -1,6 +1,5 @@
 ---
-original_url: https://grometsplaza.net/world/giantess/storiesad/aneducation.html
-subcategory: Machine
+original_url: https://grometsplaza.net/
 title: An Education
 authors:
 - Unknown

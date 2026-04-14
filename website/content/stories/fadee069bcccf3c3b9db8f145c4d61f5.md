@@ -1,6 +1,5 @@
 ---
-original_url: https://www.latexstories.net/storiesek/jenny.html
-subcategory: Latex Stories
+original_url: https://grometsplaza.net/
 title: Jenny
 authors:
 - Mikel

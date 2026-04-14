@@ -1,6 +1,5 @@
 ---
-original_url: https://www.boundstories.net/storiesad/dayonthelake.html
-subcategory: Bound Stories
+original_url: https://grometsplaza.net/
 title: A Day on the Lake
 authors:
 - Jon Deets

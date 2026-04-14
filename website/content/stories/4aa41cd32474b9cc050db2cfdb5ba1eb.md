@@ -1,6 +1,5 @@
 ---
-original_url: https://grometsplaza.net/world/ponygirl/storieslr/renewal.html
-subcategory: Giantess & Shrinking
+original_url: https://grometsplaza.net/
 title: Recruit
 authors:
 - Megan Law

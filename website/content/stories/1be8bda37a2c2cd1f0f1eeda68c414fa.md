@@ -1,6 +1,5 @@
 ---
-original_url: https://www.dollstories.net/storiesad/dolly_dildo.html
-subcategory: Doll Stories
+original_url: https://grometsplaza.net/
 title: The Dolly Dildo
 authors:
 - Verina Du'Arden

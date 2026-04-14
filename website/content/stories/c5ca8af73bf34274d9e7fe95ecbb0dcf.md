@@ -1,6 +1,5 @@
 ---
-original_url: https://grometsplaza.net/spandex/storieslz/tupperware_girl.html
-subcategory: Maid-bot Stories
+original_url: https://grometsplaza.net/
 title: Tupperware Girl
 authors:
 - Adam N. Eaves

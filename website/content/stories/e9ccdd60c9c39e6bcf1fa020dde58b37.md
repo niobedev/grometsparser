@@ -1,6 +1,5 @@
 ---
-original_url: https://www.boundstories.net/storiesek/gaishift_pit7.html
-subcategory: Bound Stories
+original_url: https://grometsplaza.net/
 title: 'Gai Shift - Pit 7: Evaluation'
 authors:
 - Rohana

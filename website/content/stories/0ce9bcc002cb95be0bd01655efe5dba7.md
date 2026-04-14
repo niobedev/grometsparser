@@ -1,6 +1,5 @@
 ---
-original_url: https://www.boundstories.net/storiessz/the_victim4.html
-subcategory: Bound Stories
+original_url: https://grometsplaza.net/
 title: 'The Victim 4: Turnabout 2'
 authors:
 - Anne Woolsey

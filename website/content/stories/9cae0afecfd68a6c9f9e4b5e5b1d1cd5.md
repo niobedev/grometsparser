@@ -1,6 +1,5 @@
 ---
-original_url: https://www.latexstories.net/storiesek/houseofslime.html
-subcategory: Latex Stories
+original_url: https://grometsplaza.net/
 title: House of Slime
 authors:
 - Jack130
