@@ -18,3 +18,4 @@ website-archive.tar.gz
 *.swp
 *.swo
 *~
+.env

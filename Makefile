@@ -1,4 +1,4 @@
-.PHONY: download convert build clean all detect fix-broken serve docker-build docker-run docker-run-build sync quick-sync
+.PHONY: download convert convert-force build clean all detect fix-broken serve docker-build docker-run docker-run-build sync quick-sync
 
 PYTHON = python3
 PIP = pip3
@@ -29,6 +29,10 @@ download: venv
 convert: venv
 	@echo "Converting stories to website format..."
 	$(VENV_PYTHON) convert_to_markdown.py
+
+convert-force: venv
+	@echo "Converting all stories to website format (force override)..."
+	$(VENV_PYTHON) convert_to_markdown.py --force
 
 build:
 	@echo "Building website..."

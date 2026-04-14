@@ -140,7 +140,7 @@ def parse_story_html(html, url, site_mapping=None):
     return metadata, story_markdown
 
 
-def convert_all_stories():
+def convert_all_stories(force=False):
     source_dir = "stories"
     target_dir = "website/content/stories"
     os.makedirs(target_dir, exist_ok=True)
@@ -159,14 +159,31 @@ def convert_all_stories():
             site_mapping = json.load(f)
 
     html_files = glob.glob(os.path.join(source_dir, "*.html"))
-    print(f"Converting {len(html_files)} HTML stories to Markdown...")
 
-    for i, filepath in enumerate(html_files, 1):
+    # Filter out already converted files unless force=True
+    files_to_convert = []
+    for filepath in html_files:
         filename = os.path.basename(filepath)
         hash_name = filename.replace(".html", "")
         target_path = os.path.join(target_dir, hash_name + ".md")
 
-        print(f"[{i}/{len(html_files)}] Converting {filename}...", end="\r", flush=True)
+        if force or not os.path.exists(target_path):
+            files_to_convert.append(filepath)
+
+    print(
+        f"Converting {len(files_to_convert)} HTML stories to Markdown (out of {len(html_files)} total)..."
+    )
+
+    for i, filepath in enumerate(files_to_convert, 1):
+        filename = os.path.basename(filepath)
+        hash_name = filename.replace(".html", "")
+        target_path = os.path.join(target_dir, hash_name + ".md")
+
+        print(
+            f"[{i}/{len(files_to_convert)}] Converting {filename}...",
+            end="\r",
+            flush=True,
+        )
 
         try:
             with open(filepath, "rb") as f:
@@ -211,4 +228,12 @@ def convert_all_stories():
 
 
 if __name__ == "__main__":
-    convert_all_stories()
+    parser = argparse.ArgumentParser(description="Convert HTML stories to Markdown.")
+    parser.add_argument(
+        "--force",
+        action="store_true",
+        help="Force conversion of all stories, even if already converted.",
+    )
+    args = parser.parse_args()
+
+    convert_all_stories(force=args.force)
