@@ -4,8 +4,8 @@ title: Turning of the Tables
 authors:
 - Frosted Moonwright
 tags:
-- F/m
-- F+/m
+- F-m
+- F+-m
 - bond
 - cuffs
 - bedtie

@@ -4,7 +4,7 @@ title: Recruit
 authors:
 - Megan Law
 tags:
-- M+/f
+- M+-f
 - cowgirl
 - blackmail
 - sold

@@ -4,7 +4,7 @@ title: Ella's Vacation Chapter 1
 authors:
 - William
 tags:
-- MF/f
+- MF-f
 - latex
 - kidnap
 - bond
@@ -13,7 +13,7 @@ tags:
 - packaged
 - hum
 - toys
-- cons/reluct
+- cons-reluct
 - X
 ---
 

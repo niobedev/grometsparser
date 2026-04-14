@@ -4,7 +4,7 @@ title: Vengeful Spirits
 authors:
 - Ranger
 tags:
-- F/f+
+- F-f+
 - revenge
 - bond
 - magic

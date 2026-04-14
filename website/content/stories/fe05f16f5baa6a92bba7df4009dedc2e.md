@@ -4,8 +4,8 @@ title: 4 Lessons on how not to be a good Submissive
 authors:
 - Morgan Le Fe
 tags:
-- M/f
-- D/s
+- M-f
+- D-s
 - bond
 - cuffs
 - gag

@@ -8,7 +8,7 @@ tags:
 - straitjacket
 - stuck
 - discovered
-- F/m
+- F-m
 - padlocks
 - cage
 - handcuffs

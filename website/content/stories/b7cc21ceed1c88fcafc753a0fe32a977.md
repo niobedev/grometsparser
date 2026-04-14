@@ -4,8 +4,8 @@ title: 'Four Play 3: Decision Time'
 authors:
 - Rbbral
 tags:
-- M/f
-- F/m
+- M-f
+- F-m
 - latex
 - costumes
 - nun

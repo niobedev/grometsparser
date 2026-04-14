@@ -4,7 +4,7 @@ title: Lisa's Painful Lesson!
 authors:
 - Anne Gray
 tags:
-- M/f
+- M-f
 - kidnap
 - drug
 - bond

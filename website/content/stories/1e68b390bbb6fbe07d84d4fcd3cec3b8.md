@@ -4,7 +4,7 @@ title: Trash Doesn't Have a Name
 authors:
 - Doctor Vader
 tags:
-- M/f
+- M-f
 - bagged
 - bond
 - tape
@@ -16,7 +16,7 @@ tags:
 - truck
 - compactor
 - disposal
-- cons/nc
+- cons-nc
 - XX
 date: 2011-10-03 00:00:00
 ---

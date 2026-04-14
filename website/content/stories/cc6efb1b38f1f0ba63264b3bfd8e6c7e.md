@@ -4,8 +4,8 @@ title: The Mermaid
 authors:
 - Albarez9
 tags:
-- M/f
-- M+/f+
+- M-f
+- M+-f+
 - bodymod
 - transform
 - mermaid

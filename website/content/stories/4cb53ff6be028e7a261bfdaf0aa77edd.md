@@ -6,7 +6,7 @@ authors:
 tags:
 - MF
 - Solo-F
-- M/f
+- M-f
 - leather
 - halter
 - boots
@@ -24,7 +24,7 @@ tags:
 - depilatory
 - piercing
 - enslave
-- cons/reluct
+- cons-reluct
 - X
 date: 2015-04-29 00:00:00
 ---

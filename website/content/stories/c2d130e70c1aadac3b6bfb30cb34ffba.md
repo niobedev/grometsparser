@@ -4,7 +4,7 @@ title: Real Bondage For Anne!
 authors:
 - OkmrocksU
 tags:
-- M/f
+- M-f
 - bond
 - rope
 - gag

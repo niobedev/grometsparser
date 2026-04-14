@@ -5,7 +5,7 @@ authors:
 - ZM
 tags:
 - Solo-F
-- F/f
+- F-f
 - latex
 - catsuit
 - dress
@@ -15,7 +15,7 @@ tags:
 - cuffs
 - gag
 - captive
-- cons/reluct
+- cons-reluct
 - X
 date: 2011-12-21 00:00:00
 ---

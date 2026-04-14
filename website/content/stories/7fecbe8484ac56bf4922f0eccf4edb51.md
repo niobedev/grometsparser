@@ -4,8 +4,8 @@ title: 'Mistress Latexa''s Rubberdoll 4: The Wedding Album'
 authors:
 - tessa
 tags:
-- F+/m
-- D/s
+- F+-m
+- D-s
 - latex
 - slave
 - cd

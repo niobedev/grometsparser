@@ -4,7 +4,7 @@ title: Continually Increasing Bondage
 authors:
 - Steve Spandex
 tags:
-- FF/f
+- FF-f
 - bond
 - bagged
 - darlex
@@ -19,7 +19,7 @@ tags:
 - video
 - tease
 - ransom
-- cons/nc
+- cons-nc
 - X
 ---
 

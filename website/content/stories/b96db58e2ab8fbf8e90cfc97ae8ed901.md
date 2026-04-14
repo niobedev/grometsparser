@@ -4,8 +4,8 @@ title: Who Knew?
 authors:
 - Darkraptor
 tags:
-- M/f
-- D/s
+- M-f
+- D-s
 - mum
 - wrap
 - encased

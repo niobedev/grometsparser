@@ -4,7 +4,7 @@ title: Help Wanted
 authors:
 - Mythik
 tags:
-- MF/f
+- MF-f
 - fpov
 - maid
 - conditioning

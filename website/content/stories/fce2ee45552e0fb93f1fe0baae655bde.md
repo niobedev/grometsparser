@@ -4,8 +4,8 @@ title: Behind Closed Doors 9 - Party Pistons
 authors:
 - Anne Gray
 tags:
-- FF/f
-- D/s
+- FF-f
+- D-s
 - leather
 - bond
 - electroplay

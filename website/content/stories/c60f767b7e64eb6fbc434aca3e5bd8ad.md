@@ -5,8 +5,8 @@ authors:
 - Kaol
 tags:
 - Solo-F
-- plant/f
-- F/f
+- plant-f
+- F-f
 - outdoors
 - forest
 - quicksand
@@ -16,7 +16,7 @@ tags:
 - drug
 - mast
 - climax
-- cons/nc
+- cons-nc
 - X
 date: 2012-10-17 00:00:00
 ---

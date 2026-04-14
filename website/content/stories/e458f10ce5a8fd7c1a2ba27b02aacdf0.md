@@ -4,8 +4,8 @@ title: New Year's Eve Gift
 authors:
 - Jon Deets
 tags:
-- M/f
-- D/s
+- M-f
+- D-s
 - corset
 - lingerie
 - cuffs
@@ -21,7 +21,7 @@ tags:
 - grope
 - oral
 - sex
-- cons/reluct
+- cons-reluct
 - X
 date: 2015-01-09 00:00:00
 ---

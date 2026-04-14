@@ -4,7 +4,7 @@ title: Rejuvenation
 authors:
 - K
 tags:
-- M/f
+- M-f
 - mum
 - fantasy
 - cons

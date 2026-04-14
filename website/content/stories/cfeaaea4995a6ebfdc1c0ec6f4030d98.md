@@ -4,8 +4,8 @@ title: The Trainer 4
 authors:
 - Milagros317
 tags:
-- F+/m
-- D/s
+- F+-m
+- D-s
 - bond
 - torment
 - captive
@@ -17,7 +17,7 @@ tags:
 - denial
 - oral
 - climax
-- cons/reluct
+- cons-reluct
 - XX
 date: 2011-12-04 00:00:00
 ---

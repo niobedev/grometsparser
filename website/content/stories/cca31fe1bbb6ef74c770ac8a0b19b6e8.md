@@ -4,8 +4,8 @@ title: Feliformia
 authors:
 - Tigerstretch
 tags:
-- M/f
-- F/f
+- M-f
+- F-f
 - catgirl
 - petgirl
 - catsuit

@@ -4,7 +4,7 @@ title: A Fitting Mount
 authors:
 - Rubberwolf
 tags:
-- Other/f
+- Other-f
 - bond
 - pony
 - leather

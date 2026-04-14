@@ -5,8 +5,8 @@ title: Our Only Hope
 authors:
 - The Technician
 tags:
-- F/f
-- M/f
+- F-f
+- M-f
 - pain
 - whip
 - x-frame

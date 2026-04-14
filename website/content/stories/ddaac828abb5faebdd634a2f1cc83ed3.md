@@ -4,14 +4,14 @@ title: 'Gai-Shift 11: The Sister with the Forward Tail'
 authors:
 - Rohana
 tags:
-- F+/f+
+- F+-f+
 - bond
 - hogtie
 - rope
 - slaves
 - gift
 - capture
-- cons/nc
+- cons-nc
 - X
 ---
 

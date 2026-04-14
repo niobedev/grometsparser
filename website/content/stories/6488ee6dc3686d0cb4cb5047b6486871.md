@@ -5,11 +5,11 @@ authors:
 - kidnapped
 tags:
 - Solo-M
-- F/mf
+- F-mf
 - darlex
 - sleepsack
 - hood
-- D/s
+- D-s
 - bond
 - drug
 - catsuit

@@ -4,7 +4,7 @@ title: A Friendly Wager
 authors:
 - Unknown
 tags:
-- n/a
+- n-a
 ---
 
 Karen twisted her neck, but still couldn't see

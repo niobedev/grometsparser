@@ -4,7 +4,7 @@ title: Cheryl
 authors:
 - Anonymous
 tags:
-- M/f
+- M-f
 - bond
 - cons
 - X

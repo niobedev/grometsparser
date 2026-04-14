@@ -5,7 +5,7 @@ authors:
 - Ralph
 tags:
 - Sbm
-- FF/m
+- FF-m
 - bond
 - bdsm
 - cbt
@@ -13,7 +13,7 @@ tags:
 - anal
 - oral
 - mast
-- cons/reluct
+- cons-reluct
 - XX
 date: 2009-12-19 00:00:00
 ---

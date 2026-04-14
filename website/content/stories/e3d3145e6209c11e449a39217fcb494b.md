@@ -4,8 +4,8 @@ title: Stilettos of the Languished Arches
 authors:
 - Tanya Sanguine
 tags:
-- F/f
-- F+/f+
+- F-f
+- F+-f+
 - latex
 - club
 - predicament

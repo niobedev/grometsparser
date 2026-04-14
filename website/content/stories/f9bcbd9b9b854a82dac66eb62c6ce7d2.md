@@ -4,7 +4,7 @@ title: Tan Lines
 authors:
 - Jo
 tags:
-- F/f
+- F-f
 - bond
 - rope
 - harness

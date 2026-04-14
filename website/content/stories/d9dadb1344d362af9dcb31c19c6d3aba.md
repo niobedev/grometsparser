@@ -5,8 +5,8 @@ authors:
 - Johan
 tags:
 - Sbm
-- FF/fm
-- D/s
+- FF-fm
+- D-s
 - cons
 - X
 date: 2005-07-15 00:00:00

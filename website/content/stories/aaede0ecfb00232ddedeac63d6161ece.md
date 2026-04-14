@@ -4,7 +4,7 @@ title: My Wife Locked Up My Cock
 authors:
 - Sensual Robert
 tags:
-- F/m
+- F-m
 - mpov
 - bond
 - revenge

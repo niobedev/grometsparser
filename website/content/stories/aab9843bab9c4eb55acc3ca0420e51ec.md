@@ -5,9 +5,9 @@ authors:
 - Mikel
 tags:
 - Solo-F
-- F/f
-- M/f
-- D/s
+- F-f
+- M-f
+- D-s
 - bond
 - straitjackets
 - hoods

@@ -4,14 +4,14 @@ title: Echoes of Barking
 authors:
 - Rubberwolf
 tags:
-- FFF/f
+- FFF-f
 - bond
 - medical
 - shower
 - nappy
 - straps
 - cell
-- reluct/nc
+- reluct-nc
 - X
 ---
 

@@ -4,8 +4,8 @@ title: Pantyhose Dolls
 authors:
 - Northern Chill
 tags:
-- F/f
-- MM/f
+- F-f
+- MM-f
 - pantyhose
 - transform
 - lovedoll

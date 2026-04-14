@@ -4,7 +4,7 @@ title: ERROR! I Think I'm The MaidBot
 authors:
 - PhoenixianSirenanna
 tags:
-- M/f
+- M-f
 - maid-bot
 - transform
 - accident

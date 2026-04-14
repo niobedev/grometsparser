@@ -4,14 +4,14 @@ title: Plastique Surgery 2
 authors:
 - Darqside
 tags:
-- M/f
+- M-f
 - latex
 - bodymod
 - mc
 - crate
 - delivery
 - rubberdoll
-- reluct/nc
+- reluct-nc
 - X
 date: 2007-10-10 00:00:00
 ---

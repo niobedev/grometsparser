@@ -13,7 +13,7 @@ tags:
 - naked
 - crate
 - foam
-- Machine/f
+- Machine-f
 - bond
 - hood
 - toys

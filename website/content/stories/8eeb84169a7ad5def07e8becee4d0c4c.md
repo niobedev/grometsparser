@@ -9,7 +9,7 @@ tags:
 - sticky
 - mast
 - stuck
-- spider/f
+- spider-f
 - encase
 - cocoon
 - bite
@@ -18,11 +18,11 @@ tags:
 - lactate
 - feed
 - oral
-- M/f
+- M-f
 - discovery
 - sex
 - climax
-- cons/reluct
+- cons-reluct
 - X
 date: 2016-05-14 00:00:00
 ---

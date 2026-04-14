@@ -4,7 +4,7 @@ title: 'Installation 6: Puppet'
 authors:
 - Cdpx
 tags:
-- MF/f
+- MF-f
 - latex
 - puppet
 - susp

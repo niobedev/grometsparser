@@ -4,7 +4,7 @@ title: Cat & Krista's Capture
 authors:
 - encased4fun
 tags:
-- M/ff
+- M-ff
 - drugged
 - kidnap
 - bond

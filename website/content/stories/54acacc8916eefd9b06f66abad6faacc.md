@@ -4,9 +4,9 @@ title: Too Clever By Half
 authors:
 - Guy le Bouc
 tags:
-- F/m
-- F+/m
-- F/mf
+- F-m
+- F+-m
+- F-mf
 - bond
 - chastity
 - cuffs

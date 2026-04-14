@@ -4,8 +4,8 @@ title: Playing Maid
 authors:
 - Jackie Rabbit
 tags:
-- F/f
-- MF/m
+- F-f
+- MF-m
 - maid
 - bond
 - tease

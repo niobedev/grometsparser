@@ -4,7 +4,7 @@ title: Industrial Espionage
 authors:
 - Jezziebelle
 tags:
-- M/f
+- M-f
 - kidnap
 - bond
 - susp
@@ -17,7 +17,7 @@ tags:
 - toys
 - torment
 - climax
-- reluct/nc
+- reluct-nc
 - XX
 date: 2005-05-01 00:00:00
 ---

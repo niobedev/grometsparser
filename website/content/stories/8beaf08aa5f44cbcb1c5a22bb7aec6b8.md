@@ -4,7 +4,7 @@ title: Applied Latex 101
 authors:
 - Andie
 tags:
-- ?/m
+- ?-m
 - mpov
 - latex
 - liquid-latex

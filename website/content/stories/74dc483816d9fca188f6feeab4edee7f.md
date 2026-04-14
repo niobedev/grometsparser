@@ -4,7 +4,7 @@ title: 'Gai-Shift - Thermocline Chapter 1: Coming of the Norsewomen'
 authors:
 - Rohana
 tags:
-- F+/f
+- F+-f
 - kidnap
 - capture
 - bond

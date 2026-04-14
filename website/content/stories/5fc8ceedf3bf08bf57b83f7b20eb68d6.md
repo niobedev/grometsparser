@@ -4,9 +4,9 @@ title: Captured Escort 5
 authors:
 - Sophia Usher
 tags:
-- M/m
-- FF/m
-- D/s
+- M-m
+- FF-m
+- D-s
 - ts
 - cd
 - captive

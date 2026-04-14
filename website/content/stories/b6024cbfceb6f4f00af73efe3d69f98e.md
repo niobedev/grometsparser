@@ -4,7 +4,7 @@ title: Nurse Kat's Medical Examination
 authors:
 - Adam N. Eaves
 tags:
-- F/m
+- F-m
 - nurse
 - uniform
 - tease

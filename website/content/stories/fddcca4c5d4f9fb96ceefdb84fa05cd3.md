@@ -5,7 +5,7 @@ authors:
 - Emma Bond
 tags:
 - Solo-F
-- M/f
+- M-f
 - bond
 - handcuffs
 - rope

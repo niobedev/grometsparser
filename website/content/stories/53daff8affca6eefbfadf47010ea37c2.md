@@ -10,7 +10,7 @@ tags:
 - pictures
 - model
 - mast
-- F+/m
+- F+-m
 - studio
 - latex
 - costumes

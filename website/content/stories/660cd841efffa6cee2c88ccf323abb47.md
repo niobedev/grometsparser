@@ -5,7 +5,7 @@ authors:
 - Alice
 tags:
 - Solo-F
-- M+/f
+- M+-f
 - club
 - collar
 - bond
@@ -18,7 +18,7 @@ tags:
 - rape
 - anal
 - climax
-- cons/nc
+- cons-nc
 - XX
 ---
 

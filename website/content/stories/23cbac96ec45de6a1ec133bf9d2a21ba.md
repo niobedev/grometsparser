@@ -4,7 +4,7 @@ title: Carol
 authors:
 - CJ
 tags:
-- M/f
+- M-f
 - bondage
 - cons
 - X

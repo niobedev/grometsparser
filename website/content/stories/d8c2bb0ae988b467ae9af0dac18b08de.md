@@ -4,8 +4,8 @@ title: The Box
 authors:
 - Margaret B
 tags:
-- F/f
-- D/s
+- F-f
+- D-s
 - bdsm
 - confined
 - urine

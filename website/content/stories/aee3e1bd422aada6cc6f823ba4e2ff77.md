@@ -4,7 +4,7 @@ title: Lingerie Shop
 authors:
 - TBN
 tags:
-- F/f
+- F-f
 - lingerie
 - leather
 - spandex

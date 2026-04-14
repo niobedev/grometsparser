@@ -4,8 +4,8 @@ title: The Birthday Present
 authors:
 - Miss's Pet
 tags:
-- M/f
-- M+/f
+- M-f
+- M+-f
 - bond
 - blindfold
 - hood
@@ -17,7 +17,7 @@ tags:
 - sex
 - oral
 - spank
-- D/s
+- D-s
 - cons
 - reluct
 - X

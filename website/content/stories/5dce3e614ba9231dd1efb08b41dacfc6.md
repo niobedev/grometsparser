@@ -4,7 +4,7 @@ title: Quiet Time in Latex
 authors:
 - KinkyWriter
 tags:
-- M/f
+- M-f
 - bond
 - cuffs
 - bed

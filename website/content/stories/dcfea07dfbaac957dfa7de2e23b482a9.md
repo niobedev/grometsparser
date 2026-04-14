@@ -5,7 +5,7 @@ authors:
 - Jackie Rabbit
 tags:
 - FM
-- F/m
+- F-m
 - panties
 - caught
 - photo

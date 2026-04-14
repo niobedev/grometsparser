@@ -4,8 +4,8 @@ title: Out of the Way
 authors:
 - Pauleine
 tags:
-- F/m
-- D/s
+- F-m
+- D-s
 - femdom
 - chast
 - bond
@@ -17,7 +17,7 @@ tags:
 - cupboard
 - shoes
 - torment
-- cons/reluct
+- cons-reluct
 - XX
 date: 2011-12-14 00:00:00
 ---

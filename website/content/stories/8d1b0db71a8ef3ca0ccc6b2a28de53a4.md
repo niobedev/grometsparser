@@ -4,7 +4,7 @@ title: My Robot-led Relationship
 authors:
 - Spencer
 tags:
-- F/m
+- F-m
 - maid-bot
 - bond
 - chastity

@@ -4,8 +4,8 @@ title: I Want to be a Dominatrix
 authors:
 - Lady Tressa
 tags:
-- F/f
-- D/s
+- F-f
+- D-s
 - strip
 - naked
 - cuffs
@@ -18,7 +18,7 @@ tags:
 - hum
 - oral
 - climax
-- cons/reluct
+- cons-reluct
 - X
 date: 2014-01-14 00:00:00
 ---

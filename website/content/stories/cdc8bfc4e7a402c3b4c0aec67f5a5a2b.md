@@ -4,8 +4,8 @@ title: The Doll in the Park
 authors:
 - SFT
 tags:
-- M/f
-- F/m
+- M-f
+- F-m
 - doll
 - maid
 - costume

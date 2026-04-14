@@ -4,8 +4,8 @@ title: Captive of an Evil Queen
 authors:
 - Jimdini
 tags:
-- Self/m
-- F/m
+- Self-m
+- F-m
 - cuffs
 - handcuffs
 - gag
@@ -20,7 +20,7 @@ tags:
 - vibrator
 - pain
 - discovered
-- cons/nc
+- cons-nc
 - XX
 ---
 

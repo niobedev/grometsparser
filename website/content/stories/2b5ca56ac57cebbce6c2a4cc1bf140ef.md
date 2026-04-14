@@ -4,7 +4,7 @@ title: My Favourite Outfit
 authors:
 - Tightlatextights
 tags:
-- F/m
+- F-m
 - shave
 - cd
 - fem

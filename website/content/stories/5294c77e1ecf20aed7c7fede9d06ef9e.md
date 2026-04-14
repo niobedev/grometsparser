@@ -4,8 +4,8 @@ title: Donna's Latest Meal
 authors:
 - Bnimrod
 tags:
-- F/m
-- F+/m
+- F-m
+- F+-m
 - naked
 - cartrunk
 - extratction

@@ -5,7 +5,7 @@ authors:
 - Studbound
 tags:
 - bondage
-- 'n/c: X'
+- 'n-c: X'
 date: 2002-05-08 00:00:00
 ---
 

@@ -4,7 +4,7 @@ title: The Latex Sorceress 4
 authors:
 - Dollmaster
 tags:
-- F/mf
+- F-mf
 - magic
 - transform
 - latex

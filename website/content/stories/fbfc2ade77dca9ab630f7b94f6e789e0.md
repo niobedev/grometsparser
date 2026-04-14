@@ -5,7 +5,7 @@ authors:
 - sfmaster@att.net
 tags:
 - Solo-F
-- M/f
+- M-f
 - chastity
 - oral
 - sex

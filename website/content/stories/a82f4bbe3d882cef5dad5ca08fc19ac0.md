@@ -4,7 +4,7 @@ title: 'Trouble in Fairyland 4: Snow White Turned'
 authors:
 - Cropsncuffs
 tags:
-- FM+/f
+- FM+-f
 - captive
 - majick
 - bond
@@ -16,7 +16,7 @@ tags:
 - sex
 - oral
 - climax
-- reluct/cons
+- reluct-cons
 - X
 ---
 

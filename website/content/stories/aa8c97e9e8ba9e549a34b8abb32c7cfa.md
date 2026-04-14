@@ -5,7 +5,7 @@ authors:
 - Pleasewrap
 tags:
 - Solo-M
-- F/m
+- F-m
 - costume
 - wrap
 - plastic
@@ -15,7 +15,7 @@ tags:
 - femdom
 - mast
 - denial
-- reluct/cons
+- reluct-cons
 - X
 date: 2013-04-09 00:00:00
 ---

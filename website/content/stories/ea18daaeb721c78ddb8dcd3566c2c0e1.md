@@ -19,7 +19,7 @@ tags:
 - sex
 - mc
 - stuck
-- cons/reluct
+- cons-reluct
 - X
 ---
 

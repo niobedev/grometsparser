@@ -4,8 +4,8 @@ title: 'The Fall of Mistress Diana 4: Getting back to Business'
 authors:
 - Worzel
 tags:
-- F/ff
-- D/s
+- F-ff
+- D-s
 - latex
 - bond
 - susp
@@ -16,7 +16,7 @@ tags:
 - tease
 - torment
 - denial
-- cons/reluct
+- cons-reluct
 - X
 date: 2010-11-13 00:00:00
 ---

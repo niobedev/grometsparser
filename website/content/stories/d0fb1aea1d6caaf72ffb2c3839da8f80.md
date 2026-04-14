@@ -5,7 +5,7 @@ authors:
 - Napoleon Leopold
 tags:
 - Solo-F
-- F/f
+- F-f
 - shop
 - leather
 - collar
@@ -19,7 +19,7 @@ tags:
 - insert
 - force
 - oral
-- cons/reluct
+- cons-reluct
 - X
 date: 2014-06-30 00:00:00
 ---

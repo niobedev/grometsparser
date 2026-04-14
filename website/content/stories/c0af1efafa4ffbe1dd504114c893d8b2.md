@@ -8,11 +8,11 @@ tags:
 - cd
 - spank
 - caught
-- F/m
+- F-m
 - bond
 - hum
 - toys
-- cons/reluct
+- cons-reluct
 - X
 ---
 

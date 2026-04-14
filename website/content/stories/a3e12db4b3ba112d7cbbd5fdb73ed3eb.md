@@ -5,7 +5,7 @@ authors:
 - New Guy
 tags:
 - Sbf
-- F/f
+- F-f
 - susp
 - bdsm
 - con

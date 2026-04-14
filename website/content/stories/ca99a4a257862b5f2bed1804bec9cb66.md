@@ -4,8 +4,8 @@ title: The Pond
 authors:
 - Jo
 tags:
-- M/f
-- D/s
+- M-f
+- D-s
 - collar
 - cuffs
 - tape

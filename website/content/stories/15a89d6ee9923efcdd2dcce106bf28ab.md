@@ -9,11 +9,11 @@ tags:
 - cd
 - cuffs
 - gag
-- M/m
+- M-m
 - bond
 - tape
 - breathplay
-- cons/reluct
+- cons-reluct
 - X
 date: 2011-08-12 00:00:00
 ---

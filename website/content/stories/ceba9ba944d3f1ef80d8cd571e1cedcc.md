@@ -4,8 +4,8 @@ title: Rules are Rules
 authors:
 - Anne Gray
 tags:
-- F/f
-- D/s
+- F-f
+- D-s
 - leather
 - catsuit
 - bond

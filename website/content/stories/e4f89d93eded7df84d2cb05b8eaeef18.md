@@ -4,8 +4,8 @@ title: 'The Perils of Pauline 2: Married Bliss Part 4'
 authors:
 - 64Fordman
 tags:
-- F/f
-- FF/f
+- F-f
+- FF-f
 - bond
 - tape
 - chairtie

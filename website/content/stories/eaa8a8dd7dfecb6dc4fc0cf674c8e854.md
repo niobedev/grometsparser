@@ -4,7 +4,7 @@ title: Close Your Eyes
 authors:
 - J.M.
 tags:
-- F/f
+- F-f
 - drug
 - latexbag
 - shrinkwrap
@@ -12,7 +12,7 @@ tags:
 - oral
 - toys
 - climax
-- nc/reluct
+- nc-reluct
 - X
 date: 2008-02-22 00:00:00
 ---

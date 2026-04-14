@@ -5,8 +5,8 @@ authors:
 - Uto
 tags:
 - Solo-F
-- F+/f+
-- M/f
+- F+-f+
+- M-f
 - force
 - bond
 - cloth

@@ -4,7 +4,7 @@ title: 'The Process 8.1: Changes'
 authors:
 - Tit for Tat
 tags:
-- MF+/mf+
+- MF+-mf+
 - latex
 - bodymod
 - transform

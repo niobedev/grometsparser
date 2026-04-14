@@ -4,7 +4,7 @@ title: Inflating Prospects
 authors:
 - Kari Pink
 tags:
-- MF/f
+- MF-f
 - shop
 - job
 - apply
@@ -17,7 +17,7 @@ tags:
 - lovedoll
 - boxed
 - sold
-- cons/nc
+- cons-nc
 - X
 date: 2018-12-20 00:00:00
 ---

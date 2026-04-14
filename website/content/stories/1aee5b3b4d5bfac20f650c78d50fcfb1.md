@@ -5,8 +5,8 @@ authors:
 - ElectroPainLover
 tags:
 - Sbm
-- F/m
-- D/s
+- F-m
+- D-s
 - caught
 - cuffs
 - straps
@@ -23,7 +23,7 @@ tags:
 - sex
 - drug
 - gag
-- cons/nc
+- cons-nc
 - XX
 date: 2016-11-11 00:00:00
 ---

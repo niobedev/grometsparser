@@ -4,8 +4,8 @@ title: An Interesting Turn of Events
 authors:
 - Canlock
 tags:
-- F/m
-- M/f
+- F-m
+- M-f
 - bond
 - bdsm
 - chast

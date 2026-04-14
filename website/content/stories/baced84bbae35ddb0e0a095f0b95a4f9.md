@@ -4,8 +4,8 @@ title: 'Kate''s Going to Sea 2: Still Afloat'
 authors:
 - Druid5
 tags:
-- M/f
-- MF+/ff
+- M-f
+- MF+-ff
 - cruise
 - club
 - harness

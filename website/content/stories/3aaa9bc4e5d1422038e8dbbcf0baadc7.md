@@ -4,8 +4,8 @@ title: 'Silk: A Game of Peril'
 authors:
 - Sensual Robert
 tags:
-- M/m
-- M/f
+- M-m
+- M-f
 - sissy
 - auction
 - slave

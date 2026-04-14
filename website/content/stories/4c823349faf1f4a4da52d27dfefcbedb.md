@@ -4,7 +4,7 @@ title: Living The Dream
 authors:
 - crushedwithdiapers
 tags:
-- F/m
+- F-m
 - sex
 - cuffs
 - chain

@@ -4,7 +4,7 @@ title: A Debt Paid in Steel
 authors:
 - James Strictland
 tags:
-- M/f
+- M-f
 - bond
 - gag
 - oral

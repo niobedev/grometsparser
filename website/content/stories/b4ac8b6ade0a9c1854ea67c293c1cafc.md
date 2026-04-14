@@ -4,7 +4,7 @@ title: Spandex Maids' Birthday Surprise
 authors:
 - The Spandex Maid
 tags:
-- FF/m
+- FF-m
 - chast
 - darlex
 - sleepsack

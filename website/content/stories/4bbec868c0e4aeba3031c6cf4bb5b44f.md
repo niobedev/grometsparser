@@ -4,7 +4,7 @@ title: Essence of Man
 authors:
 - Tonya Souther
 tags:
-- M+/mf+
+- M+-mf+
 - captive
 - encased
 - glass
@@ -16,7 +16,7 @@ tags:
 - tease
 - denial
 - climax
-- reluct/cons
+- reluct-cons
 - X
 date: 2014-01-29 00:00:00
 ---

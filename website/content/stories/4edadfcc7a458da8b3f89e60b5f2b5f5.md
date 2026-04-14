@@ -4,13 +4,13 @@ title: 18 Hours of Bondage
 authors:
 - Cdsub4u
 tags:
-- F/m
-- M/m
+- F-m
+- M-m
 - bond
 - cd
 - anal
 - discovered
-- cons/nc
+- cons-nc
 - X
 date: 2007-10-26 00:00:00
 ---

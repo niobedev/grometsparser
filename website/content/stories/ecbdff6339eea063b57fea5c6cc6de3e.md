@@ -5,7 +5,7 @@ authors:
 - Mikel
 tags:
 - Solo-F
-- M/f
+- M-f
 - chastity
 - toys
 - insert

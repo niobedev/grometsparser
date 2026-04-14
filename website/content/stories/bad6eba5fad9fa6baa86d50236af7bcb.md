@@ -5,8 +5,8 @@ authors:
 - Matty
 tags:
 - Sbf
-- M/f
-- D/s
+- M-f
+- D-s
 - gag
 - manacles
 - chains

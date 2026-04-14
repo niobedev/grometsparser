@@ -4,8 +4,8 @@ title: Lounge Act
 authors:
 - Dawes
 tags:
-- M/f+
-- MF/f+
+- M-f+
+- MF-f+
 - mind-control
 - naked
 - gag

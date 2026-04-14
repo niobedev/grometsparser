@@ -11,7 +11,7 @@ tags:
 - gag
 - stuck
 - caught
-- FF/m
+- FF-m
 - bond
 - bdsm
 - belt
@@ -20,7 +20,7 @@ tags:
 - hum
 - punish
 - torment
-- cons/nc
+- cons-nc
 - XX
 date: 2008-12-31 00:00:00
 ---

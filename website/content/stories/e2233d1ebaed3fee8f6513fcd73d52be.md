@@ -4,8 +4,8 @@ title: 'Alice & Amanda 4: Subbing Together'
 authors:
 - Alina Aamu
 tags:
-- F/ff
-- D/s
+- F-ff
+- D-s
 - bond
 - rope
 - gag

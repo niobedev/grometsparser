@@ -6,8 +6,8 @@ authors:
 - The Technician
 tags:
 - MF
-- MF+/mf+
-- D/s
+- MF+-mf+
+- D-s
 - outdoors
 - camp
 - dare
@@ -27,7 +27,7 @@ tags:
 - oral
 - fist
 - climax
-- cons/reluct
+- cons-reluct
 - XX
 date: 2014-03-30 00:00:00
 ---

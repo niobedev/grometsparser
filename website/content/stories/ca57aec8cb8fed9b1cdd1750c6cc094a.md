@@ -5,14 +5,14 @@ authors:
 - Daniel Guy
 tags:
 - Sbm
-- M/m
+- M-m
 - mum
 - wrap
 - cocoon
 - encase
 - breathplay
 - stuck
-- cons/nc
+- cons-nc
 - X
 date: 2003-09-12 00:00:00
 ---

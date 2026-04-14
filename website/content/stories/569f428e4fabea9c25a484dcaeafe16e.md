@@ -6,8 +6,8 @@ authors:
 - The Technician
 tags:
 - Solo-F
-- F+/f
-- MF+/mf+
+- F+-f
+- MF+-mf+
 - scifi
 - mc
 - ceremony

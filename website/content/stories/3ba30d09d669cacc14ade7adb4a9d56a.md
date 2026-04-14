@@ -5,7 +5,7 @@ authors:
 - Kittin
 tags:
 - Sbf
-- M/f
+- M-f
 - cuffs
 - straps
 - gag

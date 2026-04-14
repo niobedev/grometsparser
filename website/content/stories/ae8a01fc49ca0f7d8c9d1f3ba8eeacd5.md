@@ -4,7 +4,7 @@ title: Blackmail Part 2
 authors:
 - Tom Smith
 tags:
-- FM+/m
+- FM+-m
 - bond
 - cuffs
 - gag

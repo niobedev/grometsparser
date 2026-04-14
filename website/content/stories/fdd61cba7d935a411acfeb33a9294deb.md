@@ -4,8 +4,8 @@ title: 'My Summer Of Dares 13: A New Kind Of Torment'
 authors:
 - Jackie Rabbit
 tags:
-- FFM/f
-- D/s
+- FFM-f
+- D-s
 - petgirl
 - cage
 - truck

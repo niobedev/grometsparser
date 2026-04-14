@@ -5,7 +5,7 @@ authors:
 - Claudia
 tags:
 - Sbf
-- MF+/f
+- MF+-f
 - bond
 - bdsm
 - toys

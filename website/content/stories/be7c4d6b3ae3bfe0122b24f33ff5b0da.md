@@ -4,8 +4,8 @@ title: Viking Market
 authors:
 - Bill M
 tags:
-- M+/f
-- F+/f
+- M+-f
+- F+-f
 - bond
 - collar
 - rope

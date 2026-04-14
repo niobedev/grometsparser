@@ -5,7 +5,7 @@ authors:
 - Rupes
 tags:
 - MF
-- F/m
+- F-m
 - cinema
 - rom
 - playroom

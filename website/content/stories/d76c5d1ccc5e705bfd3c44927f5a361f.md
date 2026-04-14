@@ -5,7 +5,7 @@ authors:
 - Garsponlin
 tags:
 - FF
-- F/f
+- F-f
 - glass
 - bottle
 - encased

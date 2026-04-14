@@ -4,7 +4,7 @@ title: Working at the Human-Milk Factory
 authors:
 - Denkira7
 tags:
-- MF+/f+
+- MF+-f+
 - slaves
 - shackles
 - factory
@@ -22,7 +22,7 @@ tags:
 - disposal
 - sex
 - climax
-- cons/nc
+- cons-nc
 - X
 date: 2016-07-14 00:00:00
 ---

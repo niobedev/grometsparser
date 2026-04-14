@@ -4,7 +4,7 @@ title: An Unfortunate Nights Work
 authors:
 - Worzel
 tags:
-- MFF/fff
+- MFF-fff
 - latex
 - catsuits
 - hobble

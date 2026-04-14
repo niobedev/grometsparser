@@ -5,8 +5,8 @@ authors:
 - Turboman87
 tags:
 - Solo-F
-- M+/f
-- machine/f
+- M+-f
+- machine-f
 - robots
 - processed
 - latex
@@ -17,7 +17,7 @@ tags:
 - bond
 - armbinder
 - maid
-- cons/reluct
+- cons-reluct
 - X
 date: 2013-10-05 00:00:00
 ---

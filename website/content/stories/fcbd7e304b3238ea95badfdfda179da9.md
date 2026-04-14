@@ -4,8 +4,8 @@ title: Wild Idea
 authors:
 - Prometheus
 tags:
-- FFF/m
-- D/s
+- FFF-m
+- D-s
 - bond
 - toys
 - mum

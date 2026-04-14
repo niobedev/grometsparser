@@ -5,11 +5,11 @@ title: Intruder
 authors:
 - The Technician
 tags:
-- M+/f+
+- M+-f+
 - sci-fi
 - space
 - discovery
-- Alien/mf+
+- Alien-mf+
 - mind-control
 - bond
 - naked
@@ -23,7 +23,7 @@ tags:
 - anal
 - sex
 - climax
-- cons/reluct
+- cons-reluct
 - XX
 date: 2018-11-04 00:00:00
 ---

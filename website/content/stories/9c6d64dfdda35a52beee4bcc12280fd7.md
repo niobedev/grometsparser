@@ -4,8 +4,8 @@ title: The Chateau
 authors:
 - Budman
 tags:
-- M/f+
-- F/m
+- M-f+
+- F-m
 - bond
 - cell
 - cuffs

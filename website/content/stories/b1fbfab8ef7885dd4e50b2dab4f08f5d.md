@@ -4,11 +4,11 @@ title: The Basement 2
 authors:
 - Sabina
 tags:
-- F+/f
+- F+-f
 - bond
 - toys
 - furry
-- reluct/cons
+- reluct-cons
 - X
 date: 2017-05-06 00:00:00
 ---

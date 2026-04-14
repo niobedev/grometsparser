@@ -8,20 +8,20 @@ tags:
 - train
 - tour
 - kidnap
-- F/m
+- F-m
 - bond
 - rope
 - gag
 - captive
 - sex
-- F/f
+- F-f
 - enslave
 - strip
 - collar
 - force
 - lesb
 - toys
-- cons/nc
+- cons-nc
 - X
 date: 2016-07-27 00:00:00
 ---

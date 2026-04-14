@@ -4,8 +4,8 @@ title: Belated Birthday Gift
 authors:
 - lizsubintampa
 tags:
-- F/f
-- D/s
+- F-f
+- D-s
 - 'true'
 - oral
 - punish

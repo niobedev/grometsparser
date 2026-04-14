@@ -7,7 +7,7 @@ tags:
 - Sbf
 - cuffs
 - tease
-- M/f
+- M-f
 - bond
 - rope
 - cloth
@@ -16,7 +16,7 @@ tags:
 - hogtie
 - bagged
 - encase
-- cons/reluct
+- cons-reluct
 - X
 date: 2006-08-23 00:00:00
 ---

@@ -10,11 +10,11 @@ tags:
 - zipties
 - rope
 - caught
-- MM/m
+- MM-m
 - spank
 - oral
 - anal
-- cons/reluct
+- cons-reluct
 - X
 date: 2003-05-05 00:00:00
 ---

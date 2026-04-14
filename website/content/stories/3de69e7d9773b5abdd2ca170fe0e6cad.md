@@ -4,7 +4,7 @@ title: Leopard One Night
 authors:
 - Tigerstretch
 tags:
-- M/f
+- M-f
 - Sbf
 - spandex
 - outdoors

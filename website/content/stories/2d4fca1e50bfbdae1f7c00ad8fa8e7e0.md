@@ -5,7 +5,7 @@ authors:
 - Baubleheadz
 tags:
 - Sbf
-- M/f
+- M-f
 - lingerie
 - tease
 - gag

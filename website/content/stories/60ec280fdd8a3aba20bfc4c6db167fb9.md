@@ -4,8 +4,8 @@ title: 'Jane''s Story 8: The Wedding Day'
 authors:
 - Jo
 tags:
-- M/f
-- D/s
+- M-f
+- D-s
 - bond
 - rope
 - naked

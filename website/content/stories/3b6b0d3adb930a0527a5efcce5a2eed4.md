@@ -5,7 +5,7 @@ authors:
 - beanpoleuk
 tags:
 - Sbf
-- D/s
+- D-s
 - cyberplay
 - cons
 - X

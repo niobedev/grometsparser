@@ -4,7 +4,7 @@ title: Limbo
 authors:
 - Darkraptor1
 tags:
-- Other+/m
+- Other+-m
 - afterlife
 - latex
 - wrap

@@ -9,10 +9,10 @@ tags:
 - gag
 - stuck
 - caught
-- F/m
+- F-m
 - bdsm
 - spank
-- cons/reluct
+- cons-reluct
 - X
 ---
 

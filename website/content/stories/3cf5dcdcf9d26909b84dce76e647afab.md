@@ -4,7 +4,7 @@ title: The Bronze Horse 9
 authors:
 - Jar
 tags:
-- MF+/f
+- MF+-f
 - fff
 - captive
 - slave

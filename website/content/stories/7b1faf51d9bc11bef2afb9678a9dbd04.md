@@ -21,7 +21,7 @@ tags:
 - eaten
 - mast
 - climax
-- M/f
+- M-f
 - voy
 - soft
 - cons

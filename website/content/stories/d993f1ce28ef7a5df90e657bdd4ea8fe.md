@@ -4,7 +4,7 @@ title: How I Became Just Another Meatgirl
 authors:
 - Gromet
 tags:
-- M/f
+- M-f
 - fpov
 - objectify
 - bond

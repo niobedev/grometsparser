@@ -5,8 +5,8 @@ authors:
 - T S Fesseln
 tags:
 - MF
-- M/f
-- D/s
+- M-f
+- D-s
 - bond
 - gag
 - sex

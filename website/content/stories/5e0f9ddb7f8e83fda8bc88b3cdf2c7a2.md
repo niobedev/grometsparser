@@ -4,9 +4,9 @@ title: The Corner Bar Dominatrix
 authors:
 - Lady Tressa
 tags:
-- F/f
-- FF/f
-- M/f
+- F-f
+- FF-f
+- M-f
 - bond
 - gag
 - collar
@@ -19,7 +19,7 @@ tags:
 - oral
 - anal
 - climax
-- cons/nc
+- cons-nc
 - XX
 date: 2016-05-17 00:00:00
 ---

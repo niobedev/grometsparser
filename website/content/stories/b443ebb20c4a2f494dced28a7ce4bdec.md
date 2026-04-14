@@ -4,7 +4,7 @@ title: 'Gai-Shift - Oasis Chapter 2: Carin the Flower Vitch'
 authors:
 - Rohana
 tags:
-- F+/f
+- F+-f
 - witches
 - majick
 - captives

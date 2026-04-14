@@ -4,7 +4,7 @@ title: Bound for Discovery
 authors:
 - SnarkyJean
 tags:
-- F/f
+- F-f
 - bond
 - tiedown straps
 - tickle

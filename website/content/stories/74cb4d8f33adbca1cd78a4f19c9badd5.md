@@ -4,7 +4,7 @@ title: Therapy
 authors:
 - Schattenrose Miriam
 tags:
-- M/f
+- M-f
 - clinic
 - therapy
 - tease
@@ -21,7 +21,7 @@ tags:
 - messy
 - dumpster
 - stuck
-- cons/reluct
+- cons-reluct
 - X
 date: 2014-04-28 00:00:00
 ---

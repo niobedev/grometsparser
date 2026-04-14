@@ -4,9 +4,9 @@ title: Ken's Birthday Gift
 authors:
 - Jackrabbit
 tags:
-- M/f
-- MF/m
-- M+/f
+- M-f
+- MF-m
+- M+-f
 - packaged
 - box
 - doll

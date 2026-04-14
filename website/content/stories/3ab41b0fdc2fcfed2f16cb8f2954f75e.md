@@ -4,7 +4,7 @@ title: 'Room: 1'
 authors:
 - M88
 tags:
-- M/f+
+- M-f+
 - captives
 - cells
 - rubber
@@ -20,7 +20,7 @@ tags:
 - cond
 - mc
 - mpov
-- cons/nc
+- cons-nc
 - X
 date: 2014-09-15 00:00:00
 ---

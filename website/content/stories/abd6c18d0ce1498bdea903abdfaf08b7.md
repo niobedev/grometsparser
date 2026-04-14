@@ -4,9 +4,9 @@ title: 'The Further Training of ''S'' 8: Serving Maid'
 authors:
 - James W
 tags:
-- FM/f
-- F/f
-- D/s
+- FM-f
+- F-f
+- D-s
 - latex
 - bond
 - bdsm

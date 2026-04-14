@@ -6,8 +6,8 @@ authors:
 tags:
 - Sbf
 - caught
-- F/ff
-- F+/fff
+- F-ff
+- F+-fff
 - bond
 - wool
 - straitjacket

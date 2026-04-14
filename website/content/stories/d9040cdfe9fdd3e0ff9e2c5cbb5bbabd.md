@@ -10,8 +10,8 @@ tags:
 - insert
 - nipple
 - caught
-- F/f
-- D/s
+- F-f
+- D-s
 - torment
 - toys
 - sex

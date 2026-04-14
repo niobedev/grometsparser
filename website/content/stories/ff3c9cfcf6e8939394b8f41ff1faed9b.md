@@ -4,8 +4,8 @@ title: Tasha
 authors:
 - Lobo De la Sombra
 tags:
-- M/f
-- M/mf
+- M-f
+- M-mf
 - bond
 - naked
 - susp
@@ -16,7 +16,7 @@ tags:
 - carees
 - tease
 - climax
-- cons/reluct
+- cons-reluct
 - X
 date: 2014-06-30 00:00:00
 ---

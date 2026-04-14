@@ -4,7 +4,7 @@ title: An Untangling of Strings
 authors:
 - Eris Lobo
 tags:
-- MF/f
+- MF-f
 - transform
 - doll
 - F2doll

@@ -5,7 +5,7 @@ authors:
 - Andy Latex
 tags:
 - Solo-F
-- F+/f
+- F+-f
 - latex
 - drug
 - wrap

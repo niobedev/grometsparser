@@ -4,7 +4,7 @@ title: The Ice Fall
 authors:
 - Jenny Bonici
 tags:
-- F/f
+- F-f
 - naked
 - bond
 - rope
@@ -18,7 +18,7 @@ tags:
 - insert
 - crotchrope
 - climax
-- cons/reluct
+- cons-reluct
 - X
 date: 2005-08-26 00:00:00
 ---

@@ -4,7 +4,7 @@ title: An Education
 authors:
 - Unknown
 tags:
-- FF/m
+- FF-m
 - giantess
 - naked
 - breasts
@@ -12,7 +12,7 @@ tags:
 - oral
 - climax
 - swallowed
-- cons/reluct
+- cons-reluct
 - X
 date: 2015-07-26 00:00:00
 ---

@@ -5,8 +5,8 @@ authors:
 - Voodoo
 tags:
 - Sbf
-- F/f
-- F/ff
+- F-f
+- F-ff
 - bond
 - straitjackets
 - wool

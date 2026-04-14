@@ -4,8 +4,8 @@ title: No Good Deed Goes Unpunished
 authors:
 - Steff
 tags:
-- M/f
-- MF/f
+- M-f
+- MF-f
 - fpov
 - bond
 - playroom

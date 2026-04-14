@@ -4,8 +4,8 @@ title: The Sculpture Of Bondage
 authors:
 - Seidenki
 tags:
-- M/m
-- MF/m
+- M-m
+- MF-m
 - bond
 - gag
 - sculpture

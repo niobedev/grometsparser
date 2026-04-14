@@ -5,7 +5,7 @@ authors:
 - PoseMe
 tags:
 - Solo-F
-- M+/f
+- M+-f
 - cyborg
 - favor
 - technician
@@ -26,7 +26,7 @@ tags:
 - mannequin
 - store
 - rescue
-- cons/reluct
+- cons-reluct
 - X
 date: 2017-10-10 00:00:00
 ---

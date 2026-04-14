@@ -4,8 +4,8 @@ title: Latex Clothing Latex Doll
 authors:
 - Northern Chill
 tags:
-- F/f
-- D/s
+- F-f
+- D-s
 - bodypaint
 - statue
 - transform

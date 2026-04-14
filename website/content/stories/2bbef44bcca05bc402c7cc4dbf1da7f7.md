@@ -4,8 +4,8 @@ title: The New Spring Line
 authors:
 - RubberH
 tags:
-- F+/m+
-- D/s
+- F+-m+
+- D-s
 - femdom
 - enslave
 - prepare

@@ -4,7 +4,7 @@ title: The Rocky Road to Ruin
 authors:
 - Rubberwolf
 tags:
-- FF/f
+- FF-f
 - drugged
 - bond
 - bdsm

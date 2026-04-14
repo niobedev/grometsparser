@@ -12,8 +12,8 @@ tags:
 - catsuit
 - cuffs
 - collar
-- F/f
-- D/s
+- F-f
+- D-s
 - toys
 - challenge
 - denial

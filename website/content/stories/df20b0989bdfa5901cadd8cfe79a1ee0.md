@@ -5,7 +5,7 @@ authors:
 - DollMaster
 tags:
 - Solo-F
-- F/f
+- F-f
 - latex
 - stockings
 - cuffs
@@ -14,7 +14,7 @@ tags:
 - mc
 - sex
 - climax
-- cons/reluct
+- cons-reluct
 - X
 date: 2012-06-17 00:00:00
 ---

@@ -13,7 +13,7 @@ tags:
 - rope
 - bitgag
 - caught
-- F/f
+- F-f
 - tease
 - bdsm
 - crop

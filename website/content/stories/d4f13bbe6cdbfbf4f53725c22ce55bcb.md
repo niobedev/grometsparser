@@ -4,9 +4,9 @@ title: Ghosts of Burkittsville
 authors:
 - Lancer175
 tags:
-- F/f+
-- F+/m+
-- M+/f+
+- F-f+
+- F+-m+
+- M+-f+
 - bond
 - gag
 - rope

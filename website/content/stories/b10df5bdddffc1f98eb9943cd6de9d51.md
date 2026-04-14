@@ -4,7 +4,7 @@ title: Reality Television Star Continued
 authors:
 - El Hijo Del Sooprbrane
 tags:
-- F/f
+- F-f
 - bond
 - drug
 - kidnap

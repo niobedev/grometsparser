@@ -5,14 +5,14 @@ authors:
 - Lobo De La Sombra
 tags:
 - MF
-- M/f
+- M-f
 - bond
 - strip
 - naked
 - leather
 - gag
 - sex
-- cons/reluct
+- cons-reluct
 - X
 date: 2017-05-06 00:00:00
 ---

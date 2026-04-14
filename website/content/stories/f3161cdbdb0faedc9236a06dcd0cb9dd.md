@@ -4,9 +4,9 @@ title: 'Oberon  1: Fresh From Auction'
 authors:
 - Ron McIngle
 tags:
-- F/f
-- M/f+
-- D/s
+- F-f
+- M-f+
+- D-s
 - naked
 - auction
 - slaves
@@ -20,7 +20,7 @@ tags:
 - whip
 - crop
 - punish
-- cons/reluct
+- cons-reluct
 - X
 ---
 

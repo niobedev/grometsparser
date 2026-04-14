@@ -4,8 +4,8 @@ title: 'The Investigative Reporter 4: Observations'
 authors:
 - Jackie Rabbit
 tags:
-- M+/f+
-- F+/f
+- M+-f+
+- F+-f
 - jail
 - farm
 - naked
@@ -17,7 +17,7 @@ tags:
 - bdsm
 - whip
 - voy
-- cons/reluct
+- cons-reluct
 - X
 ---
 

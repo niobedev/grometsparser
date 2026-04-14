@@ -4,7 +4,7 @@ title: Lacey Is Just A Fish Now
 authors:
 - Garsponlin
 tags:
-- M/f
+- M-f
 - transform
 - mermaid
 - latex

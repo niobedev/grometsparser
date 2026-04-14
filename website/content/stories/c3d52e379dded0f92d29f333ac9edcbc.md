@@ -5,8 +5,8 @@ authors:
 - Ningyou Macher
 tags:
 - Solo-F
-- Machine/f
-- F/maidbot
+- Machine-f
+- F-maidbot
 - robots
 - maid-bots
 - collar

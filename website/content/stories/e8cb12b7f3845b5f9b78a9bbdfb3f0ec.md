@@ -4,7 +4,7 @@ title: Rubber Hell
 authors:
 - 'M88 3: Why'
 tags:
-- F/m
+- F-m
 - captive
 - dungeon
 - latex
@@ -22,7 +22,7 @@ tags:
 - crush
 - climax
 - force
-- cons/nc
+- cons-nc
 - XX
 date: 2014-07-24 00:00:00
 ---

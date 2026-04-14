@@ -8,10 +8,10 @@ tags:
 - leather
 - public
 - caught
-- F/f
+- F-f
 - bond
 - oral
-- cons/reluct
+- cons-reluct
 - X
 date: 2008-06-10 00:00:00
 ---

@@ -6,7 +6,7 @@ authors:
 tags:
 - Solo-M
 - FM
-- Alien/m
+- Alien-m
 - mime
 - trapped
 - box
@@ -19,7 +19,7 @@ tags:
 - mc
 - captive
 - exhibit
-- cons/reluct
+- cons-reluct
 - X
 date: 2014-04-25 00:00:00
 ---

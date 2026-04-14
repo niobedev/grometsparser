@@ -4,8 +4,8 @@ title: Transformation Vignettes
 authors:
 - Baubleheadz
 tags:
-- F/m
-- M/f
+- F-m
+- M-f
 - transform
 - M2f
 - F2furry

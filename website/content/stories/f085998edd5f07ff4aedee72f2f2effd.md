@@ -5,8 +5,8 @@ authors:
 - Abbacor
 tags:
 - Solo-M
-- M/m
-- other/m
+- M-m
+- other-m
 - hotel
 - monsters
 - hide
@@ -22,7 +22,7 @@ tags:
 - sarcophagus
 - encased
 - stuck
-- cons/nc
+- cons-nc
 - X
 ---
 

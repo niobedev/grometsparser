@@ -4,7 +4,7 @@ title: Misfortune's Bracelet
 authors:
 - Baubleheadz
 tags:
-- M/f
+- M-f
 - slave
 - mind-control
 - sex

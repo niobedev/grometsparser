@@ -9,7 +9,7 @@ tags:
 - cake
 - wager
 - deal
-- M/f
+- M-f
 - naked
 - bound
 - rope

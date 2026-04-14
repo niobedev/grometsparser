@@ -4,7 +4,7 @@ title: The Clinic
 authors:
 - Asudem
 tags:
-- FF/f
+- FF-f
 - immerse
 - tank
 - condition

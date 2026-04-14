@@ -16,7 +16,7 @@ tags:
 - armbinder
 - cuffs
 - caught
-- F/f
+- F-f
 - hum
 - toys
 - insert
@@ -31,7 +31,7 @@ tags:
 - hogtie
 - reward
 - tease
-- cons/reluct
+- cons-reluct
 - X
 date: 2019-05-20 00:00:00
 ---

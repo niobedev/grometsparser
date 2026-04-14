@@ -5,8 +5,8 @@ authors:
 - LatexLadyLL
 tags:
 - Solo-F
-- FFF/m
-- D/s
+- FFF-m
+- D-s
 - store
 - displays
 - latex

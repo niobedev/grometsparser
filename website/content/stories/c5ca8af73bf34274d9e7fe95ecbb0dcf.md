@@ -4,7 +4,7 @@ title: Tupperware Girl
 authors:
 - Adam N. Eaves
 tags:
-- M/f
+- M-f
 - lycra
 - bodysuit
 - container

@@ -5,7 +5,7 @@ authors:
 - Polarbear
 tags:
 - MF
-- F/fm
+- F-fm
 - hotel
 - bond
 - cuffs

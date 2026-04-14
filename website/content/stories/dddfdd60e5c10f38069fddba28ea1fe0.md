@@ -4,8 +4,8 @@ title: The Car Wash 2
 authors:
 - Jackie Rabbit
 tags:
-- F/f
-- FM/f
+- F-f
+- FM-f
 - tape
 - strip
 - gag

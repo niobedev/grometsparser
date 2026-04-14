@@ -4,7 +4,7 @@ title: Joanne's Story 4a
 authors:
 - Gordian
 tags:
-- M/f
+- M-f
 - bondage
 - cons
 - X

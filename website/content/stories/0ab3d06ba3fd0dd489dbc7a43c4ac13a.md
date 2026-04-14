@@ -4,7 +4,7 @@ title: Just Another Day at Work
 authors:
 - Darkraptor1
 tags:
-- FM+/f
+- FM+-f
 - movie
 - bond
 - rope
@@ -17,7 +17,7 @@ tags:
 - gag
 - transported
 - packed
-- cons/nc
+- cons-nc
 - X
 date: 2006-09-25 00:00:00
 ---

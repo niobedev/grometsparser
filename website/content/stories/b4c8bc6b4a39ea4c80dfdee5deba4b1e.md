@@ -4,7 +4,7 @@ title: His Fantasy Come True
 authors:
 - Chris Powell
 tags:
-- FF/m
+- FF-m
 - bond
 - toys
 - kidnap

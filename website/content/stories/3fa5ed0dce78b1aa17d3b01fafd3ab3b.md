@@ -6,7 +6,7 @@ authors:
 tags:
 - Solo-F
 - FF
-- F/f
+- F-f
 - latex
 - dress
 - public

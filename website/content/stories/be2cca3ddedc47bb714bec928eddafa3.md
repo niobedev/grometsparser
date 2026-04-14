@@ -13,10 +13,10 @@ tags:
 - outdoors
 - car
 - caught
-- M/f
+- M-f
 - emb
 - tease
-- cons/reluct
+- cons-reluct
 - X
 date: 2012-12-24 00:00:00
 ---

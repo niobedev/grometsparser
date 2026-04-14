@@ -4,7 +4,7 @@ title: Chain
 authors:
 - Budman
 tags:
-- M+F+/f
+- M+F+-f
 - bond
 - cross
 - susp

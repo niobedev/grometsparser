@@ -4,8 +4,8 @@ title: House of the Rising Sun
 authors:
 - prometheus_b
 tags:
-- FF/m
-- D/s
+- FF-m
+- D-s
 - bond
 - cons
 - X

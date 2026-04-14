@@ -4,8 +4,8 @@ title: 'Dream Weaver: A Week in Plastic'
 authors:
 - Shaded Sun
 tags:
-- M/f
-- F/f
+- M-f
+- F-f
 - transform
 - majick
 - mannequin

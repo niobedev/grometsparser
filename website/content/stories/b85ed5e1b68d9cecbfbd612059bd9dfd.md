@@ -5,7 +5,7 @@ authors:
 - Jackie Rabbit
 tags:
 - Solo-F
-- MF+/f
+- MF+-f
 - naked
 - compound
 - encase
@@ -18,7 +18,7 @@ tags:
 - transport
 - climax
 - emb
-- cons/reluct
+- cons-reluct
 - X
 date: 2013-04-30 00:00:00
 ---

@@ -4,7 +4,7 @@ title: 'Gai-Shift - Peregrine 6: The trap is set...'
 authors:
 - Rohana
 tags:
-- F/f+
+- F-f+
 - catwoman
 - captives
 - bond
@@ -21,7 +21,7 @@ tags:
 - mast
 - oral
 - climax
-- cons/reluct
+- cons-reluct
 - X
 ---
 

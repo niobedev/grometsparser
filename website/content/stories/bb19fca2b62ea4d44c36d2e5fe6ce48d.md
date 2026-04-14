@@ -4,8 +4,8 @@ title: A Good Girl?
 authors:
 - Pauleine
 tags:
-- F/m
-- D/s
+- F-m
+- D-s
 - bdsm
 - bond
 - rope

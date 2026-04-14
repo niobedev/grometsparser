@@ -4,7 +4,7 @@ title: Fascinating
 authors:
 - Mikel
 tags:
-- M/f
+- M-f
 - bond
 - chastity
 - cuffs

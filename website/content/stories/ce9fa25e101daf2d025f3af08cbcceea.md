@@ -5,7 +5,7 @@ authors:
 - Kinky Writer
 tags:
 - Solo-F
-- MF+/f
+- MF+-f
 - leather
 - corset
 - boots

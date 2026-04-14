@@ -4,12 +4,12 @@ title: The Summer Project Part 11
 authors:
 - T S Fesseln
 tags:
-- M/f
-- D/s
+- M-f
+- D-s
 - bond
 - Sbf
 - toys
-- reluct/cons
+- reluct-cons
 ---
 
 **Part 11**

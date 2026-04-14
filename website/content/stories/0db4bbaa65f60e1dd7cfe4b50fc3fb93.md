@@ -4,8 +4,8 @@ title: The Gorg
 authors:
 - Garsponlin
 tags:
-- M/f
-- MF/f
+- M-f
+- MF-f
 - exhib
 - scifi
 - latex

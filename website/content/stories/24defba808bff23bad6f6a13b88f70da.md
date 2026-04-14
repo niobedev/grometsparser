@@ -4,8 +4,8 @@ title: My Predicament3
 authors:
 - The Self Bound Latex Sub
 tags:
-- F/m
-- D/s
+- F-m
+- D-s
 - latex
 - bondage
 - fem

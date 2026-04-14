@@ -4,7 +4,7 @@ title: Another Year, Another Slave to Own
 authors:
 - Kristin Kailey
 tags:
-- M/f+
+- M-f+
 - bond
 - rope
 - monsters

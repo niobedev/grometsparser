@@ -5,7 +5,7 @@ authors:
 - Lobo De la Sombra
 tags:
 - Solo-F
-- M/f
+- M-f
 - bond
 - caged
 - delivery
@@ -15,7 +15,7 @@ tags:
 - entrap
 - insert
 - sex
-- cons/nc
+- cons-nc
 - X
 date: 2011-03-10 00:00:00
 ---

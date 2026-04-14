@@ -4,7 +4,7 @@ title: 'The Process 7: New Additions'
 authors:
 - Tit for Tat
 tags:
-- MF+/mf+
+- MF+-mf+
 - latex
 - bodymod
 - transform

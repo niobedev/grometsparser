@@ -4,8 +4,8 @@ title: 'Visiting my Rubber Mistresses 3: Mistress Terri'
 authors:
 - Rb6009
 tags:
-- F/m
-- D/s
+- F-m
+- D-s
 - latex
 - catsuit
 - hood

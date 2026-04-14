@@ -4,7 +4,7 @@ title: Bob and Carol and Alice
 authors:
 - Racer & Rick
 tags:
-- M/ff
+- M-ff
 - bond
 - cuffs
 - collars

@@ -4,7 +4,7 @@ title: The Reinvention of the Masked Man 3
 authors:
 - Lady Tressa
 tags:
-- MF+/f+
+- MF+-f+
 - kidnap
 - captives
 - enslave
@@ -23,7 +23,7 @@ tags:
 - sex
 - climax
 - denial
-- cons/nc
+- cons-nc
 - XXX
 date: 2017-02-18 00:00:00
 ---

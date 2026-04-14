@@ -4,7 +4,7 @@ title: My Pet Dog
 authors:
 - Garsponlin
 tags:
-- M/f+
+- M-f+
 - petplay
 - leather
 - dogsuit
@@ -18,13 +18,13 @@ tags:
 - mistake
 - transform
 - M2f
-- F/f+
+- F-f+
 - domme
 - outdoors
 - walked
 - park
 - enslave
-- cons/nc
+- cons-nc
 - X
 date: 2019-06-08 00:00:00
 ---

@@ -9,7 +9,7 @@ tags:
 - discovery
 - Sbf
 - caught
-- F+/f
+- F+-f
 - bdsm
 - pingpong balls
 - launchers
@@ -25,7 +25,7 @@ tags:
 - torment
 - climax
 - revenge
-- cons/reluct
+- cons-reluct
 - XX
 date: 2017-09-06 00:00:00
 ---

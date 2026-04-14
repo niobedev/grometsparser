@@ -4,7 +4,7 @@ title: Love Bondage
 authors:
 - Sensual Robert
 tags:
-- M/f
+- M-f
 - bond
 - lingerie
 - sex

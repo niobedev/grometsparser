@@ -4,8 +4,8 @@ title: Willing to be a Mistress
 authors:
 - Enclosed Lady
 tags:
-- F/f
-- D/s
+- F-f
+- D-s
 - latex
 - breathplay
 - mum

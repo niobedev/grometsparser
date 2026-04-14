@@ -4,7 +4,7 @@ title: Sleep Sack
 authors:
 - Mikel
 tags:
-- M/f
+- M-f
 - bond
 - leather
 - corset

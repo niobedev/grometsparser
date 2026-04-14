@@ -4,7 +4,7 @@ title: Chance Encounter
 authors:
 - Ben Keete
 tags:
-- F/f
+- F-f
 - Sbf
 - caught
 - discovery

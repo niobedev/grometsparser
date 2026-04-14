@@ -4,9 +4,9 @@ title: AdultWebOnline
 authors:
 - Canadom
 tags:
-- F/f
-- F/f+
-- MF/f
+- F-f
+- F-f+
+- MF-f
 - Sbf
 - bond
 - chastity

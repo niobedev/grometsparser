@@ -4,9 +4,9 @@ title: 'The Training of Slave Selena 12: Stainless Steel Slave'
 authors:
 - James W
 tags:
-- M/f
-- MF/f
-- D/s
+- M-f
+- MF-f
+- D-s
 - latex
 - bond
 - corset

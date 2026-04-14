@@ -5,7 +5,7 @@ authors:
 - Jackie Rabbit
 tags:
 - Solo-F
-- MF+/f
+- MF+-f
 - compound
 - encase
 - intubate
@@ -18,7 +18,7 @@ tags:
 - insert
 - transport
 - climax
-- cons/reluct
+- cons-reluct
 - X
 date: 2013-08-15 00:00:00
 ---

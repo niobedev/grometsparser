@@ -5,7 +5,7 @@ authors:
 - Trashydiaperedman
 tags:
 - Solo-M
-- FM+/m
+- FM+-m
 - landfill
 - diapers
 - trashcans

@@ -4,7 +4,7 @@ title: Ghostly Encounter
 authors:
 - earlofnexus
 tags:
-- F/f
+- F-f
 - cellar
 - ghosts
 - chastity

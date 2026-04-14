@@ -5,9 +5,9 @@ title: The Maid-bot in Me
 authors:
 - Gromet
 tags:
-- Fbot/f
-- D/s
-- machine/f
+- Fbot-f
+- D-s
+- machine-f
 - roleplay
 - maid
 - maid-bots

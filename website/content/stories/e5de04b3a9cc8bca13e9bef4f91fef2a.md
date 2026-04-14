@@ -4,7 +4,7 @@ title: The Game
 authors:
 - Rainbow Golding
 tags:
-- M/f
+- M-f
 - bondage
 - cons
 - X

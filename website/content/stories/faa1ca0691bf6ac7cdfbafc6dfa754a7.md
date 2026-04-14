@@ -5,7 +5,7 @@ authors:
 - RbrBill
 tags:
 - Solo-mf
-- F/m
+- F-m
 - latex
 - catsuits
 - gasmask
@@ -20,7 +20,7 @@ tags:
 - climax
 - sex
 - rom
-- reluct/cons
+- reluct-cons
 - X
 date: 2012-10-17 00:00:00
 ---

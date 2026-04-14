@@ -4,7 +4,7 @@ title: After Work Dolly
 authors:
 - Northern Chill
 tags:
-- M/ff
+- M-ff
 - lovedoll
 - magic
 - transformation

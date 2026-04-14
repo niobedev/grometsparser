@@ -4,8 +4,8 @@ title: 'Paradice Lost 9: Supplicants'
 authors:
 - A Pensive Pen
 tags:
-- F/f
-- D/s
+- F-f
+- D-s
 - dungeon
 - basement
 - latex

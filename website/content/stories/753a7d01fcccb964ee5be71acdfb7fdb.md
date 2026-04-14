@@ -4,9 +4,9 @@ title: Captured Escort 6
 authors:
 - Sophia Usher
 tags:
-- M/m
-- FF/m
-- D/s
+- M-m
+- FF-m
+- D-s
 - ts
 - cd
 - captive
@@ -16,7 +16,7 @@ tags:
 - bdsm
 - hum
 - anal
-- nc/reluct
+- nc-reluct
 - X
 ---
 

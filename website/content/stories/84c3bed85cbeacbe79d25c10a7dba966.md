@@ -5,7 +5,7 @@ title: Ye Olde Water Faire
 authors:
 - The Technician
 tags:
-- Machine/f
+- Machine-f
 - fpov
 - susp
 - edgeplay

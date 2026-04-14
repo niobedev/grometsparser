@@ -4,7 +4,7 @@ title: A Plan Goes Awry
 authors:
 - Jon Deets
 tags:
-- M+/mf
+- M+-mf
 - kidnap
 - susp
 - bond

@@ -5,8 +5,8 @@ authors:
 - Howard S
 tags:
 - Sbf
-- M/f
-- D/s
+- M-f
+- D-s
 - bond
 - cuffs
 - gag

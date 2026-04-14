@@ -4,9 +4,9 @@ title: Bound For Vegas Bondcon 2004
 authors:
 - Pierced_m
 tags:
-- FF/m
+- FF-m
 - Sbm
-- D/s
+- D-s
 - bond
 - chast
 - piercing

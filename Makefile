@@ -3,12 +3,11 @@
 
 PYTHON = python3
 PIP = pip3
-HUGO = hugo
 VENV = .venv
 VENV_PYTHON = $(VENV)/bin/python
 VENV_PIP = $(VENV)/bin/pip
 
-DOCKER_IMAGE = ghcr.io/niobedev/grometsparser:latest
+DOCKER_IMAGE = grometsparser:local
 DOCKER_TAG ?= latest
 PWD = $(shell pwd)
 
@@ -36,17 +35,17 @@ convert-force: venv
 	$(VENV_PYTHON) convert_to_markdown.py --force
 
 build:
-	@echo "Building website..."
-	cd website && $(HUGO)
-	@echo "Creating archive..."
-	tar -czf website-archive.tar.gz -C website/public .
+	@echo "Building website in Docker..."
+	docker run --rm \
+		-v $(PWD):/app \
+		$(DOCKER_IMAGE) \
+		/bin/bash -c "cd /app/website && hugo"
 
 clean:
 	@echo "Cleaning up..."
 	rm -rf $(VENV)
 	rm -rf website/public
 	rm -rf website/resources
-	rm -f website-archive.tar.gz
 
 detect: venv
 	@echo "Detecting broken markdown in converted stories..."
@@ -57,8 +56,12 @@ fix-broken: venv
 	$(VENV_PYTHON) detect_broken_markdown.py --delete --force
 
 serve:
-	@echo "Starting Hugo development server..."
-	cd website && $(HUGO) server --bind 0.0.0.0 --buildDrafts
+	@echo "Starting Hugo development server in Docker..."
+	docker run --rm -it \
+		-p 1313:1313 \
+		-v $(PWD):/app \
+		$(DOCKER_IMAGE) \
+		/bin/bash -c "cd /app/website && hugo server --bind 0.0.0.0 --buildDrafts"
 
 docker-build:
 	@echo "Building Docker image..."

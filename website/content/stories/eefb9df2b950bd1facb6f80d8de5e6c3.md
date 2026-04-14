@@ -4,14 +4,14 @@ title: Oath of Pleasure
 authors:
 - Northern Chill
 tags:
-- F/f
-- D/s
+- F-f
+- D-s
 - bond
 - transform
 - lovedoll
 - boxed
 - sold
-- cons/nc
+- cons-nc
 - X
 ---
 

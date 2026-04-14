@@ -6,7 +6,7 @@ authors:
 tags:
 - Solo-f
 - Sbf
-- M/f
+- M-f
 - naked
 - van
 - cuffs

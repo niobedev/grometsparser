@@ -10,9 +10,9 @@ tags:
 - plot
 - bribe
 - caught
-- F/f
-- MF/f
-- M+/f
+- F-f
+- MF-f
+- M+-f
 - punish
 - strip
 - flog
@@ -35,7 +35,7 @@ tags:
 - enslaved
 - sharman
 - forgiven
-- cons/nc
+- cons-nc
 - XX
 date: 2016-03-20 00:00:00
 ---

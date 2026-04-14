@@ -4,7 +4,7 @@ title: A Different Winter-Walk
 authors:
 - Hartie
 tags:
-- M/f
+- M-f
 - bond
 - outdoors
 - zipties

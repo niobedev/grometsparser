@@ -4,9 +4,9 @@ title: 'Special Delivery 9: Rubberman''s Further Education'
 authors:
 - rbbral
 tags:
-- F/m
-- MM/m
-- D/s
+- F-m
+- MM-m
+- D-s
 - latex
 - fem
 - cd
@@ -19,7 +19,7 @@ tags:
 - oral
 - anal
 - sex
-- reluct/cons
+- reluct-cons
 - X
 date: 2006-03-30 00:00:00
 ---

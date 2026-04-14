@@ -4,8 +4,8 @@ title: The Happy Couple
 authors:
 - Darkraptor1
 tags:
-- M/f
-- FF/mf
+- M-f
+- FF-mf
 - vetwrap
 - wrap
 - bandages

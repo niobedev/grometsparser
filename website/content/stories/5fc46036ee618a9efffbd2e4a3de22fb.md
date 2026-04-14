@@ -4,7 +4,7 @@ title: My New Girlfriend, Friday
 authors:
 - Grumpy
 tags:
-- F/m
+- F-m
 - darlex
 - straitjacket
 - rope
@@ -17,7 +17,7 @@ tags:
 - tease
 - denial
 - sex
-- cons/reluct
+- cons-reluct
 - XX
 date: 2011-12-05 00:00:00
 ---

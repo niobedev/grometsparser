@@ -4,7 +4,7 @@ title: Mind & Body
 authors:
 - Doctor Vader
 tags:
-- F/f
+- F-f
 - hypno
 - command
 - tease
@@ -16,7 +16,7 @@ tags:
 - compactor
 - messy
 - revenge
-- reluct/nc
+- reluct-nc
 - X
 date: 2012-07-20 00:00:00
 ---

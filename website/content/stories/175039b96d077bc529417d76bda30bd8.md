@@ -5,7 +5,7 @@ authors:
 - Mikel
 tags:
 - Solo-F
-- M/f
+- M-f
 - leather
 - corsets
 - boots
@@ -20,7 +20,7 @@ tags:
 - tranported
 - encased
 - stuck
-- cons/reluct
+- cons-reluct
 - X
 date: 2013-08-08 00:00:00
 ---

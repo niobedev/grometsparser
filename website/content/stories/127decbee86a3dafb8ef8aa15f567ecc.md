@@ -4,7 +4,7 @@ title: The Mass
 authors:
 - Diplodicus
 tags:
-- F+/ff
+- F+-ff
 - mum
 - crate
 - shipped

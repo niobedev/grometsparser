@@ -4,7 +4,7 @@ title: Sammy Joe’s Barnyard Self-Bondage 8
 authors:
 - Hagster
 tags:
-- F/ff
+- F-ff
 - bondage
 - con
 - X

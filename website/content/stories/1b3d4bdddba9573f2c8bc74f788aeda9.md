@@ -4,8 +4,8 @@ title: The Box
 authors:
 - Thndrshark
 tags:
-- Mf/f
-- D/s
+- Mf-f
+- D-s
 - slave
 - bond
 - shave
@@ -19,7 +19,7 @@ tags:
 - buried
 - entombed
 - permanent
-- cons/reluct
+- cons-reluct
 - XX
 date: 2013-09-05 00:00:00
 ---

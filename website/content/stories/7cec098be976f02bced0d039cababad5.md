@@ -4,7 +4,7 @@ title: Easy Riding Doll
 authors:
 - Northern Chill
 tags:
-- Other/f
+- Other-f
 - curse
 - magic
 - transform

@@ -7,12 +7,12 @@ tags:
 - Sbm
 - cd
 - caught
-- FF/m
+- FF-m
 - bond
 - anal
 - oral
 - toys
-- cons/reluct
+- cons-reluct
 - X
 ---
 

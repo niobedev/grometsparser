@@ -4,7 +4,7 @@ title: The Slave - Day 5
 authors:
 - Wallace
 tags:
-- FF/f
+- FF-f
 - bondage
 - cons
 - X

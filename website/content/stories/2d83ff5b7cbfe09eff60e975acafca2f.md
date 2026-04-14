@@ -14,11 +14,11 @@ tags:
 - climax
 - caught
 - stuck
-- M/ff
+- M-ff
 - bond
 - chair
 - tease
-- cons/reluct
+- cons-reluct
 - X
 ---
 

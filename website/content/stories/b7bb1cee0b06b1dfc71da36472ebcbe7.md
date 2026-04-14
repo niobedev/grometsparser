@@ -4,7 +4,7 @@ title: Homecoming 3
 authors:
 - Lobo De la Sombra
 tags:
-- M+/ffm
+- M+-ffm
 - captives
 - bound
 - rope
@@ -15,7 +15,7 @@ tags:
 - medieval
 - princess
 - rescue
-- cons/nc
+- cons-nc
 - X
 ---
 

@@ -4,9 +4,9 @@ title: 'The Family Maid 2: The Sister from Hell'
 authors:
 - Gromet
 tags:
-- F+/f
-- FM+/f
-- machine/f
+- F+-f
+- FM+-f
+- machine-f
 - latex
 - maid-bots
 - uniform
@@ -31,7 +31,7 @@ tags:
 - kiss
 - oral
 - lesbian
-- cons/reluct
+- cons-reluct
 - X
 ---
 

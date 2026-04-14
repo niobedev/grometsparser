@@ -4,7 +4,7 @@ title: Joining the Collector's Army
 authors:
 - Lobo De la Sombra
 tags:
-- M/f
+- M-f
 - kidnap
 - bodymod
 - mc

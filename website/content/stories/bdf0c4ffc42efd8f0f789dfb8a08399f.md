@@ -4,14 +4,14 @@ title: Chicken Shit
 authors:
 - Captain Lance
 tags:
-- M+/f
+- M+-f
 - hermaphrodite
 - latex
 - bond
 - breathplay
 - oral
 - group
-- cons/reluct
+- cons-reluct
 - X
 date: 2010-07-10 00:00:00
 ---

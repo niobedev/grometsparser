@@ -4,7 +4,7 @@ title: Bound & Distressed
 authors:
 - John Roper
 tags:
-- M/f
+- M-f
 - drug
 - bond
 - bdsm

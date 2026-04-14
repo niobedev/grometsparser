@@ -4,7 +4,7 @@ title: Slave Wife's La Domaine Experience
 authors:
 - Jon Deets
 tags:
-- M/f
+- M-f
 - 'true'
 - party
 - bond

@@ -4,7 +4,7 @@ title: The Reluctant Slave
 authors:
 - MasterKGray
 tags:
-- M/f
+- M-f
 - FF
 - slave
 - training

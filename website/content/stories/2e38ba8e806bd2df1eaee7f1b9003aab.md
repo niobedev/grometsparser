@@ -4,7 +4,7 @@ title: 'Sweet Caroline 2: More Caroline'
 authors:
 - iamacdtom
 tags:
-- F/m
+- F-m
 - bond
 - bdsm
 - foot worship
@@ -17,7 +17,7 @@ tags:
 - fem
 - outdoors
 - toys
-- reluct/cons
+- reluct-cons
 - X
 date: 2010-03-05 00:00:00
 ---

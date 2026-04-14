@@ -4,7 +4,7 @@ title: Cold Turkey
 authors:
 - Rbbral
 tags:
-- FM/f
+- FM-f
 - capture
 - bond
 - latex
@@ -20,7 +20,7 @@ tags:
 - toys
 - sex
 - climax
-- reluct/cons
+- reluct-cons
 - X
 date: 2013-01-12 00:00:00
 ---

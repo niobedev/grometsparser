@@ -4,7 +4,7 @@ title: A Cat Named Misha
 authors:
 - Reblatex
 tags:
-- F/f
+- F-f
 - latex
 - magic
 - furry

@@ -4,8 +4,8 @@ title: What's Good for the Goose
 authors:
 - Margaret B
 tags:
-- M/f
-- F/m
+- M-f
+- F-m
 - bdsm
 - cane
 - sex

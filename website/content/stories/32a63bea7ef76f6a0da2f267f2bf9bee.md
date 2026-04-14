@@ -4,8 +4,8 @@ title: Cedric
 authors:
 - Lobo De la Sombra
 tags:
-- M/f+
-- F/m
+- M-f+
+- F-m
 - force
 - strip
 - torment
@@ -15,7 +15,7 @@ tags:
 - age-regression
 - breastfeed
 - mc
-- cons/reluct
+- cons-reluct
 - X
 date: 2013-09-07 00:00:00
 ---

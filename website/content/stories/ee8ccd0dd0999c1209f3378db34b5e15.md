@@ -5,8 +5,8 @@ authors:
 - Druid5
 tags:
 - Solo-F
-- Machine/f
-- M/f
+- Machine-f
+- M-f
 - factory
 - process
 - latex
@@ -20,7 +20,7 @@ tags:
 - objectify
 - anal
 - climax
-- cons/nc
+- cons-nc
 - X
 date: 2014-03-22 00:00:00
 ---

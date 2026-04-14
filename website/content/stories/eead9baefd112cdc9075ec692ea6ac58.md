@@ -5,7 +5,7 @@ authors:
 - Tar Feathers
 tags:
 - Solo-f
-- F/f
+- F-f
 - stables
 - jodhpurs
 - lingerie

@@ -4,8 +4,8 @@ title: Whatever You Want
 authors:
 - The White Knight
 tags:
-- M/f
-- D/s
+- M-f
+- D-s
 - lingerie
 - bfold
 - bond

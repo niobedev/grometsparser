@@ -21,7 +21,7 @@ tags:
 - slime
 - swallow
 - immersed
-- F+/f
+- F+-f
 - oral
 - climax
 - cons

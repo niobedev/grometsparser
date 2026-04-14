@@ -4,7 +4,7 @@ title: The Chair
 authors:
 - Jo
 tags:
-- MF/f
+- MF-f
 - cage
 - bond
 - cuffs
@@ -14,7 +14,7 @@ tags:
 - electro
 - torment
 - toys
-- climax, cons/reluct
+- climax, cons-reluct
 - X
 date: 2012-09-01 00:00:00
 ---

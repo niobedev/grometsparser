@@ -4,7 +4,7 @@ title: Tales of the Tinkerer
 authors:
 - ZTVFemdomtales
 tags:
-- F/m+
+- F-m+
 - bond
 - cuffs
 - ride
@@ -17,7 +17,7 @@ tags:
 - susp
 - captive
 - sex
-- cons/reluct
+- cons-reluct
 - X
 date: 2016-11-11 00:00:00
 ---

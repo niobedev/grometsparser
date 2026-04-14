@@ -4,7 +4,7 @@ title: Mr. Williams Gets a Mouth Full
 authors:
 - Anonymous in NYC
 tags:
-- F/m
+- F-m
 - mpov
 - bond
 - chastity

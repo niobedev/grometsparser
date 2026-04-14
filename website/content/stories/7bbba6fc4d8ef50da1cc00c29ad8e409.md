@@ -4,7 +4,7 @@ title: Julie's Trash Time
 authors:
 - Trash Girl / 64Fordman
 tags:
-- F/f
+- F-f
 - trash
 - trashcan
 - bagged
@@ -13,7 +13,7 @@ tags:
 - dumped
 - majick
 - transform
-- con/nc
+- con-nc
 - X
 ---
 

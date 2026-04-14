@@ -4,7 +4,7 @@ title: A Visit to the Rubber House
 authors:
 - Latexx
 tags:
-- FM/fm
+- FM-fm
 - latex
 - bond
 - bagged

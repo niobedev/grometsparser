@@ -4,7 +4,7 @@ title: Manniquinization of Lindsey Stirling
 authors:
 - LatexSuperGirl
 tags:
-- M/f
+- M-f
 - transform
 - F2doll
 - mannequin

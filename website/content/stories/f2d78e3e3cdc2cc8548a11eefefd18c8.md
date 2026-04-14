@@ -4,7 +4,7 @@ title: Pulling Strings
 authors:
 - Jay Petto
 tags:
-- M/f
+- M-f
 - mc
 - marionette
 - puppet

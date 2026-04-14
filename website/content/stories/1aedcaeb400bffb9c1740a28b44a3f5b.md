@@ -4,7 +4,7 @@ title: 'Installation 4: Ice Queen'
 authors:
 - Cdpx
 tags:
-- MF/f
+- MF-f
 - latex
 - encase
 - ice

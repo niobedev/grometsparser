@@ -4,9 +4,9 @@ title: 'Erotic Disclosure Chapter 6: Decadence'
 authors:
 - Wiccedwoman
 tags:
-- MM/f
-- M/f
-- F/m
+- MM-f
+- M-f
+- F-m
 - bond
 - oral
 - massage

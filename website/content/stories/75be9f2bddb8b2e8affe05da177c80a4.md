@@ -4,8 +4,8 @@ title: A is for Abduction
 authors:
 - DarqueSoul
 tags:
-- MFF/f
-- M/f
+- MFF-f
+- M-f
 - kidnap
 - drug bagged
 - hood
@@ -16,7 +16,7 @@ tags:
 - suit
 - sealed
 - encased
-- cons/nc
+- cons-nc
 - X
 date: 2013-07-17 00:00:00
 ---

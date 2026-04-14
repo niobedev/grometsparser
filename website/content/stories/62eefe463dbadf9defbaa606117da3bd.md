@@ -4,9 +4,9 @@ title: The Instructions
 authors:
 - Chris Powell
 tags:
-- F/m
+- F-m
 - sbm
-- D/s
+- D-s
 - bond
 - piercing
 - breathplay

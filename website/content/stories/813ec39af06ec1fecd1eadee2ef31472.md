@@ -4,7 +4,7 @@ title: Extreme Equestrienne
 authors:
 - Paul Lovelace
 tags:
-- FM/fm
+- FM-fm
 - therapy
 - bodymod
 - surgery

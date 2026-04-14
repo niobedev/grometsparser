@@ -5,7 +5,7 @@ authors:
 - Charlotte Arabella Graham
 tags:
 - Solo-M
-- F+/m
+- F+-m
 - cd
 - fem
 - maid

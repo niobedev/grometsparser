@@ -5,8 +5,8 @@ authors:
 - Tryskell
 tags:
 - Sbf
-- M/f
-- D/s
+- M-f
+- D-s
 - cuffs
 - leather
 - stuck
@@ -18,7 +18,7 @@ tags:
 - inset
 - bdsm
 - crop
-- reluct/cons
+- reluct-cons
 - X
 date: 2013-07-17 00:00:00
 ---

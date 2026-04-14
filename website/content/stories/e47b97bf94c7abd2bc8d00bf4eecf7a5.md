@@ -4,13 +4,13 @@ title: Check Please
 authors:
 - Painter
 tags:
-- F/m
+- F-m
 - sbm
 - bond
 - susp
 - cbt
 - blackmail
-- cons/reluct
+- cons-reluct
 - X
 ---
 

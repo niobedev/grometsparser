@@ -4,7 +4,7 @@ title: Fugazi
 authors:
 - Mila V
 tags:
-- M+/f
+- M+-f
 - mpov
 - fpov
 - kidnap

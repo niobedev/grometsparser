@@ -4,7 +4,7 @@ title: A Sound And Some Fury
 authors:
 - Rubberking
 tags:
-- M/f
+- M-f
 - latex
 - bondage
 - cons

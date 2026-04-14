@@ -4,7 +4,7 @@ title: Cassie's Curses
 authors:
 - ZTVFemdomtales
 tags:
-- F/f
+- F-f
 - bond
 - dream
 - mind-control

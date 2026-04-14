@@ -5,14 +5,14 @@ authors:
 - Northern Chill
 tags:
 - FF
-- F/doll
+- F-doll
 - transform
 - lovedolls
 - revert
 - island
 - horror
 - sex
-- cons/nc
+- cons-nc
 - X
 ---
 

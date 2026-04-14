@@ -4,7 +4,7 @@ title: A Lot of Bull
 authors:
 - Nickerlas
 tags:
-- n/a
+- n-a
 ---
 
 **A Lot of Bull**

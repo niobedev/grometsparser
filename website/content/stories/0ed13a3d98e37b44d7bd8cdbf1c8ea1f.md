@@ -4,10 +4,10 @@ title: Perhaps I Should Have Told Him
 authors:
 - EveryBody_Else
 tags:
-- M/f
-- F/f
-- M/ff
-- D/s
+- M-f
+- F-f
+- M-ff
+- D-s
 - solo-f
 - bond
 - straps

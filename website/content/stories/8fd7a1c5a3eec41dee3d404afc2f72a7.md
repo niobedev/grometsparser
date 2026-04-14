@@ -4,7 +4,7 @@ title: 'Pony for Rent 2: Competition'
 authors:
 - Ron McIngle
 tags:
-- MF+/fm+
+- MF+-fm+
 - ponygirls
 - harness
 - bitgag

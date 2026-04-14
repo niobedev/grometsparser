@@ -4,8 +4,8 @@ title: 'The Investigative Reporter 9: Finding A Winning Mount'
 authors:
 - Jackie Rabbit
 tags:
-- M/f
-- FM/f
+- M-f
+- FM-f
 - naked
 - stall
 - barn
@@ -17,7 +17,7 @@ tags:
 - crop
 - ponygirl
 - objectifed
-- con/reluct
+- con-reluct
 - X
 ---
 

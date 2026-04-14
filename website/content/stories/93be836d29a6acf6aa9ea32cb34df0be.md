@@ -4,10 +4,10 @@ title: Abandoned Slave
 authors:
 - Qwert493
 tags:
-- M/f
+- M-f
 - Sbm
 - caught
-- F/m
+- F-m
 - latex
 - bond
 - outdoors

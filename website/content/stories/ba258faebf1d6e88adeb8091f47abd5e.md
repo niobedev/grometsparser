@@ -4,10 +4,10 @@ title: Finishing School
 authors:
 - Rbbral
 tags:
-- F+/f
+- F+-f
 - latex
 - bond
-- D/s
+- D-s
 - FF
 - reluct
 - X

@@ -4,7 +4,7 @@ title: The Church of Bliss
 authors:
 - Spooky Boogy
 tags:
-- F+/f
+- F+-f
 - fpov
 - latex
 - catsuit

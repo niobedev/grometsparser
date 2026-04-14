@@ -4,7 +4,7 @@ title: 'The Victim 4: Turnabout 2'
 authors:
 - Anne Woolsey
 tags:
-- F+/f
+- F+-f
 - bond
 - kidnap
 - transported

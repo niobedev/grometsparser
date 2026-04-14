@@ -4,8 +4,8 @@ title: Blue Mummy
 authors:
 - Morniel
 tags:
-- M/f
-- D/s
+- M-f
+- D-s
 - enema
 - wrap
 - silk

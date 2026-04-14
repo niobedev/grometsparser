@@ -4,7 +4,7 @@ title: Return to Sender
 authors:
 - Jo
 tags:
-- M/f
+- M-f
 - cardboard
 - resin
 - stuck

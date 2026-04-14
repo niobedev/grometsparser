@@ -6,7 +6,7 @@ authors:
 tags:
 - Solo-M
 - FM+
-- M+/m
+- M+-m
 - spandex
 - leotards
 - tights

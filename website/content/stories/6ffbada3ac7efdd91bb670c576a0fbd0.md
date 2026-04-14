@@ -4,7 +4,7 @@ title: Reprogramming
 authors:
 - Darkraptor1
 tags:
-- M+/f
+- M+-f
 - prison
 - bond
 - straitjacket

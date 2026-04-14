@@ -4,7 +4,7 @@ title: Locks
 authors:
 - Brandy Dewinter
 tags:
-- M/f
+- M-f
 - bond
 - cons
 - X

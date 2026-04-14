@@ -4,7 +4,7 @@ title: Smoking Issues 4
 authors:
 - Mumman
 tags:
-- FF/m
+- FF-m
 - bond
 - bdsm
 - cuffs
@@ -20,7 +20,7 @@ tags:
 - oral
 - mast
 - climax
-- cons/reluct
+- cons-reluct
 - X
 ---
 

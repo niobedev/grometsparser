@@ -5,15 +5,15 @@ authors:
 - Jessica
 tags:
 - Solo-F
-- Machine/f
-- FM+/f
+- Machine-f
+- FM+-f
 - ducttape
 - cocoon
 - hospital
 - cell
 - entrap
 - capture
-- cons/nc
+- cons-nc
 - X
 date: 2001-11-18 00:00:00
 ---

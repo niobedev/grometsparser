@@ -4,7 +4,7 @@ title: Kidnapped by a Friend; Delivered to a Stranger
 authors:
 - Jake R
 tags:
-- M/m
+- M-m
 - bond
 - rope
 - bfold
@@ -16,7 +16,7 @@ tags:
 - strip
 - tickle
 - nosex
-- cons/reluct
+- cons-reluct
 - X
 date: 2013-05-14 00:00:00
 ---

@@ -4,9 +4,9 @@ title: The Bones In The Dungeon 3
 authors:
 - Jackie Rabbit
 tags:
-- M/f+
-- Other/ff
-- F/f
+- M-f+
+- Other-ff
+- F-f
 - bond
 - susp
 - dungeon
@@ -21,7 +21,7 @@ tags:
 - climax
 - denial
 - medieval
-- cons/nc
+- cons-nc
 - XX
 ---
 

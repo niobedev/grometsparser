@@ -4,8 +4,8 @@ title: Wheel of Fortune
 authors:
 - Ultraprene
 tags:
-- F/fm
-- D/s
+- F-fm
+- D-s
 - latex
 - bondage
 - cons

@@ -4,12 +4,12 @@ title: The Basement 1
 authors:
 - Sabina
 tags:
-- F/f
-- FF/f
+- F-f
+- FF-f
 - bond
 - toys
 - furry
-- reluct/cons
+- reluct-cons
 - XX
 ---
 

@@ -10,7 +10,7 @@ tags:
 - gag
 - blindfold
 - caught
-- F/f
+- F-f
 - bond
 - cons
 - X

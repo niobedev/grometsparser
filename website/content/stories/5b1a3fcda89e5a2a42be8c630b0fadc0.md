@@ -4,7 +4,7 @@ title: Laura's Couch 2
 authors:
 - Andrea Jordan
 tags:
-- F/m
+- F-m
 - bond
 - cuffs
 - couch

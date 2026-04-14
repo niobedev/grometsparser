@@ -16,7 +16,7 @@ tags:
 - switch
 - crate
 - discovery
-- M/f
+- M-f
 - straps
 - encase
 - shipped

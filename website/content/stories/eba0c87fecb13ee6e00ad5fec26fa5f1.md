@@ -4,7 +4,7 @@ title: Mary Shelley's Monster
 authors:
 - Daviddrb6
 tags:
-- Machine/f
+- Machine-f
 - hybrid
 - kidnap
 - bond

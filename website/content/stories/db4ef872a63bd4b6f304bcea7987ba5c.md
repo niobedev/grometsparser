@@ -4,7 +4,7 @@ title: Pet Correction
 authors:
 - ForeverAltered
 tags:
-- F/f+
+- F-f+
 - FF
 - fpov
 - latex

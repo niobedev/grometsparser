@@ -9,8 +9,8 @@ tags:
 - rope
 - gag
 - caught
-- F/f
-- M/f
+- F-f
+- M-f
 - bond
 - trunk
 - bdsm
@@ -20,7 +20,7 @@ tags:
 - sex
 - anal
 - climax
-- cons/nc
+- cons-nc
 - X
 date: 2003-10-30 00:00:00
 ---

@@ -8,7 +8,7 @@ tags:
 - date
 - sex
 - multi-climax
-- M/f
+- M-f
 - wager
 - bond
 - bedtie

@@ -4,9 +4,9 @@ title: The Just Punishment
 authors:
 - Restricted
 tags:
-- F+/f
-- FM/f
-- F/m
+- F+-f
+- FM-f
+- F-m
 - mum
 - wrap
 - cloth
@@ -16,7 +16,7 @@ tags:
 - bond
 - susp
 - barn
-- reluct/cons
+- reluct-cons
 - X
 date: 2006-06-27 00:00:00
 ---

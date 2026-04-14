@@ -5,7 +5,7 @@ authors:
 - Selene
 tags:
 - Solo-F
-- unknown/f
+- unknown-f
 - hotel
 - drug
 - captive
@@ -18,7 +18,7 @@ tags:
 - torment
 - encased
 - stuck
-- cons/nc
+- cons-nc
 - XX
 date: 2015-10-04 00:00:00
 ---

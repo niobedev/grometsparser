@@ -5,8 +5,8 @@ authors:
 - Alcatraz
 tags:
 - Solo-F
-- F/f
-- D/s
+- F-f
+- D-s
 - office
 - command
 - trunk
@@ -26,7 +26,7 @@ tags:
 - club
 - display
 - stuck
-- cons/reluct
+- cons-reluct
 - X
 date: 2019-03-10 00:00:00
 ---

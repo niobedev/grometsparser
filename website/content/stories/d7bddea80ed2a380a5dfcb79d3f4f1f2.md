@@ -4,9 +4,9 @@ title: 'My Bondage 5: Under New Management'
 authors:
 - Richard
 tags:
-- MFF/f
-- F/ffm
-- D/s
+- MFF-f
+- F-ffm
+- D-s
 - slaves
 - captive
 - bond
@@ -23,7 +23,7 @@ tags:
 - oral
 - sex
 - climax
-- cons/nc
+- cons-nc
 - XX
 ---
 

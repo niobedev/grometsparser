@@ -4,8 +4,8 @@ title: Eisanna's Fantasy
 authors:
 - Eisanna Maria
 tags:
-- F/m
-- D/s
+- F-m
+- D-s
 - latex
 - catsuit
 - hood
@@ -20,7 +20,7 @@ tags:
 - anal
 - denial
 - climax
-- cons/nc
+- cons-nc
 - XXX
 date: 2007-02-22 00:00:00
 ---

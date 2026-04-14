@@ -5,8 +5,8 @@ authors:
 - Jackie Rabbit
 tags:
 - FM
-- F+/f
-- M+/f
+- F+-f
+- M+-f
 - bond
 - tape
 - bagged
@@ -20,7 +20,7 @@ tags:
 - sex
 - anal
 - climax
-- cons/nc
+- cons-nc
 - X
 date: 2011-04-24 00:00:00
 ---

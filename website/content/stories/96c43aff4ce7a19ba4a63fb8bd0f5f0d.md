@@ -4,7 +4,7 @@ title: Ladyheart
 authors:
 - Lobo De La Sombra
 tags:
-- M/f
+- M-f
 - bond
 - kidnap
 - fantasy

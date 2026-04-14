@@ -5,7 +5,7 @@ authors:
 - Jackie Rabbit
 tags:
 - Solo-M
-- F/m
+- F-m
 - cd
 - fem
 - lingerie
@@ -16,7 +16,7 @@ tags:
 - cuffs
 - sex
 - climax
-- cons/reluct
+- cons-reluct
 - X
 ---
 

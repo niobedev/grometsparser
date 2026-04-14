@@ -4,12 +4,12 @@ title: Rubber Fairy Tale
 authors:
 - Darqside
 tags:
-- M/f
+- M-f
 - latex
 - curse
 - magic
 - encased
-- cons/nc
+- cons-nc
 - X
 date: 2007-03-27 00:00:00
 ---

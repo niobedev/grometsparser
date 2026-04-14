@@ -5,13 +5,13 @@ authors:
 - SFT
 tags:
 - Solo-M
-- M/f
+- M-f
 - doll
 - stuck
 - costume
 - play
 - sex
-- cons/nc
+- cons-nc
 - X
 date: 2010-11-26 00:00:00
 ---

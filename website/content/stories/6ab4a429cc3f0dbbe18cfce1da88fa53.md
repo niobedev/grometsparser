@@ -8,8 +8,8 @@ tags:
 - outdoors
 - toys
 - caught
-- M+/f
-- cons/nc
+- M+-f
+- cons-nc
 - XX
 ---
 

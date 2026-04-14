@@ -4,8 +4,8 @@ title: The Experiment 3
 authors:
 - Lobo De la Sombra
 tags:
-- F/f
-- F/fm+
+- F-f
+- F-fm+
 - lab
 - latex
 - liquid
@@ -19,7 +19,7 @@ tags:
 - spiked
 - gag
 - blackmail
-- cons/reluct
+- cons-reluct
 - X
 date: 2014-09-06 00:00:00
 ---

@@ -4,9 +4,9 @@ title: Kate's Going to Sea
 authors:
 - Druid5
 tags:
-- M/f
-- MF+/ff
-- MF/f
+- M-f
+- MF+-ff
+- MF-f
 - bond
 - hogtie
 - gag

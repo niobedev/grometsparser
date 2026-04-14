@@ -4,7 +4,7 @@ title: Plaster Boy
 authors:
 - Neale Suddens
 tags:
-- F/m
+- F-m
 - spandex
 - sleep sack
 - plastercast

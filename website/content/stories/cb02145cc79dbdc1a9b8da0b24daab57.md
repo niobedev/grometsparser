@@ -4,8 +4,8 @@ title: Summer Training 8
 authors:
 - T S Fesseln
 tags:
-- M/ff
-- D/s
+- M-ff
+- D-s
 - bond
 - cuffs
 - collar

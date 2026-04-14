@@ -4,7 +4,7 @@ title: My First Leotard and Tights
 authors:
 - Leotardspank
 tags:
-- M/m
+- M-m
 - drinking
 - drugs
 - spandex

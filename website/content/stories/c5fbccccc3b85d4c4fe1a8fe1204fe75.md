@@ -4,7 +4,7 @@ title: 'Helen''s Journey 2: Therapy Begins'
 authors:
 - Lobo De La Sombra
 tags:
-- M/f
+- M-f
 - bond
 - cuffs
 - leather

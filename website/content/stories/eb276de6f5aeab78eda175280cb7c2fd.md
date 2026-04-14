@@ -15,7 +15,7 @@ tags:
 - hobble
 - sbf
 - stuck
-- FM/f
+- FM-f
 - straps
 - wrap
 - cocoon

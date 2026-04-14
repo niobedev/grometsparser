@@ -5,8 +5,8 @@ title: 'I, Masochist - Chapter 1: Performance Art'
 authors:
 - The Technician
 tags:
-- F/F+
-- M/f+
+- F-F+
+- M-f+
 - display
 - gallery
 - cages

@@ -4,8 +4,8 @@ title: 'Hope Floats Part 3: Mermaids'
 authors:
 - Nate Walis
 tags:
-- F/f
-- F/m
+- F-f
+- F-m
 - latex
 - objectify
 - costume
@@ -18,7 +18,7 @@ tags:
 - oral
 - sex
 - climax
-- cons/reluct
+- cons-reluct
 - X
 date: 2012-06-14 00:00:00
 ---

@@ -4,7 +4,7 @@ title: Unexpected Mind Blower
 authors:
 - Sean Dunne
 tags:
-- n/a
+- n-a
 ---
 
 In all my years visiting professional dominatrixes, rather ironically,

@@ -4,8 +4,8 @@ title: More Every Two Weeks
 authors:
 - Jeza
 tags:
-- F/m
-- M+/fm
+- F-m
+- M+-fm
 - naked
 - bond
 - rope
@@ -20,7 +20,7 @@ tags:
 - oral
 - sex
 - climax
-- cons/nc
+- cons-nc
 - X
 ---
 

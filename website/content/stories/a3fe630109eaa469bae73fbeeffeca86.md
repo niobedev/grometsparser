@@ -4,7 +4,7 @@ title: The Beach Part 2
 authors:
 - Anne Woolsey
 tags:
-- F/f+
+- F-f+
 - kidnap
 - bond
 - gag
@@ -13,7 +13,7 @@ tags:
 - chairtie
 - rope
 - captive
-- cons/nc
+- cons-nc
 - X
 date: 2017-05-06 00:00:00
 ---

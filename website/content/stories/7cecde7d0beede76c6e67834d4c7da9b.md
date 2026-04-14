@@ -4,7 +4,7 @@ title: Drone House
 authors:
 - Lckdnrbbr
 tags:
-- MF+/f
+- MF+-f
 - drones
 - latex
 - electro

@@ -4,7 +4,7 @@ title: The Erotic Magic Club Part 4
 authors:
 - Doug S
 tags:
-- M/fff
+- M-fff
 - bodymod
 - magic
 - cons

@@ -4,11 +4,11 @@ title: Field Survey
 authors:
 - Zack
 tags:
-- M/f
+- M-f
 - futuristic
 - bondage
 - slave
-- n/c
+- n-c
 - X
 ---
 

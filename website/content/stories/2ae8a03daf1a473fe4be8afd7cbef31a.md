@@ -4,8 +4,8 @@ title: Karens Punishment
 authors:
 - Ted S
 tags:
-- F/f
-- D/s
+- F-f
+- D-s
 - latex
 - hood
 - catsuit
@@ -20,7 +20,7 @@ tags:
 - toys
 - insert
 - climax
-- reluct/nc
+- reluct-nc
 - XX
 date: 2007-03-02 00:00:00
 ---

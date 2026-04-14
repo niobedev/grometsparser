@@ -4,11 +4,11 @@ title: Arrested
 authors:
 - Cuffmate
 tags:
-- F/m
+- F-m
 - bond
 - cuffs
 - imprisonment
-- n/c
+- n-c
 - XX
 ---
 

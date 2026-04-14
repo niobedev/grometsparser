@@ -4,7 +4,7 @@ title: Vanity Mare
 authors:
 - thepinkbishop
 tags:
-- M+/f+
+- M+-f+
 - ponygirl
 - harness
 - buttplug

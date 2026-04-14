@@ -4,7 +4,7 @@ title: 'Another Saturday Morning 3: Still Another Saturday Morning'
 authors:
 - Cindy
 tags:
-- M/f
+- M-f
 - naked
 - bond
 - rope

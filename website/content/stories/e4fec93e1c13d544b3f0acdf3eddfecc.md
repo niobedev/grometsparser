@@ -4,7 +4,7 @@ title: First Session Nightmare
 authors:
 - SissyJayla
 tags:
-- M/m
+- M-m
 - sissy
 - cd
 - 'true'
@@ -19,7 +19,7 @@ tags:
 - drugged
 - isolation
 - stuck
-- cons/nc
+- cons-nc
 - X
 date: 2018-12-16 00:00:00
 ---

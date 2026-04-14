@@ -4,7 +4,7 @@ title: Clubhouse Rules
 authors:
 - lckdnrbbr
 tags:
-- F/m
+- F-m
 - latex
 - club
 - hood

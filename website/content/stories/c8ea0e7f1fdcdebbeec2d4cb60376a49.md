@@ -9,7 +9,7 @@ tags:
 - chast
 - corset
 - hogtie
-- F/m
+- F-m
 - bond
 - cons
 - X

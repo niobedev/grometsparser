@@ -5,7 +5,7 @@ authors:
 - JC
 tags:
 - Sbm
-- F/m
+- F-m
 - discovery
 - fem
 - cons

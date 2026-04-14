@@ -4,7 +4,7 @@ title: Fembug
 authors:
 - Jackie Rabbit
 tags:
-- F/m
+- F-m
 - M2f
 - fem
 - tg

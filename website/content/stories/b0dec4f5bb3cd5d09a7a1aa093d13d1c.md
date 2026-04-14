@@ -4,8 +4,8 @@ title: Game Day
 authors:
 - Normand
 tags:
-- M/f
-- D/s
+- M-f
+- D-s
 - bond
 - nude
 - gag

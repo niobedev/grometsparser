@@ -5,7 +5,7 @@ title: The Party Bus
 authors:
 - The Technician
 tags:
-- M+F+/mf
+- M+F+-mf
 - halloween
 - devil
 - orgy

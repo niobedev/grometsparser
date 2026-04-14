@@ -4,8 +4,8 @@ title: Automart
 authors:
 - 64Fordman
 tags:
-- MM/f
-- machine/f
+- MM-f
+- machine-f
 - cuffs
 - hogtie
 - messy

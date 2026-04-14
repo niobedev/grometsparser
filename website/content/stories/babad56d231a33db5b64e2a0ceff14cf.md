@@ -5,8 +5,8 @@ authors:
 - Trash girl / 64Fordman
 tags:
 - FF
-- F/f
-- MM/ff
+- F-f
+- MM-ff
 - bond
 - gag
 - majick
@@ -23,7 +23,7 @@ tags:
 - bagged
 - wash
 - laundry
-- con/nc
+- con-nc
 - X
 date: 2018-01-03 00:00:00
 ---

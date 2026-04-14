@@ -4,7 +4,7 @@ title: June’s Self Bondage Mistake 8
 authors:
 - ChgoBinder
 tags:
-- F/f
+- F-f
 - wrap
 - bandage
 - insert

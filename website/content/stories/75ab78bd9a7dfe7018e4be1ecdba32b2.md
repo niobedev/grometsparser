@@ -4,7 +4,7 @@ title: Sex Worm
 authors:
 - PHF
 tags:
-- F/ff
+- F-ff
 - pantyhose
 - woolens
 - cocoon

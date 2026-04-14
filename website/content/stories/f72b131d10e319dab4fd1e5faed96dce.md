@@ -4,7 +4,7 @@ title: The Prank
 authors:
 - Gromet
 tags:
-- F/f
+- F-f
 - scifi
 - accident
 - F2sexdoll

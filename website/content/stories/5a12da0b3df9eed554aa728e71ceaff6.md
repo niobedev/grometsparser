@@ -4,8 +4,8 @@ title: 'Paradice Lost 5: A Rare Gift'
 authors:
 - A Pensive Pen
 tags:
-- F/fff
-- D/s
+- F-fff
+- D-s
 - bond
 - cuffs
 - gag
@@ -29,7 +29,7 @@ tags:
 - oral
 - torment
 - denial
-- cons/reluct
+- cons-reluct
 - X
 ---
 

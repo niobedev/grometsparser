@@ -4,14 +4,14 @@ title: 'Gai-Shift 2: Queen Lilla''s Mission'
 authors:
 - Rohana
 tags:
-- F+/f+
-- F/m+
+- F+-f+
+- F-m+
 - latex
 - bond
 - bdsm
 - machine
 - toys
-- cons/nc
+- cons-nc
 - X
 ---
 

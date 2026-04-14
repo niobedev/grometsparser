@@ -4,7 +4,7 @@ title: The Lady Bella
 authors:
 - Worzel
 tags:
-- F+/f+
+- F+-f+
 - latex
 - bond
 - sleepsack

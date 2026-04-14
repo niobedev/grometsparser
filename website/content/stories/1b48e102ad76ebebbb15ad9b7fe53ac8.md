@@ -4,8 +4,8 @@ title: The Final Trek
 authors:
 - Knotty Master
 tags:
-- F/f
-- D/s
+- F-f
+- D-s
 - chastbelt
 - spacestation
 - gamble
@@ -31,7 +31,7 @@ tags:
 - slave
 - scifi
 - startrek
-- cons/reluct
+- cons-reluct
 - XX
 ---
 

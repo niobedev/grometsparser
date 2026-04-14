@@ -4,8 +4,8 @@ title: 'Bitgirl Part 2: Bitgirl'
 authors:
 - Jo
 tags:
-- M/ff
-- D/s
+- M-ff
+- D-s
 - slaves
 - bodymod
 - piercing

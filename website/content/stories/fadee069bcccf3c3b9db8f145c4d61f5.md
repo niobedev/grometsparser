@@ -4,7 +4,7 @@ title: Jenny
 authors:
 - Mikel
 tags:
-- M/f
+- M-f
 - invite
 - dinner
 - discovery

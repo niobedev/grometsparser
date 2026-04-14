@@ -4,8 +4,8 @@ title: No Longer Alone
 authors:
 - Gromet
 tags:
-- F/f
-- MF/f
+- F-f
+- MF-f
 - sexbot
 - bond
 - rope

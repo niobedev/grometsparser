@@ -4,8 +4,8 @@ title: Susan's Return
 authors:
 - SwitchMan
 tags:
-- F/m
-- M/f
+- F-m
+- M-f
 - bdsm
 - bond
 - machine

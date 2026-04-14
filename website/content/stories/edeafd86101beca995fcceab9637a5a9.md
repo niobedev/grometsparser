@@ -5,8 +5,8 @@ authors:
 - Teann Daorsa
 tags:
 - Sbm
-- F/m
-- M/ff
+- F-m
+- M-ff
 - straps
 - gag
 - naked
@@ -22,7 +22,7 @@ tags:
 - sex
 - climax
 - revenge
-- cons/reluct
+- cons-reluct
 - X
 date: 2013-01-04 00:00:00
 ---

@@ -4,7 +4,7 @@ title: The Bodystocking
 authors:
 - William
 tags:
-- F/m
+- F-m
 - sbm
 - toys
 - bond

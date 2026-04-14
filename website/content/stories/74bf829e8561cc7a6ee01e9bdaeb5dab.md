@@ -4,14 +4,14 @@ title: The Boxvan
 authors:
 - Spoonbender
 tags:
-- M/f
+- M-f
 - bond
 - toys
 - hum
 - sex
 - gangbang
 - kidnap
-- reluct/nc
+- reluct-nc
 - X
 date: 2017-05-07 00:00:00
 ---

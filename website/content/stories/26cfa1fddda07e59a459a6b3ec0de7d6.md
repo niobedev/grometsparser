@@ -6,7 +6,7 @@ authors:
 tags:
 - Sbm
 - latex
-- FM/m
+- FM-m
 - bond
 - susp
 - electro

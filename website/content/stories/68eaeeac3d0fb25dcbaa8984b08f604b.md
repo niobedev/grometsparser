@@ -4,7 +4,7 @@ title: 'American Dream 6: Together Again'
 authors:
 - Andy Le Strange
 tags:
-- M/ff
+- M-ff
 - captives
 - bond
 - cuffs
@@ -12,7 +12,7 @@ tags:
 - lingerie
 - tease
 - fantasy
-- cons/reluct
+- cons-reluct
 - X
 ---
 

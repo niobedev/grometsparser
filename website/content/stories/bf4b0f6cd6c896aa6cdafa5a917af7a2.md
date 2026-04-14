@@ -5,9 +5,9 @@ authors:
 - Rbbral
 tags:
 - FM
-- M/f
-- F/m
-- D/s
+- M-f
+- F-m
+- D-s
 - bond
 - latex
 - dress

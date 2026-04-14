@@ -4,8 +4,8 @@ title: Janet in Training
 authors:
 - sfmaster
 tags:
-- F/f
-- D/s
+- F-f
+- D-s
 - bdsm
 - slave
 - collar

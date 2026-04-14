@@ -4,7 +4,7 @@ title: The Kingdom
 authors:
 - Southrook
 tags:
-- MF+/ff
+- MF+-ff
 - captives
 - slaves
 - armbinder
@@ -17,7 +17,7 @@ tags:
 - subway
 - carriage
 - discovery
-- cons/nc
+- cons-nc
 - X
 date: 2018-04-24 00:00:00
 ---

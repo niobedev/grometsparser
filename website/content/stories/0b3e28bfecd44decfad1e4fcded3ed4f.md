@@ -4,7 +4,7 @@ title: 'Temple of Domina: Arianny'
 authors:
 - The Scribe of Domina
 tags:
-- F/m
+- F-m
 - mpov
 - naked
 - trick

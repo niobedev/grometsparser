@@ -6,7 +6,7 @@ authors:
 - The Technician
 tags:
 - Solo-F
-- MF+/f
+- MF+-f
 - store
 - dress
 - computer
@@ -21,7 +21,7 @@ tags:
 - hum
 - scan
 - cell
-- reluct/cons
+- reluct-cons
 - X
 ---
 

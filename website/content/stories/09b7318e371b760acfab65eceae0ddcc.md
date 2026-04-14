@@ -4,7 +4,7 @@ title: Invitation
 authors:
 - Scarecrow
 tags:
-- F+/m
+- F+-m
 - bond
 - scarves
 - cuffs
@@ -12,7 +12,7 @@ tags:
 - hood
 - tickle
 - sex
-- reluct/con
+- reluct-con
 - X
 ---
 

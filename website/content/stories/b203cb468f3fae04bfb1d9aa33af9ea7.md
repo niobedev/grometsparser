@@ -4,7 +4,7 @@ title: The Sex Dolly Factory
 authors:
 - Vleight
 tags:
-- FM+/f
+- FM+-f
 - revenge
 - prepare
 - torment
@@ -21,7 +21,7 @@ tags:
 - objectify
 - climax
 - denial
-- cons/nc
+- cons-nc
 - X
 date: 2019-03-06 00:00:00
 ---

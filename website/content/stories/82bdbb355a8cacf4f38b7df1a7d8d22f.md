@@ -4,7 +4,7 @@ title: 'Home Invasion 4: Death & the Rat'
 authors:
 - Carnaj
 tags:
-- FM+/f
+- FM+-f
 - naked
 - gag
 - cuffs
@@ -15,7 +15,7 @@ tags:
 - rat
 - devour
 - death
-- cons/nc
+- cons-nc
 - XXX
 ---
 

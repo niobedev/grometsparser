@@ -4,7 +4,7 @@ title: Art & Craft
 authors:
 - Barretthunter
 tags:
-- M/f
+- M-f
 - capture
 - bond
 - cuffs

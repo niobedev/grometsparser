@@ -4,8 +4,8 @@ title: 'Automata 2: The Escape'
 authors:
 - Tam Lin
 tags:
-- FF/f
-- M+/f
+- FF-f
+- M+-f
 - machine
 - transform
 - bodymod
@@ -16,7 +16,7 @@ tags:
 - display
 - sex
 - oral
-- reluct/nc
+- reluct-nc
 - X
 ---
 

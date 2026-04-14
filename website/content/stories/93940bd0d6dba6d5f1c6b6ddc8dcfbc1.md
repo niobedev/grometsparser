@@ -5,7 +5,7 @@ title: 642, Mind Diary of a Judicial Slave
 authors:
 - The Technician
 tags:
-- MF/f
+- MF-f
 - slave
 - cons
 - X

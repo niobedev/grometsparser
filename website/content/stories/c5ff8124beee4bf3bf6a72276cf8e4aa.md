@@ -5,7 +5,7 @@ authors:
 - MrSmooth
 tags:
 - Solo-M
-- F/m
+- F-m
 - capture
 - collar
 - cuffs
@@ -19,7 +19,7 @@ tags:
 - oral
 - mast
 - climax
-- cons/reluct
+- cons-reluct
 - XX
 date: 2014-02-26 00:00:00
 ---

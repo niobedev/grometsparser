@@ -5,7 +5,7 @@ authors:
 - Kimberley Witchey
 tags:
 - Solo-M
-- F/m
+- F-m
 - bond
 - leather
 - catsuit
@@ -14,7 +14,7 @@ tags:
 - mast
 - climax
 - denial
-- cons/reluct
+- cons-reluct
 - X
 date: 2011-12-20 00:00:00
 ---

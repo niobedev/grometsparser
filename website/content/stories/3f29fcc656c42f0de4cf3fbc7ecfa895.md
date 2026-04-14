@@ -5,7 +5,7 @@ authors:
 - Rupes
 tags:
 - Solo-M
-- F/m
+- F-m
 - game
 - straitjacket
 - leather

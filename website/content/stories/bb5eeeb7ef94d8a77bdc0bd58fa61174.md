@@ -4,7 +4,7 @@ title: Bound by Love
 authors:
 - DarkStar
 tags:
-- F/m
+- F-m
 - bond
 - fem
 - cons

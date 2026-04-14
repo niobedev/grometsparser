@@ -4,7 +4,7 @@ title: Weekend Maid
 authors:
 - Gromet
 tags:
-- F/f
+- F-f
 - maidbot
 - latex
 - catsuit
@@ -19,7 +19,7 @@ tags:
 - arousal
 - desire
 - kiss
-- FF/f
+- FF-f
 - clinic
 - inspection
 - surgery

@@ -5,7 +5,7 @@ authors:
 - Jackie Rabbit
 tags:
 - MF
-- M+/f
+- M+-f
 - kidnap
 - captive
 - bond
@@ -20,7 +20,7 @@ tags:
 - mast
 - sex
 - anal
-- cons/nc
+- cons-nc
 - XX
 date: 2011-10-13 00:00:00
 ---

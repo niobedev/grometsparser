@@ -4,7 +4,7 @@ title: Training Suit
 authors:
 - Lobo De la Sombra
 tags:
-- M/f
+- M-f
 - latex
 - catsuit
 - sealed
@@ -12,7 +12,7 @@ tags:
 - conditioning
 - mc
 - revenge
-- reluct/cons
+- reluct-cons
 - X
 date: 2010-03-23 00:00:00
 ---

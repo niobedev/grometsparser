@@ -12,7 +12,7 @@ tags:
 - tease
 - rings
 - stuck
-- 'caught: M/f'
+- 'caught: M-f'
 - sex
 - cons
 - X

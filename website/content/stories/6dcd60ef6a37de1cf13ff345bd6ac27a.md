@@ -4,8 +4,8 @@ title: 'Jessica Darling 9: Can I Get a Little Help?'
 authors:
 - Michael England
 tags:
-- F/f
-- D/s
+- F-f
+- D-s
 - bdsm
 - spank
 - oral

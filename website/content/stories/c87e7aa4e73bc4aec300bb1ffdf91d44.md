@@ -4,8 +4,8 @@ title: M.E.R.G.E
 authors:
 - Dreamweaver
 tags:
-- F/f
-- MF/fm
+- F-f
+- MF-fm
 - scifi
 - bodymod
 - bodysuit

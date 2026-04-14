@@ -17,8 +17,8 @@ tags:
 - torment
 - hum
 - caught
-- M/f
-- cons/nc
+- M-f
+- cons-nc
 - X
 date: 2014-10-30 00:00:00
 ---

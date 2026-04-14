@@ -4,10 +4,10 @@ title: Women's Circle
 authors:
 - Mike Silklover
 tags:
-- F+/ff
+- F+-ff
 - bond
 - scarves
-- reluct/nc
+- reluct-nc
 - X
 date: 2005-10-23 00:00:00
 ---

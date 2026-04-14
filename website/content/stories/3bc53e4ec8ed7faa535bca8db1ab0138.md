@@ -4,12 +4,12 @@ title: 'Night of the Living Dolls Chapter 2: Bright Sky, Dark Changes'
 authors:
 - Northern Chill
 tags:
-- Dolls/f
+- Dolls-f
 - transform
 - lovedoll
 - capture
 - horror
-- nc/reluct
+- nc-reluct
 - X
 ---
 

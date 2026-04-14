@@ -4,13 +4,13 @@ title: Andrea and the Mistress
 authors:
 - Chris Powell
 tags:
-- F/f
-- D/s
+- F-f
+- D-s
 - bond
 - chain
 - bdsm
 - toys
-- cons/reluct
+- cons-reluct
 - XX
 date: 2007-10-03 00:00:00
 ---

@@ -4,7 +4,7 @@ title: Bondage Barbie 5
 authors:
 - Anne Gray
 tags:
-- F/f
+- F-f
 - bond
 - leather
 - boxed

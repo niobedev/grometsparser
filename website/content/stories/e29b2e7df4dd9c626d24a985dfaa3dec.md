@@ -5,7 +5,7 @@ authors:
 - The Storyteller
 tags:
 - Sbf
-- M/f
+- M-f
 - dare
 - naked
 - cuffs
@@ -18,7 +18,7 @@ tags:
 - caught
 - mast
 - climax
-- cons/reluct
+- cons-reluct
 - X
 date: 2015-07-21 00:00:00
 ---

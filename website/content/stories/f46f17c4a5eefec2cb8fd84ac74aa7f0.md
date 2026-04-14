@@ -4,7 +4,7 @@ title: Bound by Love
 authors:
 - DarkStar
 tags:
-- F/m
+- F-m
 - cd
 - lingerie
 - pantyhose
@@ -16,7 +16,7 @@ tags:
 - gag
 - stuck
 - climax
-- cons/reluct
+- cons-reluct
 - X
 date: 2002-12-20 00:00:00
 ---

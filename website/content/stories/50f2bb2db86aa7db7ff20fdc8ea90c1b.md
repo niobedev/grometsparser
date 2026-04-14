@@ -4,7 +4,7 @@ title: Moroccan Vacation
 authors:
 - TagsAPoppin
 tags:
-- MF+/f
+- MF+-f
 - slave
 - mast
 - collar

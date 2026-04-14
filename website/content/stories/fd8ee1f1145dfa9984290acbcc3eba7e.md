@@ -5,7 +5,7 @@ authors:
 - PlastiClown
 tags:
 - Solo-F
-- MF+/f
+- MF+-f
 - capture
 - drug
 - transform
@@ -18,7 +18,7 @@ tags:
 - mast
 - sex
 - climax
-- cons/nc
+- cons-nc
 - X
 date: 2014-11-14 00:00:00
 ---

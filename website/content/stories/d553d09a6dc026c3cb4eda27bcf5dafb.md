@@ -7,10 +7,10 @@ tags:
 - Solo-M
 - shrink
 - caught
-- F/m
+- F-m
 - giantess
 - swallowed
-- cons/nc
+- cons-nc
 - X
 date: 2007-09-30 00:00:00
 ---

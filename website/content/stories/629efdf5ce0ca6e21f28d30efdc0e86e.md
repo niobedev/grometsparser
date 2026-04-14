@@ -5,7 +5,7 @@ authors:
 - Tantalis
 tags:
 - Sbmf
-- F/m
+- F-m
 - tape
 - cuffs
 - bond

@@ -5,8 +5,8 @@ authors:
 - HungryGuy
 tags:
 - Solo-F
-- M/f
-- D/s
+- M-f
+- D-s
 - objectify
 - harness
 - naked

@@ -4,8 +4,8 @@ title: A Game for Some
 authors:
 - Walt A.K.A. Xan
 tags:
-- M/f
-- M/f+
+- M-f
+- M-f+
 - oral
 - threesome
 - bond

@@ -5,8 +5,8 @@ authors:
 - Miss Trussed
 tags:
 - Solo-F
-- F/mm
-- MM/f
+- F-mm
+- MM-f
 - public
 - tease
 - voy
@@ -19,7 +19,7 @@ tags:
 - lingerie
 - fondle
 - mast
-- cons/reluct
+- cons-reluct
 - X
 ---
 

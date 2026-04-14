@@ -4,8 +4,8 @@ title: Garden Tub Bondage
 authors:
 - '"z"'
 tags:
-- F/f
-- D/s
+- F-f
+- D-s
 - bond
 - hogtie
 - bath

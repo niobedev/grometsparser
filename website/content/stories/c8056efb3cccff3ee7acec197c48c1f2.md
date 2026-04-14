@@ -4,8 +4,8 @@ title: Amy's Old Latex Dolly
 authors:
 - Worzel
 tags:
-- F/f
-- D/s
+- F-f
+- D-s
 - latex
 - catsuit
 - gag

@@ -4,7 +4,7 @@ title: Jack & Monica
 authors:
 - Geisha
 tags:
-- M/f
+- M-f
 - bond
 - latex
 - packaged

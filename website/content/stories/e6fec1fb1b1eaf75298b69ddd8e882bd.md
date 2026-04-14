@@ -4,8 +4,8 @@ title: Stress Relief
 authors:
 - Darkraptor1
 tags:
-- F/f
-- D/s
+- F-f
+- D-s
 - wrap
 - cocoon
 - latex

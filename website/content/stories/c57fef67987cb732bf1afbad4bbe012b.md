@@ -4,7 +4,7 @@ title: 'Alice & Amanda 2: Living Together'
 authors:
 - Alina Aamu
 tags:
-- F/f
+- F-f
 - bond
 - rope
 - gag

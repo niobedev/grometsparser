@@ -4,7 +4,7 @@ title: 'Widow, Corset, Ropes, Submission Part 4: Vibrators from Heaven and Hell'
 authors:
 - Margaret M
 tags:
-- M/f
+- M-f
 - bond
 - rope
 - gag

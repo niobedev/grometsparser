@@ -5,7 +5,7 @@ authors:
 - Captain Lance
 tags:
 - MF
-- F/m
+- F-m
 - date
 - sex
 - cuckold

@@ -4,7 +4,7 @@ title: 'Tales from the Dolly Shoppe: The Perfect Gift'
 authors:
 - URN My Power
 tags:
-- M/f
+- M-f
 - transform
 - machine
 - bodymod

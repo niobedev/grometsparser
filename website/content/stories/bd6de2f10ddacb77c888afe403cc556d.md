@@ -5,7 +5,7 @@ authors:
 - Zephyr
 tags:
 - MF
-- F/f
+- F-f
 - FM
 - bond
 - naked

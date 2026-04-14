@@ -4,8 +4,8 @@ title: Just Another Box
 authors:
 - Grimm_Searcher
 tags:
-- M/f
-- F/f
+- M-f
+- F-f
 - Sbf
 - machine
 - blackmail

@@ -51,8 +51,9 @@ taxonomies:
 
 sectionPagesMenu: main
 
-paginate: 10
-paginatePath: page
+pagination:
+  pagerSize: 10
+  path: page
 
 frontmatter:
   date:
@@ -68,6 +69,8 @@ frontmatter:
 
 permalinks:
   stories: /stories/:year/:month/:day/:slug/
+  tags: /tags/:slug
+  authors: /authors/:slug
 
 enableRobotsTXT: true
 
@@ -84,19 +87,19 @@ menu:
       weight: 10
     - identifier: tags
       name: Tags
-      url: /tags/
+      url: /tags
       weight: 20
     - identifier: authors
       name: Authors
-      url: /authors/
+      url: /authors
       weight: 30
     - identifier: purpose
       name: Purpose
-      url: /purpose/
+      url: /purpose
       weight: 35
     - identifier: search
       name: Search
-      url: /search/
+      url: /search
       weight: 38
     - identifier: original
       name: Original Site

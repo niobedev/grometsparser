@@ -4,7 +4,7 @@ title: A Day on the Lake
 authors:
 - Jon Deets
 tags:
-- M+/f
+- M+-f
 - party
 - tease
 - bond
@@ -14,7 +14,7 @@ tags:
 - oral
 - clmax
 - revenge
-- cons/reluct
+- cons-reluct
 - X
 date: 2013-02-26 00:00:00
 ---

@@ -4,7 +4,7 @@ title: Emma-bot on Display
 authors:
 - Gromet
 tags:
-- M/f
+- M-f
 - fpov
 - sexbot
 - latex

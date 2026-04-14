@@ -5,7 +5,7 @@ authors:
 - Lckdnrbbr
 tags:
 - FF
-- F/f
+- F-f
 - latex
 - drones
 - collar

@@ -4,7 +4,7 @@ title: The Posture Bar
 authors:
 - CK
 tags:
-- F/f
+- F-f
 - bond
 - collar
 - buttplug

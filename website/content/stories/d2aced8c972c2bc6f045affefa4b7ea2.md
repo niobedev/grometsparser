@@ -5,7 +5,7 @@ authors:
 - memyselfanye
 tags:
 - Sbm
-- F/m
+- F-m
 - bond
 - cuffs
 - naked

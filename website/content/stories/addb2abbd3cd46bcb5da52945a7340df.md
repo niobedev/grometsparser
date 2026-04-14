@@ -4,8 +4,8 @@ title: Training Amy
 authors:
 - Normand
 tags:
-- M/f
-- D/s
+- M-f
+- D-s
 - bond
 - gag
 - conditiong

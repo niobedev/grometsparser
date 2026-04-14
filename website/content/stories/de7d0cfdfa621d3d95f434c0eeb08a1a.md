@@ -4,7 +4,7 @@ title: Dana's Revenge Pt2
 authors:
 - Tweak
 tags:
-- F/m
+- F-m
 - bondage
 - cbt
 - f-dom

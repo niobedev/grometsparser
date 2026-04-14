@@ -4,8 +4,8 @@ title: Leon City Side Stories 2025
 authors:
 - TheLargeEmpty
 tags:
-- F/f+
-- F+/f+
+- F-f+
+- F+-f+
 - latex
 - majick
 - costume

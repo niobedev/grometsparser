@@ -4,7 +4,7 @@ title: Plant(ed) 2 - The Diet Plan
 authors:
 - Baubleheadz
 tags:
-- Plant/f
+- Plant-f
 - anal
 - mc
 - vore-ish

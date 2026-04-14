@@ -5,7 +5,7 @@ authors:
 - Wrapper's Delight and Red-Dreamer
 tags:
 - Solo-F
-- Drider/f
+- Drider-f
 - capture
 - wrap
 - cocoon
@@ -13,7 +13,7 @@ tags:
 - majick
 - transform
 - mc
-- reluct/nc
+- reluct-nc
 - X
 date: 2007-05-13 00:00:00
 ---

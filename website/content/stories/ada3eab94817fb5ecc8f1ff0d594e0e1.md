@@ -4,8 +4,8 @@ title: Gift with a Twist
 authors:
 - Sharon
 tags:
-- MM/f
-- MF+/f
+- MM-f
+- MF+-f
 - bond
 - crate
 - frame
@@ -17,7 +17,7 @@ tags:
 - toys
 - climax
 - delivery
-- cons/reluct
+- cons-reluct
 - X
 ---
 

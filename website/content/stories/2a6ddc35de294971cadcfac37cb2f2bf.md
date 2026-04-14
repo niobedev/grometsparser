@@ -5,7 +5,7 @@ authors:
 - AmyAmy
 tags:
 - Solo-F
-- FF/f
+- FF-f
 - clothing
 - store
 - display
@@ -23,7 +23,7 @@ tags:
 - majick
 - spell
 - transform
-- cons/reluct
+- cons-reluct
 - X
 date: 2014-10-30 00:00:00
 ---

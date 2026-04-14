@@ -4,11 +4,11 @@ title: Gentleman's Delemma
 authors:
 - Cynthia Harder
 tags:
-- F/mf
+- F-mf
 - bond
 - quicksand
 - stuck
-- cons/nc
+- cons-nc
 - XX
 date: 2008-12-10 00:00:00
 ---

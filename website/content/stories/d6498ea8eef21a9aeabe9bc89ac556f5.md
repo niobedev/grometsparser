@@ -4,11 +4,11 @@ title: 'Smart Duct tape: The robot'
 authors:
 - Darkraptor
 tags:
-- Machine/mf
+- Machine-mf
 - mum
 - tape
 - cocoon
-- cons/nc
+- cons-nc
 - X
 date: 2006-07-23 00:00:00
 ---

@@ -4,8 +4,8 @@ title: Duty Bound
 authors:
 - Guy le Bouc
 tags:
-- F/m
-- M/f
+- F-m
+- M-f
 - bond
 - rope
 - cuffs

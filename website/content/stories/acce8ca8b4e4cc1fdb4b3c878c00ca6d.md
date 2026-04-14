@@ -4,8 +4,8 @@ title: Sarcophagus
 authors:
 - earlofnexus
 tags:
-- F/m
-- M/f
+- F-m
+- M-f
 - bond
 - encase
 - sarcophagus

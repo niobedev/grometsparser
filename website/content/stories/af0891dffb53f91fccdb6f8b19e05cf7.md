@@ -5,7 +5,7 @@ authors:
 - Techster & Techie
 tags:
 - Sbf
-- M/f
+- M-f
 - bond
 - toys
 - cons

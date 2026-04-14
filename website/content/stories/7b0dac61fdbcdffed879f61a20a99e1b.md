@@ -4,7 +4,7 @@ title: Human Interest
 authors:
 - Cardman
 tags:
-- F+/f
+- F+-f
 - FF
 - ponygirl
 - harness

@@ -5,7 +5,7 @@ authors:
 - Max Roper
 tags:
 - Sbm+
-- M/m
+- M-m
 - hotel
 - naked
 - bond

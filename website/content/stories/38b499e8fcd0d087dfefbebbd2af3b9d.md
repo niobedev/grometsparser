@@ -4,9 +4,9 @@ title: In the Vice 7
 authors:
 - Rbbral
 tags:
-- M/f
-- F/f
-- D/s
+- M-f
+- F-f
+- D-s
 - latex
 - bond
 - pierced

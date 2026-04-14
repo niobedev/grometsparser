@@ -4,8 +4,8 @@ title: 'Star Struck: Pamela''s Pet'
 authors:
 - ZTVFemdomtales
 tags:
-- F/m
-- D/s
+- F-m
+- D-s
 - rope
 - bond
 - naked

@@ -4,7 +4,7 @@ title: 'The Medic Class 2: The Potter''s  Wheel'
 authors:
 - Lancer175
 tags:
-- F/fm
+- F-fm
 - tape
 - bond
 - wrap

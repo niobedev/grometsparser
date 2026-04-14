@@ -5,8 +5,8 @@ authors:
 - PoseMe
 tags:
 - Solo-F
-- MF+/f
-- android/f
+- MF+-f
+- android-f
 - roleplay
 - costume
 - maid-bot
@@ -24,12 +24,12 @@ tags:
 - stuck
 - sexbot
 - mast
-- M/f
+- M-f
 - discovery
 - oral
 - sex
 - climax
-- cons/reluct
+- cons-reluct
 - X
 date: 2018-11-12 00:00:00
 ---

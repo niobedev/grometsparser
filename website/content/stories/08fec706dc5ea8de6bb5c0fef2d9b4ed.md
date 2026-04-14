@@ -5,7 +5,7 @@ authors:
 - Wishful Husband
 tags:
 - Sbf
-- M/f
+- M-f
 - lingerie
 - gag
 - cuffs

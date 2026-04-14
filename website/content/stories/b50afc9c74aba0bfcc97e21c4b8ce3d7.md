@@ -14,7 +14,7 @@ tags:
 - insert
 - chain
 - stuck
-- M/f
+- M-f
 - tease
 - denial
 - cons

@@ -5,13 +5,13 @@ authors:
 - Lobo De la Sombra
 tags:
 - M2f
-- F/f
+- F-f
 - bond
 - slave
 - transform
 - age regression
 - revenge
-- cons/nc
+- cons-nc
 - X
 date: 2010-04-28 00:00:00
 ---

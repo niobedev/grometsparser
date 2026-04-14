@@ -5,7 +5,7 @@ authors:
 - MondayMrngs
 tags:
 - Solo-F
-- M/f
+- M-f
 - outdoors
 - public
 - toys

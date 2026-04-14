@@ -4,7 +4,7 @@ title: Rubbercat Tails
 authors:
 - Tigerstretch
 tags:
-- M/f+
+- M-f+
 - latex
 - petgirl
 - bond

@@ -4,10 +4,10 @@ title: Captured and Tortured
 authors:
 - gopi
 tags:
-- FFF/m
+- FFF-m
 - bondage
 - slave
-- n/c
+- n-c
 - XX
 date: 2002-10-07 00:00:00
 ---

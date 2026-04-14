@@ -4,7 +4,7 @@ title: Black Amoeba & the Holy Grail
 authors:
 - Ataraxia
 tags:
-- M/f
+- M-f
 - latex
 - catsuit
 - bond

@@ -4,9 +4,9 @@ title: Slaver Gets Trained
 authors:
 - KnottyNarrator
 tags:
-- F/f
-- M/f+
-- M/f
+- F-f
+- M-f+
+- M-f
 - bond
 - training
 - strapon

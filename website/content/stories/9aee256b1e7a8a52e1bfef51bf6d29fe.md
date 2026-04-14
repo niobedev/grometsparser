@@ -4,7 +4,7 @@ title: Foaming
 authors:
 - Jenny
 tags:
-- M+/f
+- M+-f
 - naked
 - bond
 - bagged

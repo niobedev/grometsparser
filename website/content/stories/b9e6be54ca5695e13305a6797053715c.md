@@ -4,7 +4,7 @@ title: Slippery Hairdresser
 authors:
 - SilkSJMan
 tags:
-- F/m
+- F-m
 - straitjacket
 - bond
 - silk

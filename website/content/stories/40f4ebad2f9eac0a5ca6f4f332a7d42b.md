@@ -7,7 +7,7 @@ tags:
 - Sbm
 - cd
 - cupboard
-- M/m
+- M-m
 - bond
 - toys
 - cons

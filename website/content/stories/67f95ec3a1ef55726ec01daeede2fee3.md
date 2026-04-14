@@ -4,7 +4,7 @@ title: The Initiation
 authors:
 - DollMaster
 tags:
-- MF/f
+- MF-f
 - latex
 - bond
 - enema

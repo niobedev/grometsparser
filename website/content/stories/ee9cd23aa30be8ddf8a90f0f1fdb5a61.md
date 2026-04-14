@@ -4,7 +4,7 @@ title: Low Cost Bondage
 authors:
 - Jenny Bonici
 tags:
-- M+/f+
+- M+-f+
 - club
 - theme
 - naked

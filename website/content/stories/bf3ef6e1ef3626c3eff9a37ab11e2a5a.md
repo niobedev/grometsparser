@@ -4,8 +4,8 @@ title: Servitium Amoris
 authors:
 - TransAmy
 tags:
-- F/f+
-- F/m
+- F-f+
+- F-m
 - tg
 - slave
 - kidnap

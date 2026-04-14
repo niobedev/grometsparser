@@ -4,7 +4,7 @@ title: Goblinpony
 authors:
 - LilCthulhu
 tags:
-- M/f
+- M-f
 - ponygirl
 - harness
 - fantasy

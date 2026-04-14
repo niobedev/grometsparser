@@ -4,8 +4,8 @@ title: 'Jane''s Story 6: Epilogue'
 authors:
 - Jo
 tags:
-- M/f
-- D/s
+- M-f
+- D-s
 - bond
 - cuffs
 - collar

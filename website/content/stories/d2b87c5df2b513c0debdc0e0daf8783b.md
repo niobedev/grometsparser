@@ -4,7 +4,7 @@ title: Taken In
 authors:
 - Xplaspete
 tags:
-- FF/m
+- FF-m
 - bond
 - plastic
 - latex
@@ -18,7 +18,7 @@ tags:
 - objectify
 - enema
 - enslave
-- cons/nc
+- cons-nc
 - XX
 date: 2006-06-04 00:00:00
 ---

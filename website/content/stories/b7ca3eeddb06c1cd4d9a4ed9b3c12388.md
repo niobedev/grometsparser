@@ -4,8 +4,8 @@ title: Rubber Bondage Slave 7
 authors:
 - rbp818
 tags:
-- FF/m
-- D/s
+- FF-m
+- D-s
 - latex
 - bond
 - bdsm

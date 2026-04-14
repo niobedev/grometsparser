@@ -4,9 +4,9 @@ title: The Machine Part 4
 authors:
 - Darkraptor1
 tags:
-- F/ff
-- machine/fff
-- D/s
+- F-ff
+- machine-fff
+- D-s
 - latex
 - catsuit
 - straitjacket

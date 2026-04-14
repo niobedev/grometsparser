@@ -4,9 +4,9 @@ title: Subterranean Sally 3
 authors:
 - Wingco
 tags:
-- MF/f
-- M/f
-- M+/f+
+- MF-f
+- M-f
+- M+-f+
 - bond
 - cuffs
 - gag
@@ -27,7 +27,7 @@ tags:
 - video
 - stuck
 - punish
-- cons/reluct
+- cons-reluct
 - XX
 date: 2015-02-05 00:00:00
 ---

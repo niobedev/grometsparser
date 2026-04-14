@@ -4,8 +4,8 @@ title: Training My Sub
 authors:
 - Jenny
 tags:
-- F/f
-- D/s
+- F-f
+- D-s
 - wrap
 - bandages
 - board

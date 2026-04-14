@@ -4,7 +4,7 @@ title: Squire's Surprise
 authors:
 - Squire
 tags:
-- FM/m
+- FM-m
 - bondage
 - slave
 - cons

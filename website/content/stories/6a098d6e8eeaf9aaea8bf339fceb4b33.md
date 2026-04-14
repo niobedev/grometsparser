@@ -9,7 +9,7 @@ tags:
 - corset
 - public
 - hum
-- F/m
+- F-m
 - bond
 - bdsm
 - 'true'

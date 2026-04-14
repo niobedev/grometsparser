@@ -4,8 +4,8 @@ title: 'Special Delivery 7: Playing Doctor And Patient'
 authors:
 - rbbral
 tags:
-- M/f
-- D/s
+- M-f
+- D-s
 - latex
 - exam
 - insert
@@ -15,7 +15,7 @@ tags:
 - anal
 - mast
 - outdoors
-- cons/reluct
+- cons-reluct
 - X
 date: 2006-03-09 00:00:00
 ---

@@ -4,8 +4,8 @@ title: Call Me Mistress
 authors:
 - Ann Onominos
 tags:
-- F/m
-- D/s
+- F-m
+- D-s
 - femdom
 - outdoors
 - naked
@@ -22,11 +22,11 @@ tags:
 - torment
 - hogtie
 - leave
-- F/m
+- F-m
 - discovery
 - oral
 - climax
-- cons/reluct
+- cons-reluct
 - X
 date: 2019-01-12 00:00:00
 ---

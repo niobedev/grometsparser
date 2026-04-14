@@ -4,7 +4,7 @@ title: The Metamorphosis
 authors:
 - Khail_Lin
 tags:
-- M/f
+- M-f
 - naked
 - blindfold
 - gag

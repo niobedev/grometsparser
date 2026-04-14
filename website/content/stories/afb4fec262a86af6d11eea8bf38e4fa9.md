@@ -4,9 +4,9 @@ title: Karen's Compartmentalization
 authors:
 - trembleevermore
 tags:
-- MF+/f
-- F/f
-- D/s
+- MF+-f
+- F-f
+- D-s
 - vacbed
 - public
 - display

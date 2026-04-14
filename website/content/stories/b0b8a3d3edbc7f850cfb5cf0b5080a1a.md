@@ -4,7 +4,7 @@ title: 'In the Land of the Dolls 4: Out in the Garden'
 authors:
 - Cropsncuffs
 tags:
-- F/ff
+- F-ff
 - dolls
 - denim
 - hotpants
@@ -15,7 +15,7 @@ tags:
 - outdoors
 - surprise
 - garden
-- plants/f+
+- plants-f+
 - tendriles
 - capture
 - insert
@@ -24,7 +24,7 @@ tags:
 - desire
 - arousal
 - stuck
-- cons/nc
+- cons-nc
 - X
 ---
 

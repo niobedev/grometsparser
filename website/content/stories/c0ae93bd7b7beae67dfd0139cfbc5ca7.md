@@ -4,7 +4,7 @@ title: Gifts Part 1
 authors:
 - J&P
 tags:
-- D/s
+- D-s
 - sbm
 - cbt
 - ws

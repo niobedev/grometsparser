@@ -8,7 +8,7 @@ tags:
 - rope
 - hogtie
 - stuck
-- F/m
+- F-m
 - bond
 - oral
 - mast

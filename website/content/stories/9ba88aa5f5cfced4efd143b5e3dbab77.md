@@ -4,9 +4,9 @@ title: 'The Perils of Pauline 2: Married Bliss Part 2'
 authors:
 - 64Fordman
 tags:
-- F/f
-- M/f
-- machine/ff
+- F-f
+- M-f
+- machine-ff
 - bond
 - rope
 - cuffs

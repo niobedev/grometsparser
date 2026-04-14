@@ -4,7 +4,7 @@ title: The Statue
 authors:
 - Restricted
 tags:
-- F/m
+- F-m
 - statue
 - fem
 - mannequin

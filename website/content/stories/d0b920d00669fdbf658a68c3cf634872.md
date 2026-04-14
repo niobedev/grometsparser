@@ -4,9 +4,9 @@ title: Bondage Barbie Deluxe
 authors:
 - Jackrabbit
 tags:
-- M/f
-- FM/m
-- D/s
+- M-f
+- FM-m
+- D-s
 - fem
 - bond
 - costume

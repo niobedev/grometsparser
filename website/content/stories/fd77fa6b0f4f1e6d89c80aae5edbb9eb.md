@@ -4,7 +4,7 @@ title: The Latex Prisoner
 authors:
 - Gwendoline
 tags:
-- M/fff
+- M-fff
 - latex
 - bond
 - kidnap

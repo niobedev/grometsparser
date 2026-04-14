@@ -4,7 +4,7 @@ title: Lilly's Cure
 authors:
 - Anonymous
 tags:
-- M/f
+- M-f
 - outdoors
 - capture
 - bond
@@ -19,7 +19,7 @@ tags:
 - torment
 - sex
 - climax
-- cons/reluct
+- cons-reluct
 - X
 date: 2014-10-18 00:00:00
 ---

@@ -4,7 +4,7 @@ title: Friends Like These
 authors:
 - Doctor Vader
 tags:
-- FF/f
+- FF-f
 - cuffs
 - bodybelt
 - collar
@@ -17,7 +17,7 @@ tags:
 - encase
 - entomb
 - revenge
-- cons/nc
+- cons-nc
 - XX
 date: 2012-06-10 00:00:00
 ---

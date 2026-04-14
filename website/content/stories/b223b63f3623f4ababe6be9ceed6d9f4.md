@@ -4,7 +4,7 @@ title: The Stable
 authors:
 - kitn
 tags:
-- M/f
+- M-f
 - bondage
 - slave
 - cons

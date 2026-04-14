@@ -5,7 +5,7 @@ authors:
 - Jennifer Wilson
 tags:
 - Solo-F
-- FF/MM
+- FF-MM
 - costumes
 - party
 - pvc

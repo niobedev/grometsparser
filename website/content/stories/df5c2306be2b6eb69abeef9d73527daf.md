@@ -4,8 +4,8 @@ title: Choker
 authors:
 - Baubleheadz
 tags:
-- M/f
-- M/ff
+- M-f
+- M-ff
 - collar
 - majick
 - mindcontrol

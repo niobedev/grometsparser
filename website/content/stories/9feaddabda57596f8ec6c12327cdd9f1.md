@@ -5,7 +5,7 @@ authors:
 - Jenny Bonici
 tags:
 - FM+
-- FM+/f
+- FM+-f
 - party
 - games
 - naked

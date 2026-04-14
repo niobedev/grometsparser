@@ -4,7 +4,7 @@ title: Claudia’s Exquisite Death
 authors:
 - Michael Knight
 tags:
-- F/f
+- F-f
 - latex
 - catsuit
 - dress

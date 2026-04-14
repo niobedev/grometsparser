@@ -4,7 +4,7 @@ title: Finishing School 10
 authors:
 - Rbbral
 tags:
-- F/fm
+- F-fm
 - latex
 - bond
 - ponygirl

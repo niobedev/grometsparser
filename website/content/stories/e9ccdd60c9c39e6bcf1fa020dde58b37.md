@@ -4,13 +4,13 @@ title: 'Gai Shift - Pit 7: Evaluation'
 authors:
 - Rohana
 tags:
-- Machine/f+
+- Machine-f+
 - bagged
 - susp
 - bdsm
 - tickle
 - kidnap
-- cons/nc
+- cons-nc
 - X
 ---
 

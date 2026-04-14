@@ -4,8 +4,8 @@ title: The Summer Project 25
 authors:
 - T S Fesseln
 tags:
-- M/f
-- D/s
+- M-f
+- D-s
 - bond
 - bdsm
 - cuffs

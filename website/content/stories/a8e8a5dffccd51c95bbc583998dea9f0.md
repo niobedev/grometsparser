@@ -4,12 +4,12 @@ title: How to mix Football & Bondage
 authors:
 - TS
 tags:
-- F/f
+- F-f
 - sbf
 - bond
 - cuffs
-- M/f
-- F/m
+- M-f
+- F-m
 - toys
 - sex
 - cons

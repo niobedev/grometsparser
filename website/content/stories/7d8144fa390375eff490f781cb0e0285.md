@@ -9,7 +9,7 @@ tags:
 - cuffs
 - susp
 - caught
-- F/f
+- F-f
 - bond
 - bdsm
 - spank
@@ -17,7 +17,7 @@ tags:
 - oral
 - mast
 - climax
-- cons/reluct
+- cons-reluct
 - XX
 date: 2004-04-10 00:00:00
 ---

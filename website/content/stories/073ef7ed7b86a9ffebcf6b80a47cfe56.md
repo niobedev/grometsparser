@@ -5,7 +5,7 @@ authors:
 - Sandra Steeple-Langford
 tags:
 - Solo-M
-- M/m
+- M-m
 - fem
 - cd
 - anal

@@ -4,8 +4,8 @@ title: Serving Ro-an
 authors:
 - OutCast
 tags:
-- F/m
-- F+/m+
+- F-m
+- F+-m+
 - drug
 - captive
 - naked
@@ -22,7 +22,7 @@ tags:
 - objectify
 - sex
 - climax
-- nc/cons
+- nc-cons
 - X
 date: 2016-10-12 00:00:00
 ---

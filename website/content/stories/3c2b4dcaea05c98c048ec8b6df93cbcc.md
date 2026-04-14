@@ -4,7 +4,7 @@ title: The Boots
 authors:
 - Aka Thoth
 tags:
-- F/f
+- F-f
 - latex
 - magic
 - rubberdoll

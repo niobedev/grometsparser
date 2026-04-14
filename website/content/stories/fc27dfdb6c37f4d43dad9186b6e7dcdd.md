@@ -4,7 +4,7 @@ title: Looking for Love
 authors:
 - Northern Chill
 tags:
-- M/f
+- M-f
 - wish
 - magic
 - transform

@@ -4,7 +4,7 @@ title: Self Bondage Fantasy
 authors:
 - Azn_Selfbondage
 tags:
-- n/a
+- n-a
 ---
 
 \*

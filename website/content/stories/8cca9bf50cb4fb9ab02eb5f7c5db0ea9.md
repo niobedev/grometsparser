@@ -4,7 +4,7 @@ title: Latex Sissy, Rubber Bitch
 authors:
 - M88
 tags:
-- F/mf
+- F-mf
 - revenge
 - latex
 - catsuits
@@ -27,7 +27,7 @@ tags:
 - transport
 - public
 - hum
-- cons/nc
+- cons-nc
 - X
 date: 2017-08-03 00:00:00
 ---

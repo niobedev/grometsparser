@@ -6,7 +6,7 @@ authors:
 tags:
 - Solo-F
 - naked
-- machine/f
+- machine-f
 - process
 - automatic
 - program

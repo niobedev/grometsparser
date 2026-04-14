@@ -7,7 +7,7 @@ tags:
 - Sbm
 - tens
 - caught
-- F/m
+- F-m
 - bond
 - con
 - X

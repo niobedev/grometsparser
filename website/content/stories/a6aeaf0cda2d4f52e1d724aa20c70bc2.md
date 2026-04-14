@@ -4,7 +4,7 @@ title: Bondage Barbie 4
 authors:
 - Anne Gray
 tags:
-- F/f
+- F-f
 - bond
 - kidnap
 - leather

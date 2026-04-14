@@ -6,7 +6,7 @@ authors:
 tags:
 - Solo-F
 - MF
-- D/s
+- D-s
 - street
 - public
 - latex

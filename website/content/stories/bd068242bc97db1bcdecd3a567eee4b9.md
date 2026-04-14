@@ -5,8 +5,8 @@ authors:
 - Rohana
 tags:
 - Solo-F
-- F+/f
-- machine/f
+- F+-f
+- machine-f
 - bond
 - bdsm
 - tickle
@@ -14,7 +14,7 @@ tags:
 - capture
 - tease
 - insert
-- reluct/nc
+- reluct-nc
 - X
 ---
 

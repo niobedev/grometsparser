@@ -5,7 +5,7 @@ authors:
 - Agentdrow
 tags:
 - MF
-- F/m
+- F-m
 - restaurant
 - spandex
 - catsuit

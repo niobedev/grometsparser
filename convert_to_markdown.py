@@ -56,7 +56,9 @@ def parse_story_html(html, url, site_mapping=None):
         match = re.search(r"Storycodes:\s*(.+)", storycodes_text)
         if match:
             codes = match.group(1)
-            tags = [tag.strip() for tag in codes.split(";") if tag.strip()]
+            tags = [
+                tag.strip().replace("/", "-") for tag in codes.split(";") if tag.strip()
+            ]
             metadata["tags"] = tags
 
     content_div = soup.find("div", id="main", class_="storym")

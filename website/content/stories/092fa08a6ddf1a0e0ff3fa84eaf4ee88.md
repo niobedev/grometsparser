@@ -5,7 +5,7 @@ authors:
 - Rubber Phantom
 tags:
 - Solo-M
-- F/m
+- F-m
 - enema
 - diapers
 - toys

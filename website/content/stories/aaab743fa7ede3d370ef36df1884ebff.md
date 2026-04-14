@@ -4,7 +4,7 @@ title: '143'
 authors:
 - Penalt
 tags:
-- M/f
+- M-f
 - fpov
 - scifi
 - gag

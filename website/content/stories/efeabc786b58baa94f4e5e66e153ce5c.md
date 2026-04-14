@@ -4,7 +4,7 @@ title: The Haves and the Have Knots
 authors:
 - R G Bargy
 tags:
-- M/f
+- M-f
 - bond
 - cons
 - X

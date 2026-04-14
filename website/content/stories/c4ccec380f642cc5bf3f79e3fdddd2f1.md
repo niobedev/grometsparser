@@ -10,14 +10,14 @@ tags:
 - naked
 - sex
 - climax
-- Other/fm
+- Other-fm
 - stalk
 - swallow
 - submerge
 - engulf
 - eaten
 - disgest
-- cons/nc
+- cons-nc
 - X
 date: 2015-05-16 00:00:00
 ---

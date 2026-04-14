@@ -4,8 +4,8 @@ title: Finishing School 7
 authors:
 - Rbbral
 tags:
-- F/f
-- F/m
+- F-f
+- F-m
 - latex
 - bond
 - pet

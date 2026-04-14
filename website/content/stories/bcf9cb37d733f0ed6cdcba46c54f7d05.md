@@ -4,7 +4,7 @@ title: 100 Acres
 authors:
 - '5:19:24'
 tags:
-- M+F+/m+f+
+- M+F+-m+f+
 - fpov
 - latex
 - ponygirl

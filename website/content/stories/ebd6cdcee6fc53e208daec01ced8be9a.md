@@ -4,7 +4,7 @@ title: The Natural Slave
 authors:
 - MasterKGray
 tags:
-- M+/f
+- M+-f
 - bond
 - fantasy
 - kidnap
