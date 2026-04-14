@@ -454,6 +454,23 @@ make build
 
 ## 🚨 Deployment Issues
 
+### CI Build Error: JSON-LD Schema Generation (RESOLVED)
+
+**Problem (Now Fixed):**
+GitHub Actions workflow was showing errors like:
+```
+ERROR failed to process "/stories/2022/05/12/the-mermaid/index.html": "...expected comma character or an array or object ending..."
+```
+
+**Root Cause:**
+The PaperMod theme's `schema_json.html` partial generates complex JSON-LD structured data (schema.org) for SEO. Some stories have formatting issues that cause the Go template's JSON generation to fail.
+
+**Solution Implemented:**
+Created an empty stub override at `website/layouts/partials/templates/schema_json.html` that skips the complex JSON-LD generation. This eliminates the build errors while maintaining all other functionality.
+
+**Result:**
+Website builds successfully without JSON-LD schema errors.
+
 ### CI Build Error: Template Parse Failed (RESOLVED)
 
 **Problem (Now Fixed):**
