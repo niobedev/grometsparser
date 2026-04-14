@@ -118,9 +118,9 @@ jobs:
         id: stories_info
         run: |
           # Get the commit message which contains story titles
-          COMMIT_MSG=$(git log -1 --pretty=format:"%B" | head -10)
-          echo "commit_message=$COMMIT_MSG" >> $GITHUB_OUTPUT
-          echo "New stories info captured"
+          STORY_TITLES=$(git log -1 --pretty=format:"%B" | head -10)
+          echo "story_titles=$STORY_TITLES" >> $GITHUB_OUTPUT
+          echo "New stories: $STORY_TITLES"
 
       - name: Create release
         uses: softprops/action-gh-release@v1
@@ -166,14 +166,12 @@ jobs:
           ROOM_ID: ${{ vars.MATRIX_ROOM_ID }}
         run: |
           TXN="m$(date +%s%N)"
-          NEW_STORIES=$(cat $GITHUB_OUTPUT | grep "^commit_message=" | cut -d= -f2-)
-          
-          MESSAGE="🆕 New stories added to Gromet's Plaza Archive!"
+          NEW_STORIES="${{ steps.stories_info.outputs.story_titles }}"
           
           curl -X PUT "https://${MATRIX_URL}/_matrix/client/v3/rooms/${ROOM_ID}/send/m.room.message/${TXN}" \
             -H "Authorization: Bearer $MATRIX_TOKEN" \
             -H "Content-Type: application/json" \
-            -d "{\"msgtype\": \"m.text\", \"body\": \"$MESSAGE\n\n$NEW_STORIES\"}"
+            -d "{\"msgtype\": \"m.text\", \"body\": \"🆕 New stories added:\n\n$NEW_STORIES\"}"
 
       - name: No new stories - success
         if: steps.check_stories.outputs.skip_build == 'true'
