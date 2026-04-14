@@ -33,7 +33,7 @@ jobs:
           git config user.name "Gromets Parser"
           git config user.email "parser@grometsplaza.net"
 
-      - name: Run quick sync and check result
+      - name: Run quick sync and check for new stories
         id: sync
         run: |
           # Run quick sync and capture exit code
@@ -44,18 +44,18 @@ jobs:
           
           echo "Quick sync completed with exit code: $exit_code"
           
-          # Set outputs for this step
-          echo "exit_code=$exit_code" >> $GITHUB_OUTPUT
-          
-          # Determine status based on exit code
+          # Determine status based on exit code and set as step output
           if [ "$exit_code" = "1" ]; then
             echo "new_stories=true" >> $GITHUB_OUTPUT
+            echo "::set-output name=new_stories::true"
             echo "✓ New stories found"
           elif [ "$exit_code" = "0" ]; then
             echo "new_stories=false" >> $GITHUB_OUTPUT
+            echo "::set-output name=new_stories::false"
             echo "✓ No new stories"
           else
             echo "new_stories=error" >> $GITHUB_OUTPUT
+            echo "::set-output name=new_stories::error"
             echo "✗ Sync error: unexpected exit code: $exit_code"
             exit 1
           fi
@@ -63,7 +63,7 @@ jobs:
       - name: Check if new stories were found
         id: check_stories
         run: |
-          new_stories=$(grep "new_stories=" $GITHUB_OUTPUT | cut -d= -f2)
+          new_stories="${{ steps.sync.outputs.new_stories }}"
           echo "New stories status: $new_stories"
           if [ "$new_stories" = "false" ]; then
             echo "No new stories to process - skipping build"
