@@ -1,4 +1,4 @@
-.PHONY: download convert convert-force build clean all detect fix-broken serve docker-build docker-run docker-run-build sync quick-sync
+.PHONY: download convert convert-force build clean all detect fix-broken serve docker-build docker-run docker-run-build sync quick-sync delete-story
 
 PYTHON = python3
 PIP = pip3
@@ -97,3 +97,11 @@ sync: venv
 quick-sync: venv
 	@echo "Running quick_sync.py without Docker..."
 	GITHUB_TOKEN=$(GITHUB_TOKEN) $(VENV_PYTHON) quick_sync.py
+
+delete-story: venv
+	@echo "Deleting story from HTML, Markdown, and URLs..."
+	@if [ -z "$(URL)" ]; then \
+		echo "Usage: make delete-story URL='https://example.com/story.html'"; \
+		exit 1; \
+	fi
+	$(VENV_PYTHON) delete_story.py "$(URL)"

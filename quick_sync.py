@@ -79,23 +79,27 @@ def extract_updates_from_main_page():
     return stories
 
 
-def create_temp_urls_file(new_stories):
-    """Create a temporary story_urls.json file with only new stories"""
-    temp_urls = [story["url"] for story in new_stories]
+def add_new_urls_to_file(new_stories):
+    """Add new story URLs to story_urls.json (avoiding duplicates)"""
+    new_urls = [story["url"] for story in new_stories]
 
-    # Backup existing story_urls.json if it exists
+    # Load existing URLs if file exists
+    existing_urls = []
     if os.path.exists("story_urls.json"):
-        backup_path = (
-            f"story_urls_backup_{datetime.now().strftime('%Y%m%d_%H%M%S')}.json"
-        )
-        os.rename("story_urls.json", backup_path)
-        print(f"Backed up existing story_urls.json to {backup_path}")
+        try:
+            with open("story_urls.json", "r") as f:
+                existing_urls = json.load(f)
+        except Exception as e:
+            print(f"Warning: Could not read existing story_urls.json: {e}")
 
-    # Create new story_urls.json with only new stories
+    # Combine and deduplicate
+    all_urls = existing_urls + [url for url in new_urls if url not in existing_urls]
+
+    # Write back
     with open("story_urls.json", "w") as f:
-        json.dump(temp_urls, f, indent=2)
+        json.dump(all_urls, f, indent=2)
 
-    print(f"Created story_urls.json with {len(temp_urls)} new stories")
+    print(f"Updated story_urls.json with {len(new_urls)} new URLs")
 
 
 def run_command(cmd, cwd=None):
@@ -108,21 +112,6 @@ def run_command(cmd, cwd=None):
         text=True,
     )
     return result.returncode, result.stdout, result.stderr
-
-
-def restore_original_urls():
-    """Restore the original story_urls.json if backup exists"""
-    # Look for backup files
-    backup_files = [f for f in os.listdir(".") if f.startswith("story_urls_backup_")]
-
-    if backup_files:
-        # Get the most recent backup
-        latest_backup = sorted(backup_files)[-1]
-        try:
-            os.rename(latest_backup, "story_urls.json")
-            print(f"Restored original story_urls.json from {latest_backup}")
-        except Exception as e:
-            print(f"Warning: Could not restore backup: {e}")
 
 
 def main():
@@ -161,59 +150,56 @@ def main():
     for story in new_stories:
         print(f"  - {story['title']} by {story['author']} ({story['site']})")
 
-    # Create temporary URLs file with only new stories
-    create_temp_urls_file(new_stories)
+    # Add new URLs to story_urls.json
+    add_new_urls_to_file(new_stories)
 
-    try:
-        # Download the new stories using existing download_stories.py
-        print("\nDownloading new stories...")
-        venv_python = sys.executable
-        rc, stdout, stderr = run_command(f"{venv_python} download_stories.py")
+    # Download the new stories using existing download_stories.py
+    print("\nDownloading new stories...")
+    venv_python = sys.executable
+    rc, stdout, stderr = run_command(f"{venv_python} download_stories.py")
 
-        if rc != 0:
-            print(f"Error downloading stories: {stderr}")
-            return
+    if rc != 0:
+        print(f"Error downloading stories: {stderr}")
+        return
 
-        # Convert to markdown using existing convert_to_markdown.py
-        print("\nConverting to markdown...")
-        rc, stdout, stderr = run_command(f"{venv_python} convert_to_markdown.py")
+    # Convert to markdown using existing convert_to_markdown.py
+    print("\nConverting to markdown...")
+    rc, stdout, stderr = run_command(f"{venv_python} convert_to_markdown.py")
 
-        if rc != 0:
-            print(f"Error converting to markdown: {stderr}")
+    if rc != 0:
+        print(f"Error converting to markdown: {stderr}")
 
-        # Commit changes if any
-        print("\nCommitting changes...")
-        rc, stdout, stderr = run_command("git add stories/ website/content/stories/")
+    # Commit changes if any
+    print("\nCommitting changes...")
+    rc, stdout, stderr = run_command(
+        "git add stories/ website/content/stories/ story_urls.json"
+    )
 
-        if rc == 0:
-            story_list = ", ".join([story["title"] for story in new_stories[:3]])
-            if len(new_stories) > 3:
-                story_list += f" and {len(new_stories) - 3} more"
+    if rc == 0:
+        story_list = ", ".join([story["title"] for story in new_stories[:3]])
+        if len(new_stories) > 3:
+            story_list += f" and {len(new_stories) - 3} more"
 
-            commit_msg = f"Quick sync: Add new stories from updates - {story_list}"
+        commit_msg = f"Quick sync: Add new stories from updates - {story_list}"
 
-            rc, stdout, stderr = run_command(f'git commit -m "{commit_msg}"')
+        rc, stdout, stderr = run_command(f'git commit -m "{commit_msg}"')
 
-            if rc == 0 and "nothing to commit" not in stderr:
-                print("Changes committed.")
+        if rc == 0 and "nothing to commit" not in stderr:
+            print("Changes committed.")
 
-                print("Pushing to origin...")
-                rc, stdout, stderr = run_command("git push origin main")
+            print("Pushing to origin...")
+            rc, stdout, stderr = run_command("git push origin main")
 
-                if rc == 0:
-                    print("Pushed to origin.")
-                else:
-                    print(f"Warning: git push failed: {stderr}")
-            elif "nothing to commit" in stderr:
-                print("No changes to commit.")
+            if rc == 0:
+                print("Pushed to origin.")
             else:
-                print(f"Warning: git commit failed: {stderr}")
+                print(f"Warning: git push failed: {stderr}")
+        elif "nothing to commit" in stderr:
+            print("No changes to commit.")
         else:
-            print(f"Warning: git add failed: {stderr}")
-
-    finally:
-        # Always restore the original story_urls.json
-        restore_original_urls()
+            print(f"Warning: git commit failed: {stderr}")
+    else:
+        print(f"Warning: git add failed: {stderr}")
 
     print("\n" + "=" * 60)
     print("Quick sync completed successfully")
