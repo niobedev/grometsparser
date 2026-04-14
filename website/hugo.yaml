@@ -36,8 +36,9 @@ params:
     location: 0
     distance: 100
     threshold: 0.4
-    minMatchCharLength: 3
-    keys: ["title", "permalink", "summary", "content", "authors", "tags"]
+    minMatchCharLength: 4
+    limit: 25
+    keys: ["title", "summary", "authors"]
 
 outputs:
   home:
@@ -52,7 +53,7 @@ taxonomies:
 sectionPagesMenu: main
 
 pagination:
-  pagerSize: 10
+  pagerSize: 20
   path: page
 
 frontmatter:

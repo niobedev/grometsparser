@@ -1,0 +1,22 @@
+.post-tags {
+    display: flex;
+    flex-wrap: wrap;
+    gap: 8px;
+    margin-top: 8px;
+}
+
+.post-tag {
+    display: inline-block;
+    padding: 2px 8px;
+    background: var(--tertiary);
+    color: var(--primary);
+    border-radius: 4px;
+    font-size: 12px;
+    text-decoration: none;
+    transition: background 0.2s;
+}
+
+.post-tag:hover {
+    background: var(--secondary);
+    text-decoration: none;
+}

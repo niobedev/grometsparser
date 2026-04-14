@@ -16,3 +16,19 @@
 {{- if .Params.original_url }}
 <span> · <a href="{{ .Params.original_url }}" target="_blank" rel="noopener noreferrer">Original Story</a></span>
 {{- end -}}
+
+{{- if .Params.tags }}
+<div class="post-tags">
+    {{- range .Params.tags }}
+    {{- $tag := . }}
+    {{- $type := printf "%T" $tag }}
+    {{- if findRE "\\[\\]" $type }}
+        {{- range $tag }}
+        <a href="{{ "tags" | relLangURL }}/{{ urlize . }}/" class="post-tag">{{ . }}</a>
+        {{- end }}
+    {{- else }}
+    <a href="{{ "tags" | relLangURL }}/{{ urlize $tag }}/" class="post-tag">{{ $tag }}</a>
+    {{- end }}
+    {{- end }}
+</div>
+{{- end -}}
