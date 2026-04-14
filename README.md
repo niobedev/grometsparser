@@ -263,17 +263,18 @@ The `sync.py` script provides a complete weekly workflow:
 
 
 
-### GitHub Actions
+### Docker Image Deployment
 
-The repository includes a GitHub workflow that automatically builds and pushes Docker images to GitHub Container Registry when tags are pushed:
+Docker images must be built and pushed manually to GitHub Container Registry:
 
-```yaml
-name: Build and Push Docker Image
+```bash
+# Build and tag Docker image
+docker build -t ghcr.io/niobedev/grometsparser:latest .
+docker tag ghcr.io/niobedev/grometsparser:latest ghcr.io/niobedev/grometsparser:v1.0.0
 
-on:
-  push:
-    tags:
-      - 'v*'
+# Push to GitHub Container Registry
+docker push ghcr.io/niobedev/grometsparser:latest
+docker push ghcr.io/niobedev/grometsparser:v1.0.0
 ```
 
 ## 🚀 Deployment Options
