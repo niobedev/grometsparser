@@ -128,7 +128,7 @@ def main():
     updates = extract_updates_from_main_page()
     if not updates:
         print("No updates found or error fetching updates")
-        return
+        return 0
 
     print(f"Found {len(updates)} stories in updates section")
 
@@ -141,7 +141,7 @@ def main():
 
     if not new_stories:
         print("No new stories found in updates section")
-        return
+        return 0
 
     print(f"Found {len(new_stories)} new stories to download")
 
@@ -205,6 +205,9 @@ def main():
     print("Quick sync completed successfully")
     print("=" * 60)
 
+    return 1
+
 
 if __name__ == "__main__":
-    main()
+    exit_code = main()
+    sys.exit(exit_code)

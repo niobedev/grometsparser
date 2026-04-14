@@ -41,20 +41,6 @@ build:
 		$(DOCKER_IMAGE) \
 		/bin/bash -c "cd /app/website && hugo"
 
-clean:
-	@echo "Cleaning up..."
-	rm -rf $(VENV)
-	rm -rf website/public
-	rm -rf website/resources
-
-detect: venv
-	@echo "Detecting broken markdown in converted stories..."
-	$(VENV_PYTHON) detect_broken_markdown.py
-
-fix-broken: venv
-	@echo "Fixing broken markdown (deleting converted files)..."
-	$(VENV_PYTHON) detect_broken_markdown.py --delete --force
-
 serve:
 	@echo "Starting Hugo development server in Docker..."
 	docker run --rm -it \
@@ -69,37 +55,15 @@ docker-build:
 	docker tag $(DOCKER_IMAGE) ghcr.io/niobedev/grometsparser:$(DOCKER_TAG)
 
 docker-run:
-	@echo "Running sync in Docker..."
-	docker run --rm \
+	@docker run --rm \
 		-e GITHUB_TOKEN=$(GITHUB_TOKEN) \
 		-v $(PWD):/app \
 		$(DOCKER_IMAGE) \
-		/bin/bash -c "git config user.name 'Gromets Parser' && git config user.email 'parser@grometsplaza.net' && git remote set-url origin https://$(GITHUB_TOKEN)@github.com/niobedev/grometsparser.git && git fetch && git pull && python3 sync.py && git remote set-url origin https://github.com/niobedev/grometsparser.git"
+		/app/docker-run.sh
 
 docker-run-quick:
-	@echo "Running quick sync in Docker..."
-	docker run --rm \
+	@docker run --rm \
 		-e GITHUB_TOKEN=$(GITHUB_TOKEN) \
 		-v $(PWD):/app \
 		$(DOCKER_IMAGE) \
-		/bin/bash -c "git config user.name 'Gromets Parser' && git config user.email 'parser@grometsplaza.net' && git remote set-url origin https://$(GITHUB_TOKEN)@github.com/niobedev/grometsparser.git && git fetch && git pull && python3 quick_sync.py && git remote set-url origin https://github.com/niobedev/grometsparser.git"
-
-
-
-
-
-sync: venv
-	@echo "Running sync.py without Docker..."
-	GITHUB_TOKEN=$(GITHUB_TOKEN) $(VENV_PYTHON) sync.py
-
-quick-sync: venv
-	@echo "Running quick_sync.py without Docker..."
-	GITHUB_TOKEN=$(GITHUB_TOKEN) $(VENV_PYTHON) quick_sync.py
-
-delete-story: venv
-	@echo "Deleting story from HTML, Markdown, and URLs..."
-	@if [ -z "$(URL)" ]; then \
-		echo "Usage: make delete-story URL='https://example.com/story.html'"; \
-		exit 1; \
-	fi
-	$(VENV_PYTHON) delete_story.py "$(URL)"
+		/app/docker-run-quick.sh

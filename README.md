@@ -15,19 +15,19 @@ This repository contains the tools to scrape, clean, and re-host stories from [G
 - 📱 **Responsive Design:** Based on the clean and minimalist `PaperMod` Hugo theme.
 - 🎨 **Smart Markdown Correction:** Automatic detection and fixing of common formatting issues (broken italics, malformed author's notes).
 - 🏷️ **Rich Metadata:** Stories include author tags, story codes, and links to the original source.
-- 🚀 **Automated Two-Tier Sync:** Docker-based hourly quick sync and weekly full sync with automatic git commits and website rebuilding.
+- 🚀 **Automated Hourly Sync:** Docker-based hourly quick sync with automatic git commits and conditional website rebuilding. Full sync available on-demand.
 
 ## 📂 Project Structure
 
 - `stories/` - Raw HTML files from the original site (committed).
 - `website/` - The Hugo-based web frontend.
-- `extract_urls.py` - Script to extract all story URLs from the author index pages.
 - `download_stories.py` - The main scraping engine with 404 tracking.
 - `convert_to_markdown.py` - Bridge script to move raw data into the web directory.
 - `detect_broken_markdown.py` - Quality control utility for fixing formatting.
 - `sync.py` - Core full sync script with git commit functionality.
 - `quick_sync.py` - Quick sync script that checks only the "Updates" section for hourly runs.
-- `sync_and_build.sh` - Simple sync and build without git operations.
+- `docker-run.sh` - Shell script for Docker-based full sync.
+- `docker-run-quick.sh` - Shell script for Docker-based quick sync with conditional website rebuild.
 - `Makefile` - The automation hub for all common tasks.
 
 ## 🛠️ Quick Start
@@ -71,17 +71,17 @@ The project is designed to be managed via `make` commands and supports a two-tie
 
 ### Two-Tier Sync Strategy
 
-**Quick Sync (Hourly)**
+**Quick Sync (Hourly - Automated)**
 - **Purpose**: Fast, lightweight check for recently posted stories
 - **Source**: Checks only the "Updates" section on https://grometsplaza.net/main.html
 - **Performance**: Very fast, only checks 20-30 recent stories
-- **Usage**: `make quick-sync` or `make docker-run-quick`
+- **Usage**: `make docker-run-quick` (runs automatically via cron)
 
-**Full Sync (Weekly)**
+**Full Sync (Manual)**
 - **Purpose**: Complete scan of all story sites
 - **Source**: Scans all 19 story sites using search pagination
 - **Performance**: Heavy process, downloads and processes thousands of stories
-- **Usage**: `make sync` or `make docker-run`
+- **Usage**: `make sync` or `make docker-run` (run manually on demand only)
 
 ### Manual Workflow
 
@@ -121,13 +121,12 @@ make build
 
 ### Step 5: Local Preview
 ```bash
-cd website
-hugo server
+make serve
 ```
 
 ## 🚢 Docker Deployment
 
-The project includes a Docker container for automated daily sync and deployment.
+The project includes a Docker container for automated hourly sync (quick sync) and on-demand full sync.
 
 ### Prerequisites
 
@@ -168,38 +167,18 @@ make docker-run          # Full sync (weekly)
 **Option 2: Passing GITHUB_TOKEN directly**
 
 ```bash
-# Quick sync (hourly recommended)
-docker run --rm \
-  -e GITHUB_TOKEN=your_github_token \
-  -v $(pwd):/app \
-  ghcr.io/niobedev/grometsparser:latest \
-  python3 quick_sync.py
+# Quick sync (hourly - automated)
+make docker-run-quick
 
-# Full sync (weekly recommended)
-docker run --rm \
-  -e GITHUB_TOKEN=your_github_token \
-  -v $(pwd):/app \
-  ghcr.io/niobedev/grometsparser:latest \
-  python3 sync.py
+# Full sync (manual on-demand)
+make docker-run
 ```
 
 
-
-#### Simple Sync and Build (No Git)
-
-This will sync and build without making git commits:
-
-```bash
-# Run sync and build without git operations
-docker run --rm \
-  -v $(pwd):/app \
-  ghcr.io/niobedev/grometsparser:latest \
-  /bin/bash sync_and_build.sh
-```
 
 ### Required Volume Mounts
 
-For daily sync with git operations:
+For hourly automated quick sync with git operations:
 - `$(pwd)` - Current directory (your project repository) mounted to `/app`
 - `GITHUB_TOKEN` - Environment variable with your GitHub personal access token with push permissions
 
@@ -207,26 +186,17 @@ The container mounts the project at `/app`, so output files (built site, committ
 
 ### Setting Up Automated Cron Jobs
 
-For the two-tier sync approach, set up both hourly quick sync and weekly full sync:
+Quick sync runs automatically every hour to check for new stories in the "Updates" section:
 
 ```bash
 # Edit crontab
 crontab -e
 
 # Quick sync - runs every hour at minute 5
-5 * * * * cd /path/to/your/repository && docker run --rm \
-  --env-file /path/to/your/repository/.env \
-  -v /path/to/your/repository:/app \
-  ghcr.io/niobedev/grometsparser:latest \
-  python3 quick_sync.py >> /var/log/gromets-quick-sync.log 2>&1
-
-# Full sync - runs every Sunday at 2 AM
-0 2 * * 0 cd /path/to/your/repository && docker run --rm \
-  --env-file /path/to/your/repository/.env \
-  -v /path/to/your/repository:/app \
-  ghcr.io/niobedev/grometsparser:latest \
-  python3 sync.py >> /var/log/gromets-full-sync.log 2>&1
+5 * * * * cd /path/to/your/repository && make docker-run-quick >> /var/log/gromets-quick-sync.log 2>&1
 ```
+
+**Note:** Full sync should be run manually on-demand when needed using `make docker-run` or `make sync`.
 
 ### Manual Docker Run Examples
 
@@ -297,7 +267,7 @@ The `quick_sync.py` script provides an efficient hourly workflow:
 7. **Git Commit**: Commits new stories and updated `story_urls.json` with descriptive message
 
 #### Full Sync Script (`sync.py`)
-The `sync.py` script provides a complete weekly workflow:
+The `sync.py` script provides a complete on-demand workflow for scanning all story sites:
 
 1. **URL Extraction**: Updates story URL list from all 19 story sites
 2. **Download All Stories**: Downloads all new stories across all sites
@@ -326,7 +296,7 @@ docker push ghcr.io/niobedev/grometsparser:v1.0.0
 Run `make build` and upload the contents of the generated `website-archive.tar.gz` to your web server's root.
 
 ### Docker with Cron
-Set up a cron job to run the Docker container daily. This is the recommended approach for automated updates.
+Set up a cron job to run the Docker container hourly for quick sync. This is the recommended approach for automated updates.
 
 ### Serving the Website
 
