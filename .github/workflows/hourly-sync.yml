@@ -83,6 +83,12 @@ jobs:
           STORY_TITLES=$(git log -1 --pretty=format:"%B" | head -20)
           echo "story_titles=$STORY_TITLES" >> $GITHUB_OUTPUT
 
+      - name: Setup Hugo
+        uses: peaceiris/actions-hugo@v3
+        with:
+          hugo-version: 'latest'
+          extended: true
+
       - name: Build website
         if: steps.check_stories.outputs.skip_build != 'true'
         run: |
