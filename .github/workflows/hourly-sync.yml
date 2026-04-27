@@ -119,12 +119,22 @@ jobs:
           git diff --cached --quiet || git commit -m "Sync: Add new stories from updates"
           git push origin main
 
+      - name: Generate tag name
+        id: tag
+        if: steps.check_stories.outputs.skip_build != 'true'
+        run: |
+          TAG_NAME="sync-$(date +'%Y%m%d-%H%M%S')"
+          RELEASE_NAME="Website Update $(date +'%Y-%m-%d %H:%M')"
+          echo "tag_name=$TAG_NAME" >> $GITHUB_OUTPUT
+          echo "release_name=$RELEASE_NAME" >> $GITHUB_OUTPUT
+          echo "Generated tag: $TAG_NAME"
+
       - name: Create release
         uses: softprops/action-gh-release@v1
         if: steps.check_stories.outputs.skip_build != 'true' && success()
         with:
-          tag_name: sync-$(date +'%Y%m%d-%H%M%S')
-          name: Website Update $(date +'%Y-%m-%d %H:%M')
+          tag_name: ${{ steps.tag.outputs.tag_name }}
+          name: ${{ steps.tag.outputs.release_name }}
           body: |
             Automated hourly sync - New stories added
 
@@ -135,7 +145,7 @@ jobs:
 
             ```bash
             # Download and deploy
-            wget https://github.com/${{ github.repository }}/releases/download/sync-$(date +'%Y%m%d-%H%M%S')/website-archive.tar.gz
+            wget https://github.com/${{ github.repository }}/releases/download/${{ steps.tag.outputs.tag_name }}/website-archive.tar.gz
             tar -xzf website-archive.tar.gz
             cp -r public/* /var/www/gromets/
             ```
