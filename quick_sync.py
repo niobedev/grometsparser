@@ -169,6 +169,17 @@ def main():
     if rc != 0:
         print(f"Error converting to markdown: {stderr}")
 
+    stories_info = []
+    for story in new_stories:
+        stories_info.append({
+            "title": story["title"],
+            "slug": url_to_filename(story["url"]),
+        })
+
+    with open("new_stories_info.json", "w") as f:
+        json.dump(stories_info, f, indent=2)
+    print(f"Saved {len(stories_info)} new stories info to new_stories_info.json")
+
     # Commit changes if any
     print("\nCommitting changes...")
     rc, stdout, stderr = run_command(

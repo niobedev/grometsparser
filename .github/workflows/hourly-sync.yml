@@ -165,6 +165,12 @@ jobs:
         if: steps.check_stories.outputs.skip_build != 'true'
         uses: actions/deploy-pages@v4
       
+      - name: Format Matrix message
+        id: matrix_msg
+        if: steps.check_stories.outputs.skip_build != 'true'
+        run: |
+          python3 format_matrix_message.py
+
       - name: Notify Matrix
         if: steps.check_stories.outputs.skip_build != 'true'
         env:
@@ -173,13 +179,11 @@ jobs:
           ROOM_ID: ${{ vars.MATRIX_ROOM_ID }}
         run: |
           TXN="m$(date +%s%N)"
-          NEW_STORIES="${{ steps.stories_info.outputs.story_titles }}"
-          SITE_URL="https://plaza.housetoral.uk"
           
           curl -X PUT "https://${MATRIX_URL}/_matrix/client/v3/rooms/${ROOM_ID}/send/m.room.message/${TXN}" \
             -H "Authorization: Bearer $MATRIX_TOKEN" \
             -H "Content-Type: application/json" \
-            -d "{\"msgtype\": \"m.text\", \"body\": \"🆕 New stories added!\n\n$NEW_STORIES\n\nView at: $SITE_URL\"}"
+            -d @matrix_message.json
 
       - name: No new stories - success
         if: steps.check_stories.outputs.skip_build == 'true'
