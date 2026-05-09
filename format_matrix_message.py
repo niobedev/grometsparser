@@ -53,8 +53,8 @@ def main():
         else:
             html_lines.append(f"{i}) {title}")
 
-    plain_body = "\U0001f195 New stories added!\n\n" + "\n".join(plain_lines)
-    html_body = "<b>\U0001f195 New stories added!</b><br><br>" + "<br>".join(html_lines)
+    plain_body = "\U0001f195 New stories added on Plaza!\n\n" + "\n".join(plain_lines)
+    html_body = "<b>\U0001f195 New stories added on Plaza!</b><br><br>" + "<br>".join(html_lines)
 
     if remaining > 0:
         plain_body += f"\n\nand {remaining} more"
