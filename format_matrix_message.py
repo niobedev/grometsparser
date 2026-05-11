@@ -8,6 +8,10 @@ from datetime import datetime
 import yaml
 
 
+def title_to_slug(title):
+    return re.sub(r"[^a-z0-9]+", "-", title.lower()).strip("-")
+
+
 def main():
     site_url = os.environ.get("SITE_URL", "https://plaza.housetoral.uk")
     stories_file = "new_stories_info.json"
@@ -20,17 +24,14 @@ def main():
     with open(stories_file) as f:
         stories = json.load(f)
 
-    max_show = 5
-    shown = stories[:max_show]
-    remaining = len(stories) - max_show
-
     plain_lines = []
-    html_lines = []
+    html_items = []
 
-    for i, story in enumerate(shown, 1):
+    for story in stories:
         title = story["title"]
-        slug = story["slug"]
-        md_path = f"website/content/stories/{slug}.md"
+        file_id = story["slug"]
+        url_slug = title_to_slug(title)
+        md_path = f"website/content/stories/{file_id}.md"
         link = None
 
         if os.path.exists(md_path):
@@ -45,20 +46,16 @@ def main():
                         d = date_val
                     else:
                         d = datetime.strptime(str(date_val).split()[0], "%Y-%m-%d")
-                    link = f"{site_url}/stories/{d.year}/{d.month:02d}/{d.day:02d}/{slug}/"
+                    link = f"{site_url}/stories/{d.year}/{d.month:02d}/{d.day:02d}/{url_slug}/"
 
-        plain_lines.append(f"{i}) {title}")
+        plain_lines.append(f"- {title}")
         if link:
-            html_lines.append(f'{i}) <a href="{link}">{title}</a>')
+            html_items.append(f'<li><a href="{link}">{title}</a></li>')
         else:
-            html_lines.append(f"{i}) {title}")
+            html_items.append(f"<li>{title}</li>")
 
-    plain_body = "\U0001f195 New stories added on Plaza!\n\n" + "\n".join(plain_lines)
-    html_body = "<b>\U0001f195 New stories added on Plaza!</b><br><br>" + "<br>".join(html_lines)
-
-    if remaining > 0:
-        plain_body += f"\n\nand {remaining} more"
-        html_body += f"<br><br>and {remaining} more"
+    plain_body = "\U0001f195 New stories were published on Plaza!\n\n" + "\n".join(plain_lines)
+    html_body = "<b>\U0001f195 New stories were published on Plaza!</b><br><br><ul>" + "".join(html_items) + "</ul>"
 
     plain_body += f"\n\nView at: {site_url}"
     html_body += f'<br><br>View at: <a href="{site_url}">{site_url}</a>'
@@ -73,7 +70,7 @@ def main():
     with open(output_file, "w") as f:
         json.dump(payload, f)
 
-    print(f"Matrix message formatted: {len(stories)} stories, {len(shown)} shown")
+    print(f"Matrix message formatted: {len(stories)} stories")
 
 
 if __name__ == "__main__":
