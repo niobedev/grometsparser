@@ -8,10 +8,6 @@ from datetime import datetime
 import yaml
 
 
-def title_to_slug(title):
-    return re.sub(r"[^a-z0-9]+", "-", title.lower()).strip("-")
-
-
 def main():
     site_url = os.environ.get("SITE_URL", "https://plaza.housetoral.uk")
     stories_file = "new_stories_info.json"
@@ -30,7 +26,6 @@ def main():
     for story in stories:
         title = story["title"]
         file_id = story["slug"]
-        url_slug = title_to_slug(title)
         md_path = f"website/content/stories/{file_id}.md"
         link = None
 
@@ -40,13 +35,14 @@ def main():
             fm_match = re.match(r"^---\s*\n(.*?)\n---", content, re.DOTALL)
             if fm_match:
                 fm = yaml.safe_load(fm_match.group(1))
+                slug_val = fm.get("slug", file_id)
                 date_val = fm.get("date")
                 if date_val:
                     if isinstance(date_val, datetime):
                         d = date_val
                     else:
                         d = datetime.strptime(str(date_val).split()[0], "%Y-%m-%d")
-                    link = f"{site_url}/stories/{d.year}/{d.month:02d}/{d.day:02d}/{url_slug}/"
+                    link = f"{site_url}/stories/{d.year}/{d.month:02d}/{d.day:02d}/{slug_val}/"
 
         plain_lines.append(f"- {title}")
         if link:
