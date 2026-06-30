@@ -1,7 +1,7 @@
 {{- $.Scratch.Add "index" slice -}}
 {{- range site.RegularPages -}}
     {{- if and (not .Params.searchHidden) (ne .Layout `archives`) (ne .Layout `search`) }}
-    {{- $.Scratch.Add "index" (dict "title" .Title "permalink" .Permalink "summary" (.Summary | plainify | truncate 200) "authors" .Params.authors "tags" .Params.tags) -}}
+    {{- $.Scratch.Add "index" (dict "title" (partial "display_title.html" .) "permalink" .Permalink "summary" (.Summary | plainify | truncate 200) "authors" .Params.authors "tags" .Params.tags) -}}
     {{- end }}
 {{- end -}}
 {{- $.Scratch.Get "index" | jsonify -}}
