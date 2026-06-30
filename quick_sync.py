@@ -193,7 +193,16 @@ def main():
 
         commit_msg = f"Quick sync: Add new stories from updates - {story_list}"
 
-        rc, stdout, stderr = run_command(f'git commit -m "{commit_msg}"')
+        commit_result = subprocess.run(
+            ["git", "commit", "-m", commit_msg],
+            capture_output=True,
+            text=True,
+        )
+        rc, stdout, stderr = (
+            commit_result.returncode,
+            commit_result.stdout,
+            commit_result.stderr,
+        )
 
         if rc == 0:
             print("Changes committed.")

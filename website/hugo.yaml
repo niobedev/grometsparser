@@ -1,7 +1,11 @@
-baseURL: "/"
+baseURL: "https://plaza.housetoral.uk/"
 languageCode: en-us
 title: Gromet's Plaza Archive
 theme: PaperMod
+
+services:
+  rss:
+    limit: 50
 
 markup:
   goldmark:

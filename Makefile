@@ -40,7 +40,7 @@ build:
 	docker run --rm \
 		-v $(PWD):/app \
 		$(DOCKER_IMAGE) \
-		/bin/bash -c "cd /app/website && hugo --minify"
+		/bin/bash -c "cd /app/website && hugo --minify --gc --cleanDestinationDir"
 
 serve:
 	@echo "Starting Hugo development server in Docker..."
