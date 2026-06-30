@@ -14,7 +14,7 @@ A self-updating, serverless web archive of stories from [Gromet's Plaza](https:/
 
 - **Automatic Updates** - Checks for new stories every hour via GitHub Actions
 - **Matrix Notifications** - Posts new story announcements to Matrix rooms
-- **Fast Search** - Client-side Fuse.js search across all stories
+- **Fast Search** - Client-side Fuse.js search across story titles, authors, and tags
 - **Responsive** - Clean, mobile-friendly design
 - **Rich Metadata** - Browse by tags, authors, or use the search
 - **Serverless** - Runs entirely on GitHub's infrastructure
