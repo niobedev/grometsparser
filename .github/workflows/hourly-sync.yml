@@ -112,12 +112,14 @@ jobs:
           tar -czf website-archive.tar.gz public/
 
       - name: Commit and push changes
+        id: push
         if: steps.check_stories.outputs.skip_build != 'true'
         run: |
           git status --short
           git add -A
           git diff --cached --quiet || git commit -m "Sync: Add new stories from updates"
           git push origin main
+          echo "sha=$(git rev-parse HEAD)" >> "$GITHUB_OUTPUT"
 
       - name: Generate tag name
         id: tag
@@ -164,7 +166,9 @@ jobs:
       - name: Deploy to GitHub Pages
         if: steps.check_stories.outputs.skip_build != 'true'
         uses: actions/deploy-pages@v4
-      
+        env:
+          GITHUB_SHA: ${{ steps.push.outputs.sha }}
+
       - name: Format Matrix message
         id: matrix_msg
         if: steps.check_stories.outputs.skip_build != 'true'
