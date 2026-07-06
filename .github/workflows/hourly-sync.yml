@@ -9,6 +9,7 @@ permissions:
   contents: write
   pages: write
   id-token: write
+  actions: write
 
 jobs:
   hourly-sync:
@@ -112,14 +113,12 @@ jobs:
           tar -czf website-archive.tar.gz public/
 
       - name: Commit and push changes
-        id: push
         if: steps.check_stories.outputs.skip_build != 'true'
         run: |
           git status --short
           git add -A
           git diff --cached --quiet || git commit -m "Sync: Add new stories from updates"
           git push origin main
-          echo "sha=$(git rev-parse HEAD)" >> "$GITHUB_OUTPUT"
 
       - name: Generate tag name
         id: tag
@@ -157,17 +156,11 @@ jobs:
         env:
           GITHUB_TOKEN: ${{ secrets.GITHUB_TOKEN }}
 
-      - name: Upload artifact
+      - name: Trigger site rebuild and deploy
         if: steps.check_stories.outputs.skip_build != 'true'
-        uses: actions/upload-pages-artifact@v3
-        with:
-          path: ./website/public
-
-      - name: Deploy to GitHub Pages
-        if: steps.check_stories.outputs.skip_build != 'true'
-        uses: actions/deploy-pages@v4
         env:
-          GITHUB_SHA: ${{ steps.push.outputs.sha }}
+          GH_TOKEN: ${{ secrets.GITHUB_TOKEN }}
+        run: gh workflow run build-and-publish.yml --ref main
 
       - name: Format Matrix message
         id: matrix_msg
