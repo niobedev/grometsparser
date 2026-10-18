@@ -1,0 +1,239 @@
+---
+original_url: https://www.selfbound.net/storieslr/next_door_neighbor_lady.html
+title: Next Door Neighbor Lady
+authors:
+- MisterWong_0916
+tags:
+- Sbf
+- mpov
+- voy
+- mast
+- caught
+- M-f
+- cuffs
+- toys
+- stuck
+- gag
+- harness
+- hogtie
+- blindfold
+- rope
+- bond
+- tickle
+- feet
+- cons
+- X
+date: 2026-10-18 00:00:00
+---
+
+I'm not a BDSM follower. Not really. I do enjoy my share of internet porn, and when I occasionally catch something hot that is of, or from, the BDSM world, I usually go there and am rarely disappointed. Enough said.
+
+I live alone on my parents' small farm, I mean, my farm now. I can keep it running nicely and stay busy with my diesel mechanics shop in town. So, yeah, I'm busy. I'm a busy, normal guy with no weird sexual kinks or fetishes, okay? Sorry, I just want that known before I tell my story:
+
+I live out in the “boonies.” Out here, back in the day, small farmers would build their houses kinda close to each other, for safety, company, and security. My house is built close to my only neighbor's house. A storm wrecked the high privacy fence that once separated the two domiciles, and it was replaced, by mistake, with a much shorter fence. So, as it is now, the houses are set such that I have a clear view into the back of the neighbor's house from the side windows of my house. Basically, I can watch everything my neighbors are doing at their house, while they cannot see me looking. Two farmhouses surrounded by nothing for miles but fields and wind.
+
+A while back a nice couple a little younger than me bought the neighbor's farm and moved into the house. They renovated the hell out of that old house, so now it's all windows and open space and all of that. I can see pretty much everything they do. I watch them like I watch television - they're very entertaining. They're both attractive, especially her. I'll make a sandwich and watch the neighbors while I eat. That's about all. But, man, she is nice looking…
+
+Take a lingerie model. I mean, take a woman with the right proportions of tits, ass, legs (and, yes, feet) and add 15 pounds of unhealthy living. Then add another 10 pounds of gym muscle. This was her. She was firm and thick in all the right places but had a little softness as well. She really carried herself well, and she wore as little clothing as possible. Like I said, entertaining! From my little study window, I had a nice view into the big windows of their main rooms, AND their dressing room, and neither of them ever closed the curtains. Why? There’s nobody out here. Except me, of course.
+
+She was always dancing and bouncing around, which made her great tits jiggle in a tight half-tee or tank top, and her ass bounce in and out of tiny cut-offs. Her hair was shoulder length brown, and her face was plain but pretty. When she dressed up and put on her "town" hair and make-up, she was amazing. I'd watch her getting ready for date night, clicking through the house in high heels and a tight dress that showed outstandingly severe curves. Some date nights were stay-in, and I'd watch her move around the dressing room and set herself up in the sexiest make-up and lingerie imaginable. She'd slip into something skin-tight then rub herself to spread it all out. She never forgot the high heeled shoes. Amazing.
+
+Okay, so the neighbors’ date-night was must-see-TV. I admit I rarely missed the show, but this last time I saw something weird. The lingerie went on as usual, and then she put on black leather cuffs on her ankles and wrists, buckled tight. Never saw her get strapped up like that before! I don't have a view of the primary bedroom, so I had to use my imagination, and that served me very well! Yes, I like to jack off while watching my smokeshow neighbor lady strip down, lotion up, and wiggle into lingerie and heels. Sue me.
+
+Based on what I had just seen, I guessed that the neighbors liked to engage in some kinky behavior that involved bondage and maybe other things. I do not judge. I got to know them as much as possible. Out here, most folks like to be friendly and polite but distant, and private. Those that choose to live out here want their privacy. We became friendly and polite neighbors but kept our distance and respected each other’s privacy. I did make it known to her as much as I could that, if she needed anything at all, she could call me or just come on over.
+
+I saw less and less of him. I watched them one evening as they sat at the dinner table and celebrated his promotion at work. After that, he was away a lot. I watched her pack her bag a few times before she shot off to the airport to see him. I felt a little sorry for her. Especially when she was alone at home for days at a time.
+
+My work in town got slow, so I spent a lot of time at the farm. One cloudy, foggy afternoon, I was out in the yard and I heard a faint squeal. Not a scream, an excited little squeak, like a woman who just stepped on a toad. It was her. She was home. He was gone. Then I heard it again! A muffled little whimper. I had to know.
+
+I got up against my fence at a strategic point and looked over to the neighbor's house. The blinds in all the windows were closed and most of the house lights were on. Damn. I heard another little shriek from a woman with something in her mouth. The small sound carried well in the calm foggy air. I got moving.
+
+I'd worked a nice, discreet path between the houses before the couple moved in, so I could keep an eye on their place. I took it and ended up in their back yard. I went up to the house and looked for a way to see in. I soon found it. The blinds in one window were closed, but were too skinny to fit the window, so there were gaps on each side. I looked in.
+
+I couldn't see much, but what I did see was strange. A string with a weight and some keys was hanging from, I assumed, a hook in the ceiling, and a woman's handcuffed hands were trying to grab the weight or the string or both. She couldn't reach it. It was a couple inches too far away. She groaned and whined as she stretched for the string. What in the hell is she up to? Did someone break in and put her in cuffs? No way. She did this to herself, and she set up this string mechanism, but miscalculated the location by inches. I thought I understood. The thought that I was going to have to get in there and help her took my breath away. What the hell?! I'm a looker not a doer.
+
+She disappeared for a few seconds and came back with a paddle and poked the string to get it swinging. When it swung her way, she caught it easily, got the keys, and disappeared. I would have loved to see the rest of the show. Was she gagged? Is that why she sounded that way? She had set herself up in handcuffs and probably more bondage, and she couldn't take off her gag until she had keys. She had fixed and locked herself, standing or sitting up, a bit too far from her escape mechanism and was struggling to reach it. Maybe she had vibrating things attached to her, or inside her. Maybe there were grabby things pinching her sensitive tenders. Damn! My thoughts went dark and very R-rated. Yes, since the day I saw her strapping on leather restraints, I had been watching a little (a lot) of BDSM porn and was liking it more and more.
+
+The self-bondage videos I had recently watched were captivating. Beautiful women (and men) would dress up and prepare themselves with gags, clamps, vibrators, and other items of torment. Then, they would use the most ingenious bondage gear to bind themselves securely, using rope, cable, leather straps, or handcuffs of all sizes. They would then use even more cool mechanisms to give them a method of release after a few minutes or even hours. Frozen fittings that would only move when thawed, and weighted strings frozen in ice that would fall only when the ice melted, were so innovative. Risky and maybe dangerous, yes, but innovative.
+
+I crept away from the window and that was that. The next day she waved to me as I was heading into town and I stopped. She looked concerned and maybe a bit embarrassed. She said she thought she saw a big coyote and heard some weird noises in her back yard yesterday and asked if I'd seen or heard anything. Clever. She was worried that she got too loud and wanted to see if I'd heard her. I told her yes, I did actually hear some noises coming from around her house yesterday, that sounded like soft yelps and whines. She blushed. I also said that they sounded muffled. She looked away with a serious look on her face just then. I defused the situation quickly. I said, “hey, that happens out here all the time. Young coyotes run around here and catch the barn mice, shrews, and other small prey. They yelp and growl down in the ditchgrass, which sounds eerie and muffled. I'm used to it; I'm sure you’ll get used to it soon, too. Don't be concerned, they aren't dangerous.”
+
+Her face softened. Relief. She was loud enough for me to hear, but I immediately wrote it off as something else. She was heard but not discovered. At least she thought so. She could continue with her self-bondage games again, but she would have to be more quiet. And she was.
+
+Time passed. Her husband would come home for a few days and they would party and carry on, but he would always be back out on the road, most times for 3 or 4 nights. That was when she played.
+
+When I was lucky enough to be home, I'd check to see if her window blinds were down and her lights on. If they were, I'd scramble to see if that one blind was slightly open. which it always was. I couldn't always see what she was doing, but I saw other things like rope, belts, ice trays, mirrors, and stuff. Other times I did get to see some things, and they were awesome!
+
+One time, for just a couple seconds, I saw her ankles and feet, in high heels, tied together and squirming. I could hear her frustrations through her gag, so I knew something was working on (inside) her. Another time I got to see her on an old kitchen chair. Her back was to me, unfortunately. She was gagged and blindfolded, which I thought was gutsy. Her hands were cuffed behind her, her arms were over the back of the chair and a cord, attached to her cuffs, pulled her hands down tightly and was fastened around the lower cross-braces of the chair. In the middle of the cord was a plastic cylinder that looked like it was frozen. Ah, I’d seen this. There were small eyebolts at both ends of the cylinder to which the cord was attached. I knew this trick. When it thawed, the bolts would come out of the cylinder, and her cuffed hands would be free. She could then get hold of a key somewhere, I guessed, and open the cuffs. Genius.
+
+Her legs were spread to both sides of the chair, ankles tied. I guessed from the buzz, buzz, buzz, that maybe a large vibrator was fastened to the chair or nestled in her crotch, providing evil and endless frustration upon her sensitive clit. She moaned and squirmed as much as she could, which was mostly arching her back and throwing her head back in ecstasy. Yes, I also threw my head back in ecstasy. Okay, so I was getting pretty good at silently jerking off outside her playroom window. Now you know. Let’s move on.
+
+Three weeks later, the inevitable happened. It was supper time and I was home. I'd just finished eating and thought I'd check the neighbor’s house. Blinds drawn, lights on. I got moving. When I crept to my spot and looked in, things had changed. She was in a new section of the playroom, and I had a clear view of the whole session. She was in thigh high stockings and knee high, lace up, black boots with 5-inch stiletto heels. Whoa. She wore a black mesh bra with nipple holes, and her nips were clamped with little black clips. I started to get hard. Her hands were gloved in tight leather that went past her elbows. She was in a complex leather harness, buckled here and there and padlocked. Her ankles were strapped with thick leather cuffs, and the harness pulled them up to her wrists, so arms and legs were bound up all together. The small padlocks everywhere looked like they made unbuckling things near impossible without a key. Hogtied. She was firmly hogtied in leather cuffs and locks. She was gagged with a harsh red ball gag. I got harder.
+
+She must have been able to slip one of her wrists into a leather slipknot thing then pulled it tight. It would not loosen until someone worked it loose. The other wrist had a special cuff. She had slipped her wrist through a small opening and then tightened it somehow and there was a keyhole near her fingers. If she had a key, she could unlock and free that wrist. Then, with other keys, she could unlock sections of her harness and get completely free. For now she was helpless and I was rock hard.
+
+She struggled and mewed from her gag. It was big and spongy and designed to quash any sound. It made her drool and work her jaw, which I thought was very sexy. She made a lot of noise grunting and moaning, but it came out soft and bubbly now. She moved onto her side, and I caught a glimpse of neon-pink silicone protruding from her pussy. Yep. a remote-controlled dildo, most likely pre-programmed and BEEP! It came alive inside her and made her jump and squeal. I would not have heard that squeal from my yard. She had practiced being quiet! I was sooo turned on. I worked myself as I watched, mesmerized.
+
+Watching and hearing the new whimpers and squirming in her bondage was intoxicating. She was tanned, lithe and fluid. She was flushed and shiny with sweat. Her smooth body spasmed with pleasure as the rocket warmed up. Her gloved, bound hands fingered her black boots and the leather cuffs, like she was searching for a release. She came hard, thrusting her hips and doing all she could to stay quiet. Her tiny, strained whimpers went through me and I also came hard, clenching every muscle to stay quiet myself.
+
+She rested, as I put myself together outside her window. The dildo got quiet, then started in again a moment later, pulsing and whirring. Round two, coming up! I looked around the room as best as I could and saw the weighted string hanging with the keys. I could follow the string to the ceiling now and I noticed that something was not right. Very wrong. Boy, post-nut clarity is amazing.
+
+The ice cube was all wrong. The mechanism is for the middle section of a long length of string to be coiled up in water and frozen inside, making a string-filled ice cube. Loops are tied at both ends of the string. One loop goes on a hook in the ceiling, then the coiled string in ice hangs, and the other end holds a weight and the keys. As the ice melts, the weight forces the string to become unfrozen and fall from up high to the floor. This keeps the keys out of reach for a good amount of time before falling to where the bound person can reach them. This one had not near enough coiled string in the ice. She didn't coil up enough string to freeze in the ice. She was on the floor. In the past she was standing. The weight and keys would drop a couple feet higher than she could reach from a strict, harnessed hogtie on the floor. She was doomed. We were doomed. I got scared and excited at the same time.
+
+Hoping against hope that I was wrong, I waited. As the ice melted, she struggled delightfully. The melting string jerked slowly down as she moaned and squirmed. She came again and groaned into her gag as quietly as possible. Finally, the string jerked and fell, fully extended, exactly where I thought. When she noticed that the keys were well above her and not next to her, she froze, then panicked. Her struggling in her bondage went into high gear.
+
+The first thing she did was test all of her bondage to see if there was a weak spot. There wasn’t any. Next, she moved as much as possible to see if she could get in a position where her hands were high enough to reach the keys. No dice. I was so turned on by this intense struggle that I got hard again. Hey, with me watching, she was in no real danger, so yeah. I even thought about trying to rub out another one, when I saw her go to plan B. She went to her side and scrambled for something. She wiggled and grunted and her fantastic tits bounced in the tight meshy bra. A cellphone! A weird looking, old-style, silver cellphone somehow materialized in all of that struggle, and she held it in her hand. As best as I could tell, it was an old Nokia brick-style phone with large buttons, buttons she could push easily with leather-clad fingers! Smart lady. She was going to call someone. Not her husband, what could he do? Then it hit me. I got moving while I reached for my phone. About halfway between our houses my phone exploded. I didn't have time to silence it, so I held it close to my chest with both hands. Could she have heard it? I wasn't sure.
+
+I froze. My phone trumpeted out into a silent evening, so fucking loud it could probably be heard from town. Shit. As calmly as I could, I hit green and said hello without sounding out of breath. It didn’t matter. As soon as we connected, I could hear her shouting my name over and over through her gag. It was the sexiest thing to ever come out of my phone. I loved her.
+
+I had to be tactical here. And respectable. On one hand, she was my nice, married neighbor, a friendly acquaintance living privately next to me, and I was soon going to see and do a lot of things that respectable acquainted neighbors don’t usually do. On the other hand, she was the fucking hottest, bound and gagged woman I had ever laid eyes on, and I was soon going to see and do a lot of things that respectable acquainted neighbors don’t usually do.
+
+I broke in and told her to calm down, “It’s me, I’m here.” She breathed heavily and mumbled gag-talk into the phone at first, then got quiet. I asked if she was okay. Mmm-Hmm (yes). I asked her what was keeping her from speaking clearly, like choking or a seizure? Huh-uh (no). I asked if she needed me to come over and help. I got a long pause, then Mmm-Hmm (yes).
+
+Okay, that was relatively painless. My heart was racing. The best thing I could do then was to give her a shred of assurance that she was going to be okay. I told her that I was on my way over, and I ended with “trust me, you’re going to be okay.”
+
+I broke the current land-speed record running back to my house to get keys, and back to her house. At her door, I paused for a few seconds (seemed like years) to gain some courage, then went in.
+
+I had to act surprised! I had to be quick, but in a way that did not tip me off as a peeping, jacking, horny-ass, creepy, stalky dude, which I was. I called out to her, and she answered with my name through her gag. It sounded one thousand times sexier than the phone. I was warm and my ears buzzed. She called my name again. I followed the sound to the playroom.
+
+I stepped in, not knowing if she would bounce around and squeal at me, or do something else. It was something else. She was on her stomach with her head down in the carpet. I could see the embarrassed grimace on her face. She wanted to be invisible. She knew she had no choice but to call me for help, and that was probably the hardest thing she ever had to do. If she had started to cry just then, I swear I would have absolutely melted into a guilty puddle of death. But she didn’t.
+
+Seeing her plight, and hoping for NO TEARS, I knew I had to man the fuck up. She deserved it. So I came clean, and I mean spotless, polished, gleaming clean.
+
+Mumbly words just dribbled out of my mouth as I got to work. I saw the dildo remote-controller and turned it off. The small buzz ceased. I told her that I knew what she was doing because I did hear her the other day and discovered her secret game. I got the keys off the string. I told her that I could, and did, watch her through that window because the blinds weren’t right, and that the back of her house is kind of visible from my study window and that I didn’t see everything, but I know about self-bondage from the internet, and it looks fun and satisfying if a person is alone or if the partner is too vanilla, and blah, blah, blah. I knelt down and reached for the ankle cuffs, because they looked easier than the wrist locks and, um, well…
+
+She jerked her ankles away from me! Yep! I swear. I tried again and she squirmed away again! I froze in shock. She was glaring at me, with a look of hot anger, but not really disgust. She was breathing steadily through her gag. She lifted her chin and shouted clearly, “you’re not going to untie me, you fucking creepy, peepy bastard!” No, she didn’t say any of that. I don’t know what she said through the gag. I was stunned. My heart was in my throat.
+
+Her gaze softened. She looked me up and down. I stood there like a dazed idiot, trying to maintain eye contact instead of leering at her luscious, bound body. After a few long seconds, she looked over and nodded at the dildo controller. She looked back at me and gave a look that said please? More mumbling from the gag. I was ready to pass out, but I got moving. She didn’t have to tell me twice!
+
+What in the hell was happening? I had to calm down and think. She lay quietly, looking away from me, and I quickly soaked up the scene. She had to expose herself to me, bound, gagged, and dressed as provocatively as possible. I’ve now seen her as helpless and submissive as she could possibly get. Whew! Then, I exposed myself to her and confessed everything I’d seen, done, and heard. Were we now even-stephen? Maybe she thought so, and she had the nerve to let me into her game a tiny little bit. I got some courage back, and I decided then and there that I was in control of this situation. If she worked so damn hard to become a “sub”, the least I could do was try to be a decent “dom”. What’s the worst that could happen? I got moving.
+
+I turned the controller back on and the rocket fired up inside her. I looked at the setpoint and thought she could take a little more, so I stepped it up and chose random mode. This would make her really get the full effect of that buzzy bastard. This may have been a dick move, but I didn’t stop there.
+
+I looked around and found her leather blindfold that went over her eyes and also around and under her nose. She didn’t want it and shouted NO, but too bad. I strapped it tight so she could not scrape it off on the carpet. I didn’t want to get any more dagger-glances from her, or for her to see the soggy bulge in my jeans. By then she was thrusting and moaning to the strong dildo sequence, and the blindfold made her struggle harder in her bondage.
+
+I pushed her to her side and removed the clips, which sent blood rushing into her sensitive nipples and made her wail through her gag. Her nipples looked raw and they would pulse and hum deliciously for a little while. It was all I could do to keep my hands from caressing her sweaty tits and her tender nipples, which were still hard and puckered.
+
+She was panting so I unstrapped her gag and yanked it from her mouth. She sucked in a big breath of air and worked her jaw. I didn’t want her to speak or else I would have peed myself, so I spoke first. I said quietly, “nobody is going to hear you out here, no matter how much noise you make, so catch your damn breath and just let it all out.”
+
+After a couple seconds she said, “okay.” Her voice was soft and trembling.
+
+“Okay, what?”
+
+And just like I had dreamt in a hundred dreams, she said, “okay, master.”
+
+I was lost. I didn’t care if her husband came blasting into the house with a shotgun and a chainsaw just then, I was king of the world. I got moving again. I grabbed her harness and moved her onto her stomach. She squealed. I went to her ankle cuffs and tightened each one a single notch. This made her gasp and mutter, “motherfucker” under her breath. I checked her wrist bonds and they were secure. She was completely mine. I had the keys in my pocket. I had absolutely no idea what to do next.
+
+Actually I did. I could see that she was uncomfortable. She couldn’t really enjoy her game with the feeling of the neighbor dude standing right over her. The blindfold made her too quiet, bashful and subdued, even with the vibrator raging in her pussy. So I spoke again, like a real dom. I said loudly that I was going upstairs to watch tv and get a snack, and I’ll deal with you in an hour or so! That immediately brought a little whimper, so I said okay, maybe half an hour. I forgot that she had been in bondage for quite a while now. That got me another feeble “yes, master.” That will never get old.
+
+I stormed out of the room so she would hear me and slammed the door. Big mistake. I wanted to watch. Too bad, dude. A good dom doesn’t loiter by the door and play with himself while watching a bound goddess squirm on the carpet, does he? I didn’t think so.
+
+I went to the front of the house and checked the door locks. I paced and looked in the fridge and paced, then turned on the tv and paced some more. I was on pure adrenaline. I went upstairs to the second floor and perused the rooms. I was too far away from her, so I quit that and bounded back down the stairs. The thought of what was happening in that room was exasperating. I needed to see her struggle and orgasm and sweat and writhe on the floor in her heels and stockings, unable to see a thing, unable to get free with a key dropped from the ceiling. I reached for myself, as usual. My thoughts alone would get me off easily. Then I heard her. After all this time, it was weird to hear her voice with no gag.
+
+She started off small and simple, with a single “shit”. She moved around, working her bondage. I could hear hard breaths and leather squeak, then “oh shit. fuck, oh fuck” a little louder. “Oh, man, not again, I can’t, I can’t, oh god, oh god, I’m gonna…”
+
+Ka-BOOM. She came hard, harder than the previous orgasms. High pitched moans and throaty, exhausted gasps, then more moans mixed with “fuck” and “god-damn” came roaring out of that room and echoed through a quiet house. It was heaven and she was an angel. Yeah, I actually thought this while my hard cock was firmly in my sweaty hand.
+
+It got better, but also a little worse. Her moaning and cursing got quiet. I could sense that she was entirely spent and wanted freedom. Under normal circumstances, she would have freed herself. By now, she would have been in a hot bath, working the leather marks from her wrists and ankles, soothing her battered nipples. Not tonight. Tonight, she needed me. I got moving. I crept down the stairs to listen at the door, with my dick still in my hand. Would she be meek and whimpery, or angry and bitter and bitchy? Would she scream? All of the above.
+
+“Hello out there, I know you can hear me!”
+
+I stayed where I was.
+
+“I could really use your help now.”
+
+Her voice, coupled with how I knew she was helplessly tied up, got me fired up all over again. Bonerville.
+
+“I’m done, and I’d like to be untied, I mean, unbuckled now. Hello? It’s really starting to hurt and my pu… I can’t take it much longer.”
+
+She almost said “my pussy” or something similar. I was close. I kept stroking.
+
+“Please, would you help me? Please? I’m begging. Please? I need help.” Then almost as a whisper, “please, master?”
+
+That’s all I needed. I shot a hot load onto the wall, then held my breath until I got my shit together. I know, what a crappy dom, huh?
+
+I calmly walked into the room, eyes at the floor, and turned off the rocket. I knelt down and started to release my beautiful sub. I unbuckled her ankles first and let her legs fall straight. I bet that felt good. Next, I unlocked her wrists and undid the harness, using the keys on the little padlocks. She was free. I knew she couldn’t see me, but I saved the blindfold until last, and she actually let me unstrap it from her head.
+
+She lay flat, face down on the carpet and sighed in relief. Her eyes were closed and puffy; the blindfold was hot and probably uncomfortable. I felt kinda bad. I stood up and tried to soak every inch of her into my memory. Her body laid out in black hose and boots and black leather gloves was intoxicating. Then, she rolled over onto her back and reached for her crotch to remove the rocket. This is where I knew I had overstayed my welcome. I said loudly, “I’ll be going home now” and marched out the door and out of her house. I went home and drank a beer and did not sleep for a long time.
+
+Days passed. Her husband came home and they partied. My work in town picked back up, so a lot less time was spent at the farm. I even started seeing a nice lady from one town over. But I thought about the neighbor lady, and her sexy, dangerous games, and her body a lot more than I should have, but oh well. It was not long until I saw her blinds drawn and lights on again, and it made me feel good that I had not done any irreparable damage to her or her psyche, I suppose.
+
+One rainy evening, I was closing up shop when I got a call from my neighbor lady. I answered quickly and was ready to hear my name through a puffy gag, but that was not to be. It was just her. Her voice did get my heart to jump, though.
+
+She got right to the point. Husband was gone for 3 nights. She was planning to “get herself into a difficult situation” and asked if I would be able to help if things got “out of hand”. I understood completely, and said that would be fine, just be careful, little lady. What a dumb thing to say. I was freaking out! It got better, though.
+
+She then asked if I had any recommendation on how she should set herself up in this “situation”, seeing as how I had been such a wonderful, thoughtful and helpful neighbor in a crisis. I continued to freak, but I got excited as well. This was gonna be awesome!
+
+I calmed down just enough to give her my dom voice. I said I wanted her in her best stay-in date-night lingerie, heels and leather cuffs. I told her to get all of her toys and gear together and call me when she was ready. “Yes, master”. I peed a little in my pants and shot for home.
+
+Now, I did not have any inclination to get this woman secured and then take full sexual advantage of her, regardless of how badly I wanted her. Jeez, this was not my scene, this was hers. I decided that I would help her, before, during and after the session, and she would call the shots and stop me if I went too far. We were both consenting adults, okay? Besides, I think we all know how I planned to satisfy my pervy self through all of this.
+
+I got home, showered, and waited. I thought I should be sexy, but I really didn’t know how to be. Maybe old jeans and a flannel shirt was sexy. I’m in fairly good shape and my lady friend said I was easy on the eyes, so, there.
+
+My phone went off after an eternity. She said “I’m ready. I mean, I’m ready, master. That was good, but unnecessary. I didn’t need to be called that all the time. I said, “I’ll be right… I mean… I’ll be over soon.” We were both learning.
+
+My previous land speed record was broken when I headed over to her house. The door was open, and I walked in and locked it. Hello? She called my name from the guest bedroom upstairs. I wondered where we would be playing, and this was a good choice. Not her bedroom, that was off limits. This bedroom was smaller, darker, and had a good bed with posts.
+
+I walked slowly in, heart racing as usual. She was on the bed in a snug black camisole, black panties, fishnet stockings and black high heel pumps. I was hoping for the red or the white fluffy, strappy ensembles that her husband got to have, but this would do nicely. She was smoking hot. Hair up, face slutty. Black leather cuffs with shiny D-rings buckled on all fours.
+
+Her gear was stored nicely in an expensive-looking suitcase. Neat bundles of rope, leather belts, several types of gags, her blindfold, and an assortment of small vibrators and dildos, and a few sets of shiny handcuffs and ankle cuffs. Nice assortment. I grabbed four bundles of rope, a leather gag that would cover her whole mouth, and her blindfold, which I stashed in my back pocket.
+
+“Ready?” I was such a smooth talker.
+
+“Yes.”
+
+Okay, then. Let’s keep talk to a minimum, here. I was about ready to throw up and come in my pants. I got moving.
+
+I’m not a rigger, or anything like that, but I do a lot of lashing and ropework on vehicles at the shop, most of them loaded with cargo or needing items secured in trailers and truck beds. So, I did get that voluptuous woman tied down to the four posts of the bed in no time flat. She was surprised at how quickly she was stretched out and helpless. She was breathing hard as she tested her bondage. It was set, with very little give. I wanted her to feel good, simple, strong, secure, tight bondage for a change, not clanky handcuffs, slipknots and ice cubes and shit. I could tell she appreciated it.
+
+I got on the bed and tightly buckled her gag around her head, popped in the small ball, and strapped the leather piece in place to cover her mouth. She didn’t need to be gagged, but I liked the sounds that she made, and I hoped she would be very vocal through this particular one. Then I started with the blindfold, and she shook her head again. She might not have trusted me enough to take away the last of her senses, but too bad. As soon as it was snugly on, she started to struggle and whine. She looked amazing. Her tits pressed against her silky top and wiggled, nipples hard as diamonds. Nipple clamps! I forgot them but decided that I could damage tissue if I used them wrong, so not tonight. Yes, I would get me a set and practice on myself first.
+
+I stood at the bed and admired my work. She was spectacularly spread-eagle in great lingerie, squirming and pouting, firmly bound and gagged. I could watch her forever. I looked back at her gear and wondered what I should do next. Vibes? Whips? Tickling? I had watched a TON of BDSM porn lately, so I knew about all that. I also knew of something else, something I didn’t see, something that wasn’t there. Hmm. I thought back to when I didn’t know what it was, but I certainly did now. Something she had used earlier. I told her in my dom voice that I’ll be back in a while and for her to behave. I left the room and she squealed my name a couple times. Delicious.
+
+I headed downstairs to the playroom and looked all around. Nothing. It had been cleaned and cleared. I wandered back upstairs and quietly into the primary bedroom. I felt very unwelcome. This room was theirs and I had no business being there. I did admire their huge, stout bed and thought about some great scenes happening there. I looked quickly in the bedside drawers and found nothing.
+
+Out in the hallway, I had just about given up, when I thought about checking the linen closet. I opened it up and saw nothing but towels and sheets and stuff. I was closing the closet door and I saw it! A white electrical plug sticking out from under a towel. BINGO! I grabbed it and pulled. It was the electrical cord attached to a popular Japanese muscle massager device. This bad-boy had a thick handle and a large vibrating rubber knob on one end. It had two speeds and it really thumped and bumped. Being corded meant it was powerful and would not stop unless you made it stop, or the power went out, I guess.
+
+She had hidden it. Probably from me. Either she didn’t trust me with it, or she knew she would be in delightful trouble if I used it on her. When she was alone, she probably just fastened it to a chair or something, then when she was tied up, she could touch herself to it and get buzzed but would also be able to get away from it. From what I’d seen online, this thing was ideal for intense labial and clitoral stimulation and could scramble a woman’s guts and bring on strong and endless orgasms, if used properly. I intended to use it properly. On her, my helpless neighbor lady, struggling away in that room right there. And maybe a little on myself later. I needed an extension cord and found one in the kitchen pantry. I was set. I got moving.
+
+When I stepped back into the bedroom, I could tell that she was frustrated as hell, being bound and sightless with no stimulation. She was used to having, or getting, quick gratification while being self-bound. Vibrators and nipple clamps were doing their thing while she was either binding herself or had just finished. Lying spread and helpless with no stimulation was, over time, like being a kidnap victim or prisoner. A self-bound person’s mind would certainly wander, and a lot of dark thoughts would emerge. She was upset with me for making her wait so long, but it would be worth it.
+
+I found a receptacle and plugged in the wand. She looked and listened intently, although all she could do was hear me tiptoe around the bed, quietly arranging the electrical cords. The moment of truth was the sharp CLICK of the switch and WHURRRR! of the massage-wand firing up like a well-tuned engine. Instant acknowledgement! I heard her plead no, no, please, no into her gag and start a real struggle, which wasn’t much due to her being fully stretched out in tight bondage. Her fingers, feet and head wiggled in fearful anticipation of what was coming.
+
+Ya know, an uneducated, unrefined man would have just set that viber-beast on high and jammed it right down on her unprotected crotch and gone to town, rubbing and twirling, like painting a fencepost. Not me, brother. I was going to be an artiste, with a fine brush on a delicate canvas.
+
+On the low setting, I first touched the vibrating rubber head lightly on her chin. Yep, a place she would least expect. She flinched as she heard it coming close to her head and yelped when it touched her. It was like an electric prod. I had to be careful.
+
+Next, I moved the wand down her right arm touching it to flesh every inch or so. This brought a small cry of worry from her gag. I set the rubber head in the palm of her right hand and, like I expected, she grabbed it. She was NOT gonna let it go. I wanted this. I wanted the buzzing head in her hand to give her an idea of what it was going to feel like on other places on her smoldering body. She pleaded with me and shivered in her bondage.
+
+I got her to let go. She was helpless to do otherwise. I didn’t do her other arm as I thought that would be cruel. I thought I might go there later. Where I did decide to go, however, was gonna be kind of cruel, as well. I moved to the end of the bed; my wand was still in a low grumble.
+
+What I saw there would make a true dom very upset. In her struggles, she had allowed one of her shoes to come off! The nerve of this woman. It was still hanging onto her toes, but the sexy long stiletto pump had come off her foot at her heel. She had held it there on purpose, I thought. What a woman. If she had just kicked it off, she would have had to pay dearly, I guessed. Well, she was gonna pay anyway.
+
+I reached down and slowly lifted the shoe away. She froze, panting. I placed the head of the wand delicately on the ball of her stockinged foot and that’s when the roof came down. She howled through her gag and every muscle went tense. I moved the wand up and down her foot, making her spew nasty, rude obscenities at me while she bounced on the bed and threw her head back and forth. I quickly moved to the other foot, yanked off the shoe and went up and down her tender sole. She arched her back and screamed with laughter. She was in sweet agony with no way to stop it. After a little more of this on both feet, I stopped and put her shoes back on. Keep ‘em on! I growled in a much improving dom voice. As she settled down and caught her breath, I moved to her legs touching and rubbing the wand on her calves, behind her knees (she moaned at this, it must be sensitive back there). I moved the wand slowly but firmly up and down the inside of each of her thighs but stopped short at the midpoint. That terrible pleasure would come soon enough. I moved on.
+
+I touched the wand to her chin again to startle her, and set it down between and above her breasts, where her cleavage started and traveled down into her nightie. The silky top made moving the wand easier and I wasted no time giving her great tits a lot of attention. At first, she cried out when I touched a nipple, so I drew back quickly. Were they still sore from the session before? Both were hard as pebbles behind her flimsy top. She relaxed a little, then brought her chest a bit closer to me, offering her gorgeous breasts to me, like a good sub does for her dom. I lost control for a moment. I cupped a breast with one hand, while I rolled the wand over her hard nipple. She squirmed as the delicious torment went from there to the other breast, me cupping and vibing that one as well. I decided to do this all night.
+
+I didn’t. I stopped after a little while and stood there. I had crossed a line and put my hands on her body in a fit of lust and passion. Did I commit an unforgivable foul? Will she kick me out of the game? I deserved to be. I watched her for a just a few seconds. She breathed hard and worked her bondage a little bit, then looked in my direction. She wanted more! I was off the bench!
+
+I turned the wand to its high setting and went to the promised land. She heard the wand gear up and bawled through her gag. I set the head lightly on her pubic section and then gradually put more weight on it. She tried to move away from it but couldn’t. I moved the head slowly down to where her camel toe began, tilting and rolling it back and forth. Her panties were satiny and smooth (and wet) and the wand moved easily. She started to wiggle her hips to get just the right angle and she shouted shit, shit, oh, fuck through her gag. I moved further down, watching and listening until I got just the right spot. I could tell I’d hit the spot where the intense vibrations would certainly engage her clitoris, no matter how hooded or deep it was. I was there. Her attitude changed. Instead of receiving delightful torment, she was now going to have to endure a serious dose of continuous stimulation at a very, very sensitive location. She grabbed the ropes holding her wrists and pulled. She spread her legs, opening up the inside of her thighs to me. She thrust her hips now in rhythm and a low guttural groan came from her gag. I steadied my hand with the wand. My online training told me to stop moving and just leave it there and let the lady get what she needs. I heard, “OH? OH? OH?” from her gag. She was getting it and it was coming fast.
+
+“OOOOOOOOH!”
+
+When the roof came down earlier, this orgasm brought the walls down. It must have been an earth-mover. Her face flushed red and her whole body rocked with diabolical pleasure. I held the wand as steady as I could with both hands, while she rubbed and pressed herself on the powerful head, screaming into her gag. Wave after wave hit her as the bed squeaked and swayed. After a long while, she moved herself away from the wand and I knew she was done. She laid there panting no more struggle left in her.
+
+I turned off the wand, dropped it on the bed and waited for a minute. I figured we should stop, because she appeared to be spent. She was sweaty and flushed and her makeup had run out of the blindfold with her tears. I supposed I could untie her and help her up into the bathroom and run a bath and get her out of her clothes and…
+
+Nope, nope, nope. No, to all of that. I remembered that this was her game. She had her own way of recovering, difficult as it may be. I got moving.
+
+I went over and loosened the cuff on her right arm. I tested it and found that she could wriggle and squeeze her tiny wrist out of the cuff with minimal effort. That’s it. I said, “I’ll be going now,” in a quiet dom voice, and went downstairs and out of the house.
+
+Yes, I checked later and saw movement upstairs and some other lights go on. She had escaped my dastardly bondage just fine. Later that night I got a text from her that said “thanks”.
+
+When her husband was home, they would party. On those days he was gone, she would play. All I’ll say now is that every so often she would get in a jam and I would do the neighborly thing. Enough said.
+
+Today, however, I went over to her house, after she asked me to unclog a drain. There was no clog. I found myself in her playroom, handcuffed and ankle-cuffed to an old kitchen chair and gagged tightly with my own bandana. My jeans are open and the head of my cock has a scratchy hemp string wrapped and tied around it. The fucking thing is driving me crazy. Yep, this is payback for all of my previous “un-neighborly” indiscretions.
+
+Oh shit. Here she comes with a bottle of lube and a feather. Just friendly neighbors.
+
+END
